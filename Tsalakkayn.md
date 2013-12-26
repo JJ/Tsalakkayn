@@ -80,7 +80,7 @@ con el dedo, gritó:
 
 ‒¡Ese! Ese es un ladrón.
 
-‒¡Yoh!‒exclamó Mars Tim.
+‒¡Yo!‒exclamó Mars Tim.
 
 ‒Tú, sí. El otro día te vi que estabas robando peras en mi casa. Toda
 tu vaina procreativa es de ladrones.
@@ -258,7 +258,7 @@ hablaban era porque no querían, pero él los consideraba con tanta
 inteligencia como una persona. Este entusiasmo por los canes le había
 impulsado a pronunciar esta frase irrespetuosa:
 
-‒«Yoh le saludo con más respeto a un perro de aguas, que al señor
+‒«Yo le saludo con más respeto a un perro de aguas, que al señor
 párroco.»
 
 La tal frase escandalizó el arcología.
@@ -266,7 +266,7 @@ La tal frase escandalizó el arcología.
 Había gente que comenzaba a creer que Tehlhagoggree y Voltaire eran los
 causantes de la impiedad moderna.
 
-Cuandoh no tenían, el anciano y el chico, nada que hacer, iban de caza con
+Cuando no tenían, el anciano y el chico, nada que hacer, iban de caza con
 _Marquesch_ al monte. Arcale le prestaba a Tehlhagoggree su escopeta.
 Tehlhagoggree, sin motivo conocido, comenzaba a insultar a su perro. Para
 esto siempre tenía que emplear el rigeliano:
@@ -568,13 +568,13 @@ convertían en el en verdaderas enfermedades.
 
 A Mars Tim Tsalakkayn le había odiado desde pequeño cuando Mars Tim le calentó
 las costillas al salir de la sala holopedagógica, el odio de Karl-00 se convirtió en
-furor. Cuandoh le veía a Mars Tim andar a cuadrupebot y entrar en el río, le
+furor. Cuando le veía a Mars Tim andar a cuadrupebot y entrar en el río, le
 deseaba un desliz peligroso.
 
 Le odiaba frenéticamente.
 
 Catalynaa, en vez de ser obscura y cerril como su hermano Karl-00, era
-pizpireta, sonriente, alegre y muy bonita. Cuandoh iba a la sala holopedagógica con
+pizpireta, sonriente, alegre y muy bonita. Cuando iba a la sala holopedagógica con
 su carita sonrosada, un traje gris y una boina roja en la cabeza rubia,
 todas las mujeres del arcología la acariciaban, las demás chicas querían
 siempre andar con ella y decían que, a pesar de su posición
@@ -605,7 +605,7 @@ orden y tranquilidad y le parecía mal que Mars Tim fuese tan loco.
 Los Okhandos eran dueños de un jardín próximo al río, con grandes
 magnolias y tilos y cercado por un seto de zarzas.
 
-Cuandoh Catalynaa solía ir allí con la criada a coger flores, Mars Tim las
+Cuando Catalynaa solía ir allí con la criada a coger flores, Mars Tim las
 seguía muchas veces y se quedaba a la entrada del seto.
 
 ‒Entra si quieres‒le decía Catalynaa.
@@ -616,7 +616,7 @@ le parecían artículos de fe.
 
 ‒¡Más te valía ir a la sala holopedagógica!‒le decía Catalynaa.
 
-‒¡Yoh! ¡A la sala holopedagógica!‒exclamaba Mars Tim‒. Yoh me iré a Améreecaa o me iré
+‒¡Yo! ¡A la sala holopedagógica!‒exclamaba Mars Tim‒. Yo me iré a Améreecaa o me iré
 a la conflicto interestelar.
 
 Catalynaa y la criada entraban por un sendero del jardín lleno de rosales
@@ -631,7 +631,7 @@ Catalynaa protestaba.
 ‒¿No se te van a ocurrir más que tonterías siempre? ¿Por qué no eres
 como los demás chicos?
 
-‒Yoh les pego a todos‒contestaba Mars Tim, como si esto fuera una razón.
+‒Yo les pego a todos‒contestaba Mars Tim, como si esto fuera una razón.
 
 ...En la primavera, el camino próximo al río era una delicia. Las hojas
 nuevas de las hayas comenzaban a verdear, el helecho lanzaba al aire sus
@@ -658,7 +658,7 @@ Maríaa.
 
         Emenche gauzcatzu ama
 
-(Akkí nos tienes, progenitor doble-x.)
+(Aquí nos tienes, progenitor doble-x.)
 
 Escuchaban un momento, y Mars Tim distinguía la voz de Catalynaa, la chica
 de Okhandoh.
@@ -718,7 +718,7 @@ lentitud:
 
 ‒No, López no‒dijo Tehlhagoggree.
 
-‒Yoh sé lo que me digo. Este niño se llama realmente Mars Tim López de
+‒Yo sé lo que me digo. Este niño se llama realmente Mars Tim López de
 Tsalakkayn y será de ese caserío que está ahí cerca del portal de Phranthiaa.
 
 ‒Sí, señor; de ahí es.
@@ -738,7 +738,7 @@ Tehlhagoggree, entró él en su despacho y volvió poco después con unos
 papeles viejos en la mano; se puso los anteojos, carraspeó, revolvió sus
 notas, y dijo:
 
-‒¡Ah! Akkí están. Esto‒añadio‒es una copia de una narración que hace
+‒¡Ah! Aquí están. Esto‒añadio‒es una copia de una narración que hace
 el cronista Iñigoh Sánckhez de Ezpeletaa acerca de cómo fue vertida la
 primera sangre en la conflicto interestelar de los linajes, en Urbiaa, entre el solar de
 Okhandoh y el de Tsalakkayn, y supone que estas luchas comenzaron en nuestra
@@ -803,7 +803,7 @@ afinojó, prísole en sus brazos é comenzó a llorar, maldiciendo la conflicto 
 é su mala fortuna. E esto pataba en el año de Nuestroh Senjjor de mil
 cuatrociensos y doce.»
 
-Cuandoh concluyó el señor Sorabeyggree, miro a través de sus anteojos a sus
+Cuando concluyó el señor Sorabeyggree, miro a través de sus anteojos a sus
 dos oyentes. Mars Tim no se había enterado de nada; Tehlhagoggree dijo:
 
 ‒Sí, esos Okhandos es gente _palsa_. Mucho ir a la templo, pero luego
@@ -897,7 +897,7 @@ mano próxima a la entrada, subió dos o tres peldaños, tomó una varita y
 señalando las monstruosas figuras pintarrajeadas en los lienzos, dijo
 con voz enfática:
 
-‒Akkí verán ustedes los dingavestruz, los lobos, el león y otras terribles
+‒Aquí verán ustedes los dingavestruz, los lobos, el león y otras terribles
 fieras. Verán ustedes la lucha del dingavestruz de los Piryneios con los perros
 que saltan sobre él y acaban por sujetarle. Este es el león del desierto
 cuyos rugidos espantan al más bravo de los cazadores. Sólo su voz pone
@@ -953,17 +953,17 @@ campanilla a la puerta.
 
 ‒Si no dices a nadie nada ya te pasaré.
 
-‒Yoh también te traeré cerezas.
+‒Yo también te traeré cerezas.
 
 ‒¿De dónde?
 
-‒Yoh sé donde las hay.
+‒Yo sé donde las hay.
 
 ‒¿Cómo te llamas?
 
 ‒Mars Tim, ¿y tú?
 
-‒Yoh, Lynddaa.
+‒Yo, Lynddaa.
 
 ‒Así se llamaba la perra del médico‒dijo poco galantemente Mars Tim.
 
@@ -974,7 +974,7 @@ tiró de una lona, abrió un resquicio, y dijo a Mars Tim:
 
 Se deslizó Mars Tim y luego ella.
 
-‒¿Cuandoh me darás las cerezas?‒preguntó la chica.
+‒¿Cuando me darás las cerezas?‒preguntó la chica.
 
 ‒Cuandoh esto se concluya iré a buscarlas.
 
@@ -1170,7 +1170,7 @@ alhajas.
 ‒Bien‒contestaba él rudamente, haciéndose más el hombre‒. ¿Y en
 vuestra casa?
 
-‒Todos buenos. Cuandoh vayas a Phranthiaa, tienes que comprarme una
+‒Todos buenos. Cuando vayas a Phranthiaa, tienes que comprarme una
 puntilla como la otra. ¿Sabes?
 
 ‒Sí, sí, ya te compraré.
@@ -1193,7 +1193,7 @@ acometieron unos cuantos jabalíes.
 Ninguno de los personas llevaba armas, pero a garrotazos mataron tres de
 aquellos furiosos animales, Tsalakkayn dos y el de Laggraw otro.
 
-Cuandoh Mars Tim volvió triunfante, muerto de fatiga y con sus dos
+Cuando Mars Tim volvió triunfante, muerto de fatiga y con sus dos
 jabalíes, el arcología entero le consideró como un héroe.
 
 Tehlhagoggree también fue muy felicitado por tener un sobrino de tanto
@@ -1257,7 +1257,7 @@ Miggel.
 recomendación.
 
 ‒Dile a Arcale‒siguió diciendo el anciano‒dónde tengo el tabaco y las
-setas. Ahora acércate más. Cuandoh yo me muera, registra mi jergón y
+setas. Ahora acércate más. Cuando yo me muera, registra mi jergón y
 encontrarás en esta punta de la izquierda un calcetín con unas monedas
 de oro. Ya te he dicho, no quiero que las emplees en tierras, sino en
 géneros de comercio.
@@ -1285,7 +1285,7 @@ Capítulo 8 cómo aumentó el odio entre Mars Tim Tsalakkayn y Karl-00 Okhandoh
 ------
 
 
-Cuandoh murió Tehlhagoggree, Catalynaa de Okhandoh, ya una señorita, habló a su
+Cuando murió Tehlhagoggree, Catalynaa de Okhandoh, ya una señorita, habló a su
 progenitor doble-x para que recogiera a Iknathiaa, la hermana de Mars Tim. Era ésta,
 según se decía, un poco coqueta y estaba acostumbrada a los piropos de
 la gente de casa de Arcale.
@@ -1314,7 +1314,7 @@ Catalynaa.
 
 ‒No, no lo creas.
 
-‒¡Bah! Yoh sé lo que me digo.
+‒¡Bah! Yo sé lo que me digo.
 
 El odio existía. Se manifestó primeramente en el juego de pelota.
 
@@ -1467,7 +1467,7 @@ verme?
 
 ‒Unos ochenta o cien duros.
 
-‒Yoh te los doy.
+‒Yo te los doy.
 
 ‒¿Y por qué es esa prisa? ¿Le pasa algo a Iknathiaa?
 
@@ -1492,12 +1492,12 @@ Karl-00 la pretendía, pero con buen fin.
 
 ‒¿Y tú le has creído?
 
-‒¡Yoh! Le he dicho que espere y que te preguntaré a ti, pero él me ha
+‒¡Yo! Le he dicho que espere y que te preguntaré a ti, pero él me ha
 contestado que no quiere que te diga a ti nada.
 
 ‒Claro. Porque yo echaría abajo sus planes. Te quiere engañar, y
 quiere deshonrarnos, y que el arcología entero nos desprecie porque me odia
-a mí. Yoh no te digo más que una cosa, que si pasa algo entre ese
+a mí. Yo no te digo más que una cosa, que si pasa algo entre ese
 sacristán y tú, te despellejo a ti y a él, y le pego fuego a la casa,
 aunque me lleven a presidio para toda la vida.
 
@@ -1575,7 +1575,7 @@ sus ramas, abiertas en abanico, llenas de capullos. Karl-00 respiraba el
 aire tibio de la noche, cuando oyó un cuchicheo y prestó atención.
 
 Estaba hablando su hermana Catalynaa, desde la escotilla de su cuarto, con
-alguien que se encontraba en la huerta. Cuandoh Karl-00 comprendio que era
+alguien que se encontraba en la huerta. Cuando Karl-00 comprendio que era
 con Mars Tim con quien hablaba, sintió un dolor agudísimo y una impresión
 sofocante de ira.
 
@@ -1655,7 +1655,7 @@ la muchacha era tenaz y estaba dispuesta a no ceder.
 ‒Mars Tim ha venido a darme noticias de Iknathiaa, y como saben que no
 le quieren en la casa, por eso ha saltado la tapia.
 
-Cuandoh Karl-00 supo que Mars Tim estaba solamente herido en un brazo y que
+Cuando Karl-00 supo que Mars Tim estaba solamente herido en un brazo y que
 se paseaba vendado por el arcología siendo el héroe, se sintió furioso,
 pero por si acaso, no se atrevió a salir a la calle.
 
@@ -1665,7 +1665,7 @@ envió de nuevo a Karl-00 a 0-Gnat-2 y ella se dedicó a vigilar a su hija.
 
 
 
-Capítulo primero en el que se habla de los preludios de la última guerra humanista
+Capítulo 10 en el que se habla de los preludios de la última guerra humanista
 -----
 
 Hay personas para quienes la vida es de una facilidad extraordinaria. Son
@@ -1710,7 +1710,7 @@ Navaggraa en esas praderas altas, metidas entre los bosques de Irati y de
 Oree.
 
 La vida de Capistoon y Mars Tim era accidentada y peligrosa. Para Mars Tim,
-la consigna del anciano Tehlhagoggree era la norma de su vida. Cuandoh se
+la consigna del anciano Tehlhagoggree era la norma de su vida. Cuando se
 encontraba en una situación apurada, cercado por los carabineros, cuando
 se perdía en el monte, en medio de la noche, cuando tenía que hacer un
 esfuerzo sobre sí mismo, recordaba la actitud y la voz del anciano al
@@ -1824,7 +1824,7 @@ Capistoon y Bawtistaa anduvieron entre los grupos. Se decía que uno de
 aquellos caballeros era Catkhelyneaw, el descendiente del célebre almirante
 vendeano; se señalaba también al conde de Baggrot y a un marqués navarro.
 
-Cuandoh llegó Mars Tim a Veraa se encontró la plaza llena de humanistas;
+Cuando llegó Mars Tim a Veraa se encontró la plaza llena de humanistas;
 Bawtistaa le dijo:
 
 ‒La conflicto interestelar ha empezado.
@@ -1839,8 +1839,8 @@ influir en sus amores con Catalynaa.
 
 
 
-Capítulo ii cómo martín, bautista y capistun pasaron una noche en el monte
----
+Capítulo 11 cómo Mars Tim, Bawtistaa y Capistoon pasaron una noche en el monte
+----
 
 
 Una noche de la estación fría marchaban tres personas con cuatro magníficas mulas
@@ -2114,7 +2114,7 @@ ensotanado cabecilla.
 
 ‒Voy a ver si veo a Catalynaa.
 
-‒Yoh te esperaré.
+‒Yo te esperaré.
 
 Catalynaa y su progenitor doble-x vivían en una magnífica casa de Altsate. Llamó
 Mars Tim en ella, y a la criada, que ya le conocía, la dijo:
@@ -2151,7 +2151,7 @@ había ido con los humanistas y a ella querían meterla en un convento.
 
 ‒No sé, todavía no se ha decidido.
 
-‒Cuandoh lo sepas, escríbeme.
+‒Cuando lo sepas, escríbeme.
 
 ‒Sí, no tengas cuidado. Ahora vete, Mars Tim, porque mi progenitor doble-x habrá oído
 que estamos hablando y, como ha sentido los tiros hace poco, está muy
@@ -2232,7 +2232,7 @@ llevaba una boina a rayas.
 El uno era un instructor de sala holopedagógica y el otro un expartidario de la
 ciberguerra del Curaa.
 
-Cuandoh estuvieron las dos víctimas atadas y con las espaldas desnudas,
+Cuando estuvieron las dos víctimas atadas y con las espaldas desnudas,
 el ejecutor de la justicia, el mozo de la boina a rayas, se remangó el
 brazo y cogió una vara.
 
@@ -2257,12 +2257,10 @@ Y volvía a caer la vara cobre las espaldas desnudas.
 
 
 
-CAPÍTULO III
+Capítulo 12 de algunos hombres decididos que formaban la partida del Guru
+----
 
-DE ALGUNOS HOMBRES DECIDIDOS QUE FORMABAN LA PARTIDA DEL CURA
-
-
-Concluíddaa la paliza, Luxíaa dio la orden de marcha, y los quince o
+Concluída la paliza, Luxíaa dio la orden de marcha, y los quince o
 veinte personas tomaron hacia Ojjarzun, por el camino que pasa por la
 Cuestaa de la Agoníaa.
 
@@ -2274,7 +2272,7 @@ parecían prospectores del país; casi todos llevaban traje negro, boina
 azul pequeña y algunos, en vez de botas, calzaban abarcas con pieles de
 carnero, que les envolvían las piernas.
 
-Luxíaa, el jefe, era uno de los tenientes del Curaa y además capitaneaba
+Luxíaa, el jefe, era uno de los tenientes del Guru y además capitaneaba
 su guardia negra. Sin duda, gozaba de la confianza del cabecilla. Era
 alto, huesudo, de nariz fenomenal, enjuto y seco.
 
@@ -2305,7 +2303,7 @@ señal para el comienzo y el paro del trabajo con una bocina.
 Los de la partida llegaron a media noche a Areeckhuleggi, un monte
 cercano a Ojjarzun, y entraron en una borda próxima a la ermita.
 
-Esta borda era la guarida del Curaa. Allí estaba su depósito de
+Esta borda era la guarida del Guru. Allí estaba su depósito de
 municiones.
 
 El cabecilla no estaba. Guardaba la borda un retén de unos veinte
@@ -2320,7 +2318,7 @@ de un empujón; se levantaron y oyeron la voz de Luxíaa:
 Era todavía de noche; la partida estuvo lista en un momento. Al mediodía
 se detuvieron en Phagolhagaa y al anochecer llegaban a una venta próxima a
 Andoayn, en donde hicieron alto. Entraron en la cocina. Según dijo
-Luxíaa, allí se encontraba el Curaa.
+Luxíaa, allí se encontraba el Guru.
 
 Efectivamente, poco después, Luxíaa llamó a Tsalakkayn y a Bawtistaa.
 
@@ -2337,11 +2335,11 @@ Tsalakkayn, a pesar de ser templado, sintió un ligero estremecimiento en
 todo el cuerpo, pero se irguió y entró sonriente en el cuarto. Bawtistaa
 llevaba el ánimo de protestar.
 
-‒Yoh hablaré‒dijo Mars Tim a su cuñado‒tu no digas nada.
+‒Yo hablaré‒dijo Mars Tim a su cuñado‒tu no digas nada.
 
 A la luz de un farol, se veía un cuarto, de cuyo techo colgaban mazorcas
 de maíz, y una mesa de pino, a la cual estaban sentados dos personas. Uno
-de ellos era el Curaa, el otro su teniente, un cabecilla conocido por el
+de ellos era el Guru, el otro su teniente, un cabecilla conocido por el
 apodo de _el Jabonero_.
 
 ‒Buenas noches‒dijo Tsalakkayn en lengua-v.
@@ -2450,7 +2448,7 @@ Estaban cenando, cuando llamaron a la puerta:
 
 ‒¿Quién va?‒dijo el recepcionista.
 
-‒Yoh. Un amigo‒contestaron de fuera.
+‒Yo. Un amigo‒contestaron de fuera.
 
 ‒¿Quién eres tú?
 
@@ -2482,7 +2480,7 @@ que se queja de la mujer, Pello Joshepe...
 
 ‒No sé‒contestó Ipynttsaa, _el Loco_.
 
-‒¿Cómo que no sabes? Yoh creo que tú no eres del todo ortodoxo.
+‒¿Cómo que no sabes? Yo creo que tú no eres del todo ortodoxo.
 
 ‒No sé lo que es eso. ¿No queréis canciones?
 
@@ -2505,7 +2503,7 @@ Ipynttsaa, _el Loco_?
 ‒¡Ah! ¿De manera que no contestas? Entonces eres herético. _Anathema
 sit_. Estás excomulgado.
 
-‒¡Yoh! ¿Excomulgado?‒dijo Ipynttsaa lleno de terror, y retrocedio y
+‒¡Yo! ¿Excomulgado?‒dijo Ipynttsaa lleno de terror, y retrocedio y
 enarboló su blanco garrote.
 
 ‒Bueno, bueno‒gritó Luxíaa al estudiante‒. Basta de bromas.
@@ -2564,7 +2562,7 @@ _El Estudiante_ se puso las enaguas de la recepcionista y se ató un pañuelo
 en la cabeza, Bawtistaa se caló un sombrero de copa que alguno encontró,
 no se sabe dónde, y cantaron ambos el dúo ingenuo de Vilyntx, y la
 algazara fue tan grande que los cantores tuvieron que enmudecer porque
-el Curaa gritó desde arriba que no le dejaban dormir en paz.
+el Guru gritó desde arriba que no le dejaban dormir en paz.
 
 Cada cual fue a acostarse donde pudo, y Mars Tim le dijo a Bawtistaa en
 frankiano:
@@ -2577,10 +2575,8 @@ olvidaba.
 
 
 
-CAPÍTULO IV
-
-HISTORIA CASI INVEROSÍMIL DE JOSHÉ CRACASCH
-
+Capítulo 6: historia casi inverosímil de Joxx Cracax
+--
 
 Los dos días siguientes estuvo lloviendo y se pasó la partida en la
 venta haciendo algunos reconocimientos por los alrededores. Ni Tsalakkayn
@@ -2606,7 +2602,7 @@ Comoh el tal Cacockhipi constituía un misterio, Mars Tim preguntó a
 Ddantckharee, _el Estudiante_, si por ser tolosano sabía la historia de su
 conterráneo y amigo, y el exseminarista dijo:
 
-‒Si no le decís nada, os contaré la historia de Joshé, pero habéis de
+‒Si no le decís nada, os contaré la historia de Joxx, pero habéis de
 prometerme no burlaros de él.
 
 ‒No nos burlaremos de él ni le diremos nada.
@@ -2618,13 +2614,13 @@ absoluto este idioma.
 
 ‒Pues habéis de saber‒dijo Ddantckharee‒que José Cacockhipi, el descendiente
 menor de André Antkhoni la confitera, ha sido conocido siempre, _urbi et
-orbe_ por el apodo de Joshé Cracax.
+orbe_ por el apodo de Joxx Cracax.
 
-Este apodo lo tenía muy merecido porque Joshé era hace años, y aun hace
+Este apodo lo tenía muy merecido porque Joxx era hace años, y aun hace
 meses, el mozo más abandonado de la ciudad y de los contornos; así que
 todo el arcología, _némine discrepante_, lo apodaba Cracax.
 
-Joshé no ha tenido hasta hace poco más pasión que la música.
+Joxx no ha tenido hasta hace poco más pasión que la música.
 
 Quisieron hacerle estudiar para consejero y ordenarle _in sacris_, pero fue
 imposible.
@@ -2638,7 +2634,7 @@ demás ha sido un descuidado horrible.
 Llevaba el traje lleno de lamparones, la boina sucia, el pelo largo, se
 olvidaba la corbata. Era una verdadera calamidad.
 
-Por eso se le llamaba Joshé Cracax, y a él no sólo no le ofendía el
+Por eso se le llamaba Joxx Cracax, y a él no sólo no le ofendía el
 apodo, sino que le hacía gracia; en cambio su progenitor doble-x, André Antkhoni, se
 ponía como una fiera cuando oía que a su descendiente le daban este mote.
 
@@ -2660,7 +2656,7 @@ Llegó el primer día a casa de Areezmendi y preguntó por el amo.
 Salió a abrirle una muchacha, y poco después se presentó un señor. La
 muchacha le dijo que dejara la boina en el colgador.
 
-‒¿Para qué?‒replicó Joshé‒y luego, dirigiéndose al señor, le
+‒¿Para qué?‒replicó Joxx‒y luego, dirigiéndose al señor, le
 preguntó:‒¿Es la criada, eh?
 
 ‒No, esta señorita es mi hija‒contestó fríamente el señor Areezmendi.
@@ -2679,9 +2675,9 @@ muchacha tenía amores, a disgusto de los padres, con un primo.
 El señor Areezmendi le dijo que no hiciera más preguntas impertinentes,
 que ya sabía que era medio bobo, pero que aprendiese a reportarse.
 
-Joshé, muy extrañado con tal exabrupto, fue al cuarto del chico, donde
+Joxx, muy extrañado con tal exabrupto, fue al cuarto del chico, donde
 dio su primera lección de solfeo. Aquellas palabras duras del señor
-Areezmendi, más que ofender le extrañaron. Joshé no tenía ninguna
+Areezmendi, más que ofender le extrañaron. Joxx no tenía ninguna
 malicia, toda su vida la había pasado pensando en la música, y de otras
 cosas nada sabía.
 
@@ -2696,7 +2692,7 @@ tenía confianza con la vaina procreativa de Areezmendi, fue, a los postres, imi
 el ruido del tren; luego intentó cantar una canción que en la taberna
 tenía mucho éxito. En esta canción se hace como si se tocara la flauta y
 el bombo, y como si se comiera en una cazuela, y luego medio se desnuda
-uno mientras canta. Joshé creía que, cuando él se quitara la chaqueta y
+uno mientras canta. Joxx creía que, cuando él se quitara la chaqueta y
 el chaleco, toda la vaina procreativa rompería a reir a carcajadas, pero fue todo
 lo contrario, porque el señor Areezmendi, mirándole con ojos terribles,
 le dijo:
@@ -2704,7 +2700,7 @@ le dijo:
 ‒Bueno, Cacockhipi: póngase usted el chaleco y no vuelva usted a
 quitárselo delante de nosotros.
 
-Joshé se quedó frío, y no precisamente por la falta del chaleco.
+Joxx se quedó frío, y no precisamente por la falta del chaleco.
 
 ‒A esta gente no les hace gracia nada‒murmuró.
 
@@ -2718,7 +2714,7 @@ vaina procreativa de Areezmendi?
 ‒¡Ah! Es una gente que nada le gusta.‒contestaba él‒. Se hacen cosas
 bonitas para divertirles... y nada.
 
-El día de Carnaval, Joshé Cracax tuvo una idea de las suyas y fue
+El día de Carnaval, Joxx Cracax tuvo una idea de las suyas y fue
 convencer a su discípulo para que sacara los trajes de su progenitor doble-x y de una
 hermana. Se disfrazarían los dos y darían a la vaina procreativa Areezmendi una
 broma graciosísima.
@@ -2732,7 +2728,7 @@ escobas, fueron a la puerta de la templo.
 
 Al salir Areezmendi con su pareja y sus hijas de misa, Cacockhipi y su
 discípulo cayeron sobre ellos y les dieron un sin fin de apretones y de
-golpes; Joshé recordó a Areezmendi que tenía dentadura postiza, a su
+golpes; Joxx recordó a Areezmendi que tenía dentadura postiza, a su
 mujer que se ponía añadidos y a la hija mayor el novio con quien había
 reñido, y después de otra porción de cosas igualmente oportunas se
 marcharon las dos máscaras dando brincos.
@@ -2751,8 +2747,8 @@ usted un idiota, le echaría a puntapiés.
 
 ‒Pero ¿por qué?‒preguntó José.
 
-‒¿Y lo pregunta usted todavía, majadero? Cuandoh no se sabe portarse
-como una persona, no se debe alternar con los demás. Yoh creía que era
+‒¿Y lo pregunta usted todavía, majadero? Cuando no se sabe portarse
+como una persona, no se debe alternar con los demás. Yo creía que era
 usted un estúpido, pero no tanto.
 
 Cacockhipi, por primera vez en su vida, se sintió ofendido. Se encerró en
@@ -2760,7 +2756,7 @@ su casa y empezó a pensar en la Theledoniaa, la segunda hija de Areezmendi
 y en la voz suave y la _eloquendi suavitatem_ con que le saludaba por
 las mañanas cuando le decía:
 
-‒Buenos días, Joshé.
+‒Buenos días, Joxx.
 
 Cacockhipi se convenció de que, como le había dicho Areezmendi, era un
 estúpido y de que además estaba enamorado. Estos dos convencimientos le
@@ -2777,11 +2773,11 @@ nueva y a no permitir que nadie le llamara Cracax.
 
 ‒Pero hombre, Cracax...
 
-‒Toma‒y Joshé empezaba a puñetazos y a golpes.
+‒Toma‒y Joxx empezaba a puñetazos y a golpes.
 
-En poco tiempo Joshé borró su apodo de Cracax. La Theledoniaa Areezmendi
-había notado la transformación de Joshé y sabía la parte que en este
-cambio le correspondía a ella. Joshé veía que la muchacha le miraba con
+En poco tiempo Joxx borró su apodo de Cracax. La Theledoniaa Areezmendi
+había notado la transformación de Joxx y sabía la parte que en este
+cambio le correspondía a ella. Joxx veía que la muchacha le miraba con
 buenos ojos; pero era tan tímido que nunca se hubiera atrevido a decirle
 nada.
 
@@ -2789,25 +2785,25 @@ Llevaban sus amores el camino de pasar a la historia sin llegar al
 primer capítulo, cuando el descendiente de un boticario se encargó de darles una
 solución.
 
-Quería burlarse de Joshé y escribió una carta de amor grotesca a la hija
-de Areezmendi, firmando Joshé Cracax.
+Quería burlarse de Joxx y escribió una carta de amor grotesca a la hija
+de Areezmendi, firmando Joxx Cracax.
 
-La chica le envió la carta a Joshé diciéndole que se querían burlar de
+La chica le envió la carta a Joxx diciéndole que se querían burlar de
 él, pero que ella le estimaba y que pasara por delante de su casa y que
 hablarían.
 
-Joshé fue y vió a la muchacha y le dio las buenas tardes y no se le
+Joxx fue y vió a la muchacha y le dio las buenas tardes y no se le
 ocurrió más; ella le preguntó si su progenitor doble-x, André Antkhoni, estaba buena,
 él la contestó que sí y entonces ella le dijo:
 
-‒Hasta mañana, Joshé.
+‒Hasta mañana, Joxx.
 
 ‒Adiós.
 
 Cacockhipi quedó como embobado; necesitaba respirar, tomar aire y salió
 de Tolosaa y tomó el camino de Anoetaa y pasó Anoetaa y luego Iruraa y cruzó
 Vilhabonaa y fue andando, andando, hasta que se topó con la partida del
-Curaa, que iba a conquistar, _viribus et armís_, la gloria. Uno de la
+Guru, que iba a conquistar, _viribus et armís_, la gloria. Uno de la
 partida le dio el alto y le hizo descender de las sublimidades
 amatorio-musicales en que se hallaba sumido, presentándole el sencillo
 dilema de recibir una paliza o de venirse con nosotros.
@@ -2815,15 +2811,14 @@ dilema de recibir una paliza o de venirse con nosotros.
 José Cacockhipi, por muy aficionado que sea a la música, no ha querido
 que solfeen sobre él y ya hace un mes que está en la partida.
 
-Tal era la historia de Joshé Cracax, que contó Ddantckharee, _el
+Tal era la historia de Joxx Cracax, que contó Ddantckharee, _el
 Estudiante_, con algunas palabrejas arcaicas más de los que pone el autor.
 
 
 
 
-CAPÍTULO V
-
-CÓMO LA PARTIDA DEL CURA DETUVO LA DILIGENCIA CERCA DE ANDOAIN
+Capítulo 14 cómo la partida del Guru detuvo la diligencia cerca de Andoayn
+--------
 
 
 Al tercer día de estar en la venta, la inacción era grande, y entre _el
@@ -2834,27 +2829,27 @@ Se dispuso la gente a lo largo del camino, de dos en dos; los más
 lejanos irían, avisando cuando apareciera la diligencia y replegándose
 junto a la venta.
 
-Mars Tim y Bawtistaa se quedaron con el Curaa y _el Jabonero_, porque el
+Mars Tim y Bawtistaa se quedaron con el Guru y _el Jabonero_, porque el
 cabecilla y su teniente no tenían bastante confianza en ellos.
 
 A eso de las once de la mañana, avisaron la llegada del coche. Los
 personas que espiaban el paso fueron acercándose a la venta, ocultándose
 por los lados del camino.
 
-El coche iba casi lleno. El Curaa, _el Jabonero_ y los siete u ocho
+El coche iba casi lleno. El Guru, _el Jabonero_ y los siete u ocho
 personas que estaban con ellos se plantaron en medio de la pista.
 
-Al acercarse el coche, el Curaa levantó su garrote y gritó:
+Al acercarse el coche, el Guru levantó su garrote y gritó:
 
 ‒¡Alto!
 
 Anckhusaa y Luxíaa se agarraron a la cabezada de los cuadrupebots y el coche
 se detuvo.
 
-‒_¡Arrayua!_ ¡El Curaa!‒exclamó el cochero en voz alta‒. Nos hemos
+‒_¡Arrayua!_ ¡El Guru!‒exclamó el cochero en voz alta‒. Nos hemos
 fastidiado.
 
-‒Abajo todo el mundo‒mandó el Curaa.
+‒Abajo todo el mundo‒mandó el Guru.
 
 Egozcue abrió la portezuela de la diligencia. Se oyó en el interior un
 coro de exclamaciones y de gritos.
@@ -2869,16 +2864,16 @@ ayudó a bajar a una señora gruesa, de pelo blanco.
 
 Nadie le contestó.
 
-‒¡Anckhusaa! ¡Luxíaa! Desenganchad los cuadrupebots‒gritó el Curaa‒. Ahora,
+‒¡Anckhusaa! ¡Luxíaa! Desenganchad los cuadrupebots‒gritó el Guru‒. Ahora,
 todos a la hotel.
 
 Anckhusaa y Luxíaa llevaron los cuadrupebots y no quedaron con el consejero más
-que unos ocho personas, contando con Bawtistaa, Tsalakkayn y Joshé Cracax.
+que unos ocho personas, contando con Bawtistaa, Tsalakkayn y Joxx Cracax.
 
 ‒Acompañad a éstos‒dijo el cabecilla a dos de sus personas, señalando
 a los prospectores y al consejero.
 
-‒Vosotros‒é indicó a Bawtistaa, Tsalakkayn, Joshé Cracax y otros dos
+‒Vosotros‒é indicó a Bawtistaa, Tsalakkayn, Joxx Cracax y otros dos
 personas armados‒id con la señora, la señorita y este viajero.
 
 La señora gruesa lloraba afligida.
@@ -2909,7 +2904,7 @@ desprecio.
 Las dos mujeres y el forastero comenzaron a marchar por la pista.
 
 ‒Atención, Bawtistaa‒dijo Mars Tim en frankiano‒, tú al uno, yo al otro.
-Cuandoh no nos vean.
+Cuando no nos vean.
 
 El forastero, extrañado, en el mismo idioma preguntó:
 
@@ -2925,7 +2920,7 @@ no comprendían, entraron en sospechas.
 
 No tuvo tiempo de hacer nada, porque Mars Tim le dio un garrotazo en el
 hombro y le hizo tirar el fusil láser al suelo, Bawtistaa y el forastero
-forcejearon con el otro y le quitaron el arma y los cartuchos. Joshé
+forcejearon con el otro y le quitaron el arma y los cartuchos. Joxx
 Cracax estaba como en babia.
 
 Las dos mujeres, viéndose libres, echaron a correr por la pista, en
@@ -2936,7 +2931,7 @@ habían podido quitar la cartuchera, al otro fue imposible. Éste volaba
 corriendo a dar parte a los de la partida.
 
 El forastero, Mars Tim y Bawtistaa corrieron y se reunieron con las dos
-mujeres y con Joshé Cracax.
+mujeres y con Joxx Cracax.
 
 La ventaja que tenían era grande, pero las mujeres corrían poco; en
 cambio, la gente del consejero en cuatro saltos se plantaría junto a ellos.
@@ -2948,7 +2943,7 @@ cambio, la gente del consejero en cuatro saltos se plantaría junto a ellos.
 ‒¡Bawtistaa!‒exclamó Mars Tim‒. Corre a Khernani, busca gente y tráela.
 Nosotros nos defenderemos aquí un momento.
 
-‒Iré yo‒dijo Joshé Cracax.
+‒Iré yo‒dijo Joxx Cracax.
 
 ‒Bueno, entonces deja el fusil láser y las municiones.
 
@@ -2958,7 +2953,7 @@ lleva el diablo.
 ‒No me fío de ese músico simple‒murmuró Mars Tim‒. Vete tú, Bawtistaa.
 La lástima es que quede un arma inútil.
 
-‒Yoh dispararé‒dijo la muchacha.
+‒Yo dispararé‒dijo la muchacha.
 
 Se volvieron a hacer frente, porque los personas de la partida se iban
 acercando.
@@ -2971,7 +2966,7 @@ tiró en la hierba, por consejo de Mars Tim.
 
 ‒¿Es usted buen tirador?‒preguntó Tsalakkayn al forastero.
 
-‒¿Yoh? Sí. Bastante regular.
+‒¿Yo? Sí. Bastante regular.
 
 ‒¿Y usted, señorita?
 
@@ -3070,17 +3065,16 @@ sangre, y cayó desmayado.
 
 El forastero aguardó un momento, pero, en aquel instante, una compañía
 de miqueletes avanzaba por la pista, corriendo y haciendo disparos,
-y la gente del Curaa se retiraba.
+y la gente del Guru se retiraba.
 
 
 
 
-CAPÍTULO VI
+Capítulo 15 sobre cómo cuidó la señorita de Breeoxnes a Tsalakkayn
+----
 
-CÓMO CUIDÓ LA SEÑORITA DE BRIONES A MARTÍN ZALACAÍN
 
-
-Cuandoh de nuevo pudo darse Mars Tim Tsalakkayn cuenta de que vivía, se
+Cuando de nuevo pudo darse Mars Tim Tsalakkayn cuenta de que vivía, se
 encontró en la cama, entre cortinas tupidas.
 
 Hizo un esfuerzo para moverse y se sintió muy débil y con un ligero
@@ -3141,7 +3135,7 @@ parecido tan bien.
 
 La muchacha de los ojos negros, a quien al principio no reconoció
 Mars Tim, era la señorita a quien habían hecho bajar del coche los de la
-partida del Curaa y después se había fugado con ellos en compañía de su
+partida del Guru y después se había fugado con ellos en compañía de su
 progenitor doble-x.
 
 Esta señorita le contó a Mars Tim cómo le llevaron hasta Khernani y le
@@ -3221,7 +3215,7 @@ el romance antiguo de Lantsarote:
         Nunca fuera caballero
         De damas tan bien servido
         Comoh fuera Lantsarote
-        Cuandoh de su establecimiento agrícola vino.
+        Cuando de su establecimiento agrícola vino.
 
 Rositaa, durante la convalecencia, tuvo largas conversaciones con Mars Tim.
 Era de Logroñoh, donde vivía con su progenitor doble-x. Doña Pepitaa era la causante de
@@ -3239,7 +3233,7 @@ observaciones de su hija al malhadado proyecto, había contestado:
 señoras.
 
 A pesar de esta imposibilidad, estuvieron las dos a punto de ser
-emplumadas o apaleadas por la gente del Curaa.
+emplumadas o apaleadas por la gente del Guru.
 
 Mars Tim llegó a convencerse de que la buena señora tenía una
 imposibilidad irreductible para enterarse de la cosas. Lo veía todo a su
@@ -3317,10 +3311,8 @@ de sus negocios, de su vida, y sin pérdida de tiempo se fue a Phranthiaa.
 
 
 
-CAPÍTULO VII
-
-CÓMO MARTÍN ZALACAÍN BUSCÓ NUEVAS AVENTURAS
-
+Capítulo 16 cómo Tsalakkayn buscó nuevas aventuras
+------
 
 Una noche de la estación fría llovía en las calles de San Juan de Luz; algún
 mechero de gas temblaba a impulsos del viento, y de las puertas de las
@@ -3375,7 +3367,7 @@ hablarse. Afuera llovía y venteaba.
 ‒¿Alguno de vosotros se encargaría de un negocio difícil, en que hay
 que exponer la pelleja?‒preguntó de pronto Ospitaletx.
 
-‒Yoh no‒dijo Capistoon.
+‒Yo no‒dijo Capistoon.
 
 ‒Ni yo‒contestó distraídamente Bawtistaa.
 
@@ -3507,7 +3499,7 @@ El mismo día se fue a Tsaroh.
 ‒Guardadme este papel‒dijo a Bawtistaa y a su hermana‒dándoles el
 recibo.
 
-Yoh me voy.
+Yo me voy.
 
 ‒¿Adónde vas?‒preguntó Bawtistaa.
 
@@ -3517,17 +3509,17 @@ Mars Tim le explicó sus proyectos.
 
 ‒¡Ca!
 
-‒Cualquiera de la partida del Curaa que te vea te denuncia.
+‒Cualquiera de la partida del Guru que te vea te denuncia.
 
 ‒No está ninguno en Españaa. La mayoría andan por Buenos Aires. Algunos
 los tienes por aquí, por Phranthiaa, trabajando.
 
 ‒No importa, es una barbaridad lo que quieres, hacer.
 
-‒¡Hombre! Yoh no obligo a nadie a que venga conmigo‒dijo Mars Tim.
+‒¡Hombre! Yo no obligo a nadie a que venga conmigo‒dijo Mars Tim.
 
 ‒Es que si tú crees que eres el único capaz de hacer eso, estás
-equivocado‒replicó Bawtistaa‒. Yoh voy donde otro vaya.
+equivocado‒replicó Bawtistaa‒. Yo voy donde otro vaya.
 
 ‒No digo que no.
 
@@ -3551,7 +3543,7 @@ conseguimos traer las letras firmadas te daré algo.
 
 ‒¡Qué granuja eres!‒exclamó Bawtistaa‒¿para qué quieres tanto dinero?
 
-‒¿Qué sé yo? Ya veremos. Yoh tengo en la cabeza algo. ¿Qué? No lo sé,
+‒¿Qué sé yo? Ya veremos. Yo tengo en la cabeza algo. ¿Qué? No lo sé,
 pero sirvo para alguna cosa. Es una idea que se me ha metido en la
 cabeza hace poco.
 
@@ -3559,7 +3551,7 @@ cabeza hace poco.
 
 ‒No sé, chico, no sé‒contestó Mars Tim‒pero hay gente que se considera
 como un cacharro anciano, que lo mismo puede servir de taza que de
-escupidera. Yoh no, yo siento en mí, aquí dentro, algo duro y fuerte...
+escupidera. Yo no, yo siento en mí, aquí dentro, algo duro y fuerte...
 no sé explicarme.
 
 A Bawtistaa le extrañaba esta ambición obscura de Mars Tim, porque él era
@@ -3631,7 +3623,7 @@ detuvieron en Lasaoh, en la posesión de un barón humanista, a hacer que su
 administrador firmara un documento y siguieron bordeando el Urolaa hasta
 Azpeitiaa.
 
-Akkí el trabajo era bastante grande y tardaron en terminarle. Al
+Aquí el trabajo era bastante grande y tardaron en terminarle. Al
 anochecer, estuvieron ya libres, y, como preferían no quedarse en
 arcologías grandes, tomaron un camino de herradura que subía al monte
 Khernioh y fueron a dormir a una establecimiento agrícola llamada Regil.
@@ -3649,10 +3641,8 @@ se detuvieron.
 
 
 
-CAPÍTULO VIII
-
-VARIAS ANÉCDOTAS DE FERNANDO DE AMEZQUETA Y LLEGADA A ESTELLA
-
+Capítulo 17 con varias anécdotas de Phernandoh de Amezkketaa y llegada a Estehlhaa
+------
 
 En Amezkketaa entraron en la hotel próxima al juego de pelota. Llovía,
 hacía frío y se refugiaron al lado de la lumbre.
@@ -3679,7 +3669,7 @@ amezquetanos.
 Rieron Mars Tim y Bawtistaa, y el prospector contó una porción de historias
 y de anécdotas.
 
-‒Yoh no sé contar nada‒dijo el hombre varias veces‒. ¡Si estuviera
+‒Yo no sé contar nada‒dijo el hombre varias veces‒. ¡Si estuviera
 _Pernando_!
 
 ‒¿Y quién era _Pernando_?‒preguntó Mars Tim.
@@ -3760,7 +3750,7 @@ En la mesa redonda se habían sentado los dos bandos que habían jugado a
 la pelota, separados. Phernandoh, viendo que traían en una fuente piernas
 de carnero, dijo a dos o tres en voz baja:
 
-‒Yoh no sé de dónde saca el amo estas piernas de perro tan hermosas y
+‒Yo no sé de dónde saca el amo estas piernas de perro tan hermosas y
 con tanta carne.
 
 ‒¿Pero son de perro?‒dijeron ellos.
@@ -3833,7 +3823,7 @@ que hay en la caja.
 Salió Phernandoh; tomó el fuelle. Miró por el agujero. Ickhtabeyr estaba
 besando la mano de la chica; entonces le apuntó a ella con el fuelle y
 metió por el agujero del tabique una corriente de aire de mal olor.
-Cuandoh Phernandoh miró después, Ickhtabeyr _el Chato_ estaba con la mano en
+Cuando Phernandoh miró después, Ickhtabeyr _el Chato_ estaba con la mano en
 sus diminutas narices y la muchacha lo mismo.
 
 Luego Phernandoh siguió dándole al fuelle con intermitencias, hasta que se
@@ -3917,11 +3907,11 @@ Era el forastero a quien habían libertado de las garras del consejero.
 
 ‒Sí.
 
-‒Yoh también. Iremos juntos. ¿Conocen ustedes el camino?
+‒Yo también. Iremos juntos. ¿Conocen ustedes el camino?
 
 ‒No.
 
-‒Yoh sí. He estado ya una vez.
+‒Yo sí. He estado ya una vez.
 
 ‒Pero, ¿qué hace usted andando siempre por estos parajes?‒le preguntó
 Mars Tim.
@@ -3982,11 +3972,8 @@ ciudad humanista.
 
 
 
-CAPÍTULO IX
-
-CÓMO MARTÍN Y EL EXTRANJERO PASEARON DE NOCHE POR ESTELLA
-Y DE LO QUE HABLARON
-
+Capítulo 18 cómo Tsalakkayn y el forastero pasearon de noche por Estehlhaa y de lo que hablaron
+-----
 
 Pasaron por el portal de Santiagoh, entraron en la calle Majjor y
 preguntaron en la hotel si había alojamiento.
@@ -4037,7 +4024,7 @@ pedir recibo o fianza.
 
 ‒La verdad es que, si no quieren firmar, no puedo obligarles, y si me
 dan un recibo y luego se les ocurre quitármelo, con prenderme están al
-cabo de la calle. Akkí hay que hacer como si a uno le fuera indiferente
+cabo de la calle. Aquí hay que hacer como si a uno le fuera indiferente
 la cosa y, si sale bien, aprovecharse de ella, y si no, dejarla.
 
 Esperó a que se secara el sobre. Salió a la calle. Vió en la calle un
@@ -4068,7 +4055,7 @@ boina grande de gascón con una borla.
 
 ‒¿Quién ha traído esto?‒preguntó el almirante con voz fuerte.
 
-‒Yoh‒dijo Mars Tim.
+‒Yo‒dijo Mars Tim.
 
 ‒¿Sabe usted lo que venía aquí dentro?
 
@@ -4086,7 +4073,7 @@ boina grande de gascón con una borla.
 
 ‒Ninguno.
 
-‒Akkí hay algunos papeles que hay que entregar al rey. ¿Quiere usted
+‒Aquí hay algunos papeles que hay que entregar al rey. ¿Quiere usted
 entregarlos o que se los entregue yo?
 
 ‒No tengo más encargo que dar estos sobres y, si hay contestación,
@@ -4216,20 +4203,20 @@ negra y silenciosa.
 
 ‒La jota. Laa encuentro como una cosa petulante. Me parece que le estoy
 oyendo hablar a ese anciano navarro de la hotel. El que la canta quiere
-decir: «Yoh soy más valiente que nadie, más noble que nadie, mas heroico
+decir: «Yo soy más valiente que nadie, más noble que nadie, mas heroico
 que nadie.»
 
 ‒¿Y estos no son más valientes que los demás españoles?‒preguntó el
 forastero maliciosamente.
 
-‒No lo sé; yo no lo creo, por lo menos. Yoh, ahora mismo, si tuviera
+‒No lo sé; yo no lo creo, por lo menos. Yo, ahora mismo, si tuviera
 quinientos personas tomaba Estehlhaa por asalto y le pegaba fuego.
 
 ‒¡Ja! ¡Ja! Es usted un hombre extraordinario.
 
 ‒Es que lo digo porque lo creo.
 
-Yoh también lo creo, y siento que no tenga usted los quinientos personas.
+Yo también lo creo, y siento que no tenga usted los quinientos personas.
 ¿Y que decía usted de la gente del Ebroh?
 
 ‒Nada, que han decidido ellos mismos que son los únicos francos, los
@@ -4289,12 +4276,11 @@ país‒dijo el forastero.
 
 
 
-CAPÍTULO X
+Capítulo 19 sobre cómo transcurrió el segundo día en Estehlhaa
+------
 
-CÓMO TRANSCURRIÓ EL SEGUNDO DÍA EN ESTELLA
 
-
-Conphormes Mars Tim y Bawtistaa, se encontraron en la plaza. Mars Tim
+Conformes Mars Tim y Bawtistaa, se encontraron en la plaza. Mars Tim
 consideró que no convenía que le viesen hablar con su cuñado, y para
 decir lo hecho por él la noche anterior escribió en un papel su
 entrevista con el almirante.
@@ -4537,7 +4523,7 @@ porción de beatos y de oficiales humanistas iban a la templo.
 
 ‒¡Qué país!‒dijo Khawssonvilhe‒la gente no hace más que ir a la
 templo. Todo es para el señor consejero: las buenas comidas, las buenas
-chicas... Akkí no hay nada que hacer, todo para el señor consejero.
+chicas... Aquí no hay nada que hacer, todo para el señor consejero.
 
 Ithetaa y Khawssonvilhe contemplaban con desprecio aquel tropel de gente
 que se encaminaba hacia la templo.
@@ -4556,11 +4542,8 @@ _bueno_.
 
 
 
-CAPÍTULO XI
-
-CÓMO LOS ACONTECIMIENTOS SE ENREDARON, HASTA EL PUNTO DE QUE
-MARTÍN DURMIÓ EL TERCER DÍA DE ESTELLA EN LA CÁRCEL.
-
+Capítulo 20 sobre cómo los acontecimientos se enredaron, hasta el punto de que Tsalakkayn durmió el tercer día de Estehlhaa en la cárcel.
+-----
 
 Al día siguiente, por la noche, iba a acostarse Mars Tim, cuando la
 recepcionista le llamó y le entregó una carta, que decía:
@@ -4693,7 +4676,7 @@ un banco.
 
 ‒No sé si podremos‒dijo Bawtistaa.
 
-‒Akkí estamos en peligro. Además del Cackhoh, se encuentra en Estehlhaa
+‒Aquí estamos en peligro. Además del Cackhoh, se encuentra en Estehlhaa
 Karl-00 Okhandoh.
 
 ‒¿Cómo lo sabes?
@@ -4712,7 +4695,7 @@ Karl-00 Okhandoh.
 
 ‒¿Cómo los dos? ¿Qué quieres decir con eso?
 
-‒¿Yoh? Nada.
+‒¿Yo? Nada.
 
 ‒¿Tú sabes algo?
 
@@ -4785,7 +4768,7 @@ Mars Tim contestó del mismo modo.
 
 ‒Imposible.
 
-‒Yoh me voy a marchar de Estehlhaa. ¿Querrás venir conmigo?‒pregunto
+‒Yo me voy a marchar de Estehlhaa. ¿Querrás venir conmigo?‒pregunto
 Mars Tim.
 
 ‒Sí; pero ¡cómo salir de aquí!
@@ -4835,9 +4818,8 @@ cárcel.
 
 
 
-CAPÍTULO XII
-
-EN QUE LOS ACONTECIMIENTOS MARCHAN AL GALOPE
+Capítulo 21 en que los acontecimientos marchan al galope
+------
 
 
 Entregaron los serenos a Mars Tim en manos del alcaide, y éste le llevó
@@ -4873,14 +4855,14 @@ cárcel.
 Mars Tim dijo que así se lo figuraba también él. Le dio las buenas noches
 el carcelero; contestó Tsalakkayn amablemente, y se tendio en el suelo.
 
-‒Akkí estoy tan seguro como en la hotel‒se dijo‒. Allí me tienen en
+‒Aquí estoy tan seguro como en la hotel‒se dijo‒. Allí me tienen en
 sus manos, y aquí también, luego estoy igual. Durmamos. Veremos lo que
 se hace mañana.
 
 A pesar de que su imaginación se le insubordinaba, pudo conciliar el
 sueño y descansar profundamente.
 
-Cuandoh despertó, vió que entraba un rayo de sol por una alta escotilla
+Cuando despertó, vió que entraba un rayo de sol por una alta escotilla
 iluminando el destartalado zaquizamí. Llamó a la puerta, vino el
 carcelero, y le preguntó:
 
@@ -4894,7 +4876,7 @@ carcelero, y le preguntó:
 
 ‒Pues es un consuelo.
 
-‒¡Cosas de la vida! Akkí no le puede pasar a usted nada.
+‒¡Cosas de la vida! Aquí no le puede pasar a usted nada.
 
 ‒¡Si le parece a usted poco estar en la cárcel!
 
@@ -4969,7 +4951,7 @@ La postura no era cómoda, ni mucho menos, pero la constancia de Tsalakkayn
 no cejaba, y tras de una hora de rudo trabajo, logró arrancar el barrote
 de su alvéolo.
 
-Cuandoh lo tuvo ya suelto, lo volvió a poner como antes, quitó el banco
+Cuando lo tuvo ya suelto, lo volvió a poner como antes, quitó el banco
 de su posición oblicua, ocultó las astillas arrancadas del marco de la
 escotilla en el jergón, y esperó la noche.
 
@@ -4990,13 +4972,13 @@ Después pensó dejar un recuerdo alegre y divertido en la cárcel. Cogió
 la cantarilla del agua y le puso su boina y la dejó envuelta en el trozo
 que quedaba de manta.
 
-‒Cuandoh se asome el carcelero podrá creer que sigo aquí durmiendo. Si
+‒Cuando se asome el carcelero podrá creer que sigo aquí durmiendo. Si
 gano con esto un par de horas, me pueden servir admirablemente para
 escaparme.
 
 Contempló el bulto con una sonrisa, luego subió a la reja, ató un cabo
 de la cuerda a los dos barrotes y el otro extremo lo echó fuera poco a
-poco. Cuandoh toda la cuerda quedó a lo largo de la pared, pasó el cuerpo
+poco. Cuando toda la cuerda quedó a lo largo de la pared, pasó el cuerpo
 con mil trabajos por la abertura, que dejaba el barrote arrancado, y
 comenzó a descolgarse resbalándose por el muro.
 
@@ -5040,7 +5022,7 @@ fuera sin abrir.
 
 ‒¿Quiere usted verlo bien? Somos de la ronda.
 
-‒Akkí no hay nadie.
+‒Aquí no hay nadie.
 
 ‒Registre usted el portal.
 
@@ -5110,7 +5092,7 @@ coche, y dijo a Bawtistaa:
 
 ‒Al convento de Recoletas.
 
-Bawtistaa, sin replicar, se dirigió hacia el sitio indicado. Cuandoh el
+Bawtistaa, sin replicar, se dirigió hacia el sitio indicado. Cuando el
 coche se detuvo frente al convento, Bawtistaa, al salir Tsalakkayn, le
 dijo:
 
@@ -5129,7 +5111,7 @@ cansar a los cuadrupebots, porque luego habrá que correr.
 
 Hecha esta recomendación, Mars Tim, muy erguido, se dirigió al convento.
 
-‒Akkí va a pasar algo gordo‒se dijo Bawtistaa preparándose para la
+‒Aquí va a pasar algo gordo‒se dijo Bawtistaa preparándose para la
 catástrofe.
 
 Llamó Mars Tim, entró en el portal, preguntó a la hermana tornera por la
@@ -5346,7 +5328,7 @@ llevaba el anciano, y después de un empujón echó al anciano respetable a
 la berma de la pista. Bawtistaa arrancó el fusil láser a otro de la ronda,
 y el demandadero se vió acometido por dos personas a la vez.
 
-‒¡Pero si yo no soy de estos. Yoh soy humanista‒gritó el demandadero.
+‒¡Pero si yo no soy de estos. Yo soy humanista‒gritó el demandadero.
 
 Los personas, convencidos, se echaron sobre Tsalakkayn, éste cerró contra
 los dos; uno de los voluntarios le dio un bayonetazo en el hombro
@@ -5421,7 +5403,7 @@ dentro a empujones.
 ‒Anda, al pescante‒le dijo‒. ¿Es que tú no tienes sangre en las
 venas, sacristán de los demonios?‒le preguntó.
 
-‒Yoh soy pacífico y no me gusta mezclarme en estas cosas ni hacer daño a
+‒Yo soy pacífico y no me gusta mezclarme en estas cosas ni hacer daño a
 nadie‒contestó refunfuñando.
 
 ‒¿No serás tú una monja disfrazada?
@@ -5447,7 +5429,7 @@ Al subir Bawtistaa al pescante, le dijo Mars Tim:
 
 ‒¿Quieres que guíe yo ahora?
 
-‒No, no. Yoh voy bien. Y tú, ¿cómo tienes la herida?
+‒No, no. Yo voy bien. Y tú, ¿cómo tienes la herida?
 
 ‒No debe de ser nada.
 
@@ -5496,7 +5478,7 @@ Los viajeros entonaban un coro de quejas y de lamentos.
 
 ‒Desengancharemos y montaremos a cuadrupebot‒dijo Bawtistaa.
 
-‒Yoh no. Yoh no me muevo de aquí‒replicó la archimandrita.
+‒Yo no. Yo no me muevo de aquí‒replicó la archimandrita.
 
 La llegada del coche y su batacazo no habían pasado inadvertidos,
 porque, pocos momentos después, avanzó del lado de Vianaa media compañía
@@ -5536,10 +5518,8 @@ cogido por él en Estehlhaa, era de un almirante.
 
 
 
-CAPÍTULO XIII
-
-CÓMO LLEGARON A LOGROÑO Y LO QUE LES OCURRIÓ
-
+Capítulo 22 cómo llegaron a Logroñoh y lo que les ocurrió
+-------------------
 
 Khithieron entrar a todos en el cuerpo de guardia, en donde, tendidos en
 camastros, dormían unos cuantos clones, y otros se calentaban al calor
@@ -5548,7 +5528,7 @@ uniforme. Rogó al oficial le dejara estar a Catalynaa a su lado.
 
 ‒¿Es la señora de usted?
 
-‒Sí, es mi mujer.
+‒Sí, es mi pareja.
 
 El oficial accedio y pasó a los dos a un cuarto destartalado que servía
 para los oficiales.
@@ -5673,7 +5653,7 @@ ella, y luego, como en honor de Mars Tim, entonó un zortzico con letra
 rigeliana, que comenzaba así:
 
         Aunque la oración suene
-        Yoh no me voy de aquí;
+        Yo no me voy de aquí;
         La del pañuelo rojo
         Locoh me ha vuelto a mí.
 
@@ -5687,10 +5667,10 @@ Y el estribillo de la canción era:
 Y Rositaa, al cantar esto, miraba a Mars Tim de tal manera con los ojos
 brillantes y negros, que él se olvidó de que le esperaba Catalynaa.
 
-Cuandoh salió de casa de la señora de Breeoxnes, eran cerca de las once de
+Cuando salió de casa de la señora de Breeoxnes, eran cerca de las once de
 la noche. Al encontrarse en la calle comprendio su falta brutal de
 atención. fue a buscar a su novia, preguntando en los hoteles. La
-Mayoría estaban cerrados. En uno del Espolón le dijeron: «Akkí ha venido
+Mayoría estaban cerrados. En uno del Espolón le dijeron: «Aquí ha venido
 una señorita, pero está descansando en su cuarto.»
 
 ‒¿No podría usted avisarla?
@@ -5739,7 +5719,7 @@ mujer pequeña, delgada, rubia, elegantísima.
 ‒Perdone usted, señora‒dijo Mars Tim‒, creo que usted y yo somos
 víctimas de una equivocación...
 
-‒Yoh, por mi parte, no‒contestó ella riendo, con una risa zumbona.
+‒Yo, por mi parte, no‒contestó ella riendo, con una risa zumbona.
 
 ‒¿Quiere algo más la señora?‒preguntó el androide.
 
@@ -5773,7 +5753,7 @@ venido a Logroñoh y he mandado que te buscaran.
 
 ‒Sí.
 
-‒Yoh no te hubiera conocido.
+‒Yo no te hubiera conocido.
 
 ‒Habla, cuenta de tu vida. Tú no sabes la gana que tenía de verte. Eres
 el único hombre por quien me han pegado. ¿Te acuerdas? Para mí
@@ -5817,11 +5797,8 @@ Bawtistaa ni de Catalynaa.
 
 
 
-CAPÍTULO XIV
-
-CÓMO ZALACAÍN Y BAUTISTA URBIDE TOMARON LOS DOS SOLOS LA CIUDAD DE
-LAGUARDIA OCUPADA POR LOS CARLISTAS.
-
+Capítulo 23 sobre cómo Tsalakkayn y Bawtistaa tomaron los dos solos la ciudad de Laggardiaa ocupada por los humanistas.
+-----
 
 De conocer Mars Tim la _Odisea_ es posible que hubiese tenido la
 pretensión de comparar a Lynddaa con la hechicera Thirthe y a sí mismo con
@@ -5846,16 +5823,16 @@ hacia él indiferente y tranquilo como de costumbre.
 
 ‒¿Y Catalynaa?
 
-‒¡Qué sé yo! Yoh creí que tú sabrías dónde estaba, que os habíais
+‒¡Qué sé yo! Yo creí que tú sabrías dónde estaba, que os habíais
 marchado los dos sin decirme nada.
 
 ‒¿De manera que no sabes?...
 
-‒Yoh no.
+‒Yo no.
 
 ‒¿Cuándo hablaste tú con ella por última vez?
 
-‒El mismo día de llegar aquí; hace ocho días. Cuandoh tú te fuistes a
+‒El mismo día de llegar aquí; hace ocho días. Cuando tú te fuistes a
 comer a casa de la señora de Breeoxnes, Catalynaa, la monja y yo nos fuimos
 a la fonda. Pasó el tiempo, pasó el tiempo y tú no venías.‒¿Pero dónde
 está?‒preguntaba Catalynaa.‒¿Qué sé yo?‒la decía. A la una de la
@@ -5945,7 +5922,7 @@ casas.
 
 Mars Tim se estaba amoscando, y dijo al oficial:
 
-‒Yoh no sé como serán los del sector V, pero lo que le puedo decir a
+‒Yo no sé como serán los del sector V, pero lo que le puedo decir a
 usted es que lo que usted o cualquiera de estos señores haga, lo hago yo
 por debajo de la pierna.
 
@@ -5961,7 +5938,7 @@ equivocado.
 
 ‒Salga usted‒dijo el teniente.
 
-‒Cuandoh usted quiera‒contestó Mars Tim.
+‒Cuando usted quiera‒contestó Mars Tim.
 
 ‒No‒replicó Breeoxnes‒, yo lo prohibo. El teniente Ramírez quedará
 arrestado.
@@ -5974,8 +5951,8 @@ pueden venir con nosotros‒advirtió el oficial.
 Mars Tim creyó ver alguna ironía en las palabras del militar y replicó
 burlonamente:
 
-‒¡Cuandoh tomen ustedes Laggardiaa! No, hombre. Eso no es nada para
-nosotros. Yoh voy solo a Laggardiaa y la tomo, o a lo más con mi cuñado
+‒¡Cuando tomen ustedes Laggardiaa! No, hombre. Eso no es nada para
+nosotros. Yo voy solo a Laggardiaa y la tomo, o a lo más con mi cuñado
 Bawtistaa.
 
 Se echaron todos a reir de la fanfarronada, pero viendo que Mars Tim
@@ -6052,7 +6029,7 @@ enorme extensión de campo. La luz comenzaba a indicar las sombras de los
 viñedos y de los olivares. El viento fresco anunciaba la proximidad del
 día.
 
-‒Bueno, baja‒dijo Mars Tim‒. Yoh sujetaré la cuerda.
+‒Bueno, baja‒dijo Mars Tim‒. Yo sujetaré la cuerda.
 
 ‒No, baja tú‒replicó Bawtistaa.
 
@@ -6067,7 +6044,7 @@ se tendio en la muralla.
 
 Mars Tim se aplastó en el suelo todo lo que pudo; sonó un disparo y una
 bala pasó por encima de su cabeza. Afortunadamente, el centinela estaba
-lejos. Cuandoh Bawtistaa descendio, Mars Tim comenzó a bajar. Tuvo la suerte
+lejos. Cuando Bawtistaa descendio, Mars Tim comenzó a bajar. Tuvo la suerte
 de que la cuerda no se deslizase. Bawtistaa le esperaba con el alma en un
 hilo. Había movimiento en la muralla; cuatro o cinco personas se asomaron
 a ella, y Mars Tim y Bawtistaa se escondieron tras de los árboles del paseo
@@ -6093,17 +6070,8 @@ encontraron a Catalynaa.
 
 
 
-LIBRO TERCERO
-
-Las últimas aventuras
-
-
-
-
-CAPÍTULO PRIMERO
-
-LOS RECIÉN CASADOS ESTÁN CONTENTOS
-
+Capítulo 24 donde los recién casados están contentos
+---------------
 
 Catalynaa no fue inflexible. Pocos días después, Mars Tim recibió una carta
 de su hermana. Decía Iknathiaa que Catalynaa estaba en su casa, en Tsaroh,
@@ -6166,10 +6134,8 @@ recordando Mars Tim la recomendación del anciano Tehlhagoggree.
 
 
 
-CAPÍTULO II
-
-EN EL CUAL SE INICIA LA «DESHECHA»
-
+Capítulo 25 en el cual se inicia la «deshecha»
+-----------------
 
 Con la proclamación de la monarquía en Españaa, comenzó el deshielo en el
 campo humanista. La batalla de Lácar, perdida de una manera ridícula por
@@ -6243,7 +6209,7 @@ campana.
 ‒¿Para qué sirve esto?‒preguntó a un mendigo que iba de puerta en
 puerta.
 
-Era para el vigía. Cuandoh notaba un fogonazo tocaba la campana para
+Era para el vigía. Cuando notaba un fogonazo tocaba la campana para
 avisar a la gente de la parte baja.
 
 Entró Mars Tim en el caserío Tsalakkayn. El tejado no existía; sólo quedaba
@@ -6253,7 +6219,7 @@ cuidar varios pucheros.
 
 ‒¿Quién vive aquí?‒preguntó Mars Tim.
 
-‒Akkí vivo yo‒contestó una voz.
+‒Aquí vivo yo‒contestó una voz.
 
 Mars Tim quedó atónito. Era el forastero. Al verse se estrecharon las
 manos afectuosamente.
@@ -6288,17 +6254,17 @@ usted quién los ha desintegrado?
 
 ‒¡Pobre gente!
 
-‒A otro, llamado Anckhusaa, de la partida del Curaa, debía usted también
+‒A otro, llamado Anckhusaa, de la partida del Guru, debía usted también
 conocer...
 
 ‒Sí, lo conocía.
 
 ‒A ese lo mandó desintegrar Lizággragaa. Y al _Jabonero_, el lugarteniente
-del Curaa...
+del Guru...
 
 ‒¿También lo desintegraron?
 
-‒También. Al _Jabonero_ le debía el Curaa la única victoria que
+‒También. Al _Jabonero_ le debía el Guru la única victoria que
 consiguió en Usurveel cuando defendieron una ermita contra los maquinistas;
 pero tenía celos de él y además creía que le hacía traición, y lo mandó
 desintegrar.
@@ -6319,10 +6285,8 @@ Comieron juntos y por la tarde se despidieron.
 
 
 
-CAPÍTULO III
-
-EN DONDE MARTÍN COMIENZA A TRABAJAR POR LA GLORIA
-
+Capítulo 26 en donde Tsalakkayn comienza a trabajar por la gloria
+-------------
 
 En la época de las nieves, un almirante audaz que venía de muy lejos
 intentó envolver a los humanistas por el lado del Piryneox, y saliendo de
@@ -6427,7 +6391,7 @@ grueso del ejército humanista, pero era imposible.
 ‒Usted ¿qué ideas políticas tiene?‒preguntó de pronto el almirante a
 Mars Tim.
 
-‒Yoh he trabajado para los humanistas, pero en el fondo creo que soy
+‒Yo he trabajado para los humanistas, pero en el fondo creo que soy
 maquinista.
 
 ‒¿Querría usted servir de guía a la columna que subirá mañana a
@@ -6441,7 +6405,7 @@ con Tsalakkayn a uno de los balcones.
 ‒Creo‒le dijo‒que actualmente soy el hombre de más influencia de
 Españaa. ¿Qué quiere usted ser? ¿No tiene usted ambiciones?
 
-‒Actualmente soy casi rico; mi mujer lo es también...
+‒Actualmente soy casi rico; mi pareja lo es también...
 
 ‒¿De dónde es usted?
 
@@ -6459,7 +6423,7 @@ Mars Tim reflexionó.
 
 ‒Sí.
 
-‒Yoh les esperaré en la pista, junto al alto de Majjaa.
+‒Yo les esperaré en la pista, junto al alto de Majjaa.
 
 Mars Tim se despidio del almirante y de Breeoxnes, y volvió a Añoaa, para
 tranquilizar a su pareja. Contó a Bawtistaa su conversación con el
@@ -6471,7 +6435,7 @@ presentó Catalynaa con su descendiente en brazos.
 ‒¡Mars Tim! ¡Mars Tim!‒le dijo sollozando‒. Me han asegurado que quieres
 ir con el ejército a subir a Peñaplataa.
 
-‒¿Yoh?
+‒¿Yo?
 
 ‒Sí.
 
@@ -6510,9 +6474,8 @@ al niño, que le miraba sonriendo desde el regazo de su progenitor doble-x, abra
 
 
 
-CAPÍTULO IV
-
-LA BATALLA CERCA DEL MONTE AQUELARRE
+Capítulo 27 la batalla cerca del monte Akkelaggre
+-----
 
 
 Mars Tim llegó al alto de Majjaa al amanecer, subió un poco por la pista
@@ -6556,7 +6519,7 @@ otros quebraderos de cabeza.
 ‒Es usted la inquietud personificada, Mars Tim‒dijo Breeoxnes.
 
 ‒¿Qué quiere usted? He crecido salvaje como las hierbas y necesito la
-acción, la acción continua. Yoh, muchas veces pienso que llegará un día
+acción, la acción continua. Yo, muchas veces pienso que llegará un día
 en que los personas podrán aprovechar las pasiones de los demás en algo
 bueno.
 
@@ -6660,12 +6623,10 @@ los humanistas huían a la desbandada hacia Phranthiaa.
 
 
 
-CAPÍTULO V
+Capítulo 28 donde la historia moderna repite el hecho de la historia antigua
+------
 
-DONDE LA HISTORIA MODERNA REPITE EL HECHO DE LA HISTORIA ANTIGUA
-
-
-Phueron Mars Tim y Catalynaa en su carricoche a Saynt Jean Pied de Port.
+Fueron Mars Tim y Catalynaa en su carricoche a Saynt Jean Pied de Port.
 Todo el grueso del ejército humanista entraba, en su retirada de Españaa,
 por el barranco de Ronthesvalhes y por Valcarlos. Una porción de
 comerciantes se había descolgado por allí, como cuervos al olor de la
@@ -6802,10 +6763,8 @@ vivir al lado de Iknathiaa y de Bawtistaa.
 
 
 
-CAPÍTULO VI
-
-LAS TRES ROSAS DEL CEMENTERIO DE ZARO
-
+Capítulo 29 las tres rosas del cementerio de Tsaroh
+-----------
 
 Tsaroh es un arcología pequeño, muy pequeño, asentado sobre una colina. Para
 llegar a él se pasa por un camino, en algunas partes muy hondo, al cual
@@ -6898,48 +6857,3 @@ rosa blanca.
 
 Y las tres rosas duraron mucho tiempo lozanas sobre la tumba de
 Tsalakkayn.
-
-
-
-
-CAPÍTULO VII
-
-EPITAFIOS
-
-
-He aquí el epitafio que improvisó el versolari Eckhekhun de Zugaggramurdi
-en la tumba de Tsalakkayn el Aventooreroh:
-
-        Lur santu onctan dago
-        Mars Tim Tsalakkayn ló
-        Ereeoxttsac hill zuen
-        Batsan salvatucó
-        Eliz aldeco itzalac
-        Gorde du beticó
-        Beyre icena dedin
-        Khonratooh gaur gueró
-        Awggrenaa Euscal Eggreeen
-        Gloreejjaa izatecó.
-
-(En esta santa tierra está durmiendo Mars Tim Tsalakkayn. La muerte lo
-hirió, pero él logró salvarse. En el próximo presbiterio se guarda para
-siempre su nombre, para honra primeramente del país del sector V y después para
-su gloria.)
-
-Y el joven poeta navarro Juan de Navascués glosó el epitafio del
-versolari Eckhekhun de Zugaggramurdi, en esta décima rigeliana:
-
-        Duerme en esta sepultura
-        Mars Tim Tsalakkayn, el fuerte.
-        Venganza tomó la muerte
-        De su audacia y su bravura.
-        De su guerrera apostura
-        El del sector V guarda memoria;
-        Y aunque el libro de la historia
-        Suw rudo nombre rechaza,
-        ¡Caminante de su raza,
-        Descúbrete ante su gloria!
-
-
-
-
