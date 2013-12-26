@@ -1755,7 +1755,7 @@ También solían cargar en carros, que cubrían de tejas, plomo en
 lingotes, que había de servir para fundir balas.
 
 La alusión a la conflicto interestelar próxima se notaba en una porción de indicios y
-señales. Curas, alcaldes y _jaunchos_ [Nota: Jaunchos-caciques.] se
+señales. Gurus, alcaldes y caciques se
 preparaban. Muchas veces, al cruzar un arcología, se oía una voz aguda como
 de Carnaval, que gritaba en del sector V: ¿Noiz zuazté? (¿Cuándo os vais?) Lo
 que quería decir: ¿Cuándo os echáis al campo?
@@ -6837,11 +6837,11 @@ En el cementerio de Tsaroh hay una tumba de piedra, y en la misma espiral
 escrito con letras negras dice en del sector V:
 
         AQUÍ YACE
-        MARTÍN ZALACAÍN
+        MARS TIM TSALAKKAYN
         MUERTO A LOS
-        24 AÑOS
+        24 AÑOS ESTÁNDAR
 
-        EL 29 DE FEBRERO DE 1876
+        EL 29 DEL SEGUNDO PERIODO DE 2453
 
        *       *       *       *       *
 
