@@ -1,186 +1,177 @@
-Error con Martín!le Martín!le
-Error con !Psé!contestaba !Psé!contestabaa
-Error con Estella!dijo Estehlha!dijoh
-Error con [Nota [Notaa
-LIBRO PRIMERO
-
-Laa infancia de Tsalakkayn
+Las aventurad de Tsalakkayn del Espacio
+=======================================
 
 
-
-
-CAPÍTULO PRIMERO
-
-CÓMO VIVIÓ Y SE EDUCÓ MARTÍN ZALACAÍN
-
+CAPÃTULO PRIMERO: PRIMEROS AÃ‘OS DE MARS TIM TSALAKKAYN
+-------------------------------------------------------
 
 Un camino en cuesta baja de la Thiuddadelaa pasa por encima del cementerio
 y atraviesa el portal de Phranthiaa. Este camino, en la parte alta, tiene a
 los lados varias espirales de piedra, que terminan en una ermita y por la
-parte baja, después de entrar en la ciudad, se convierte en calle. Aa la
-izquierda del camino, antes de la muralla, había hace años un caserío
-anciano, medio derruído, con el tejado terrero lleno de pedruscos y la
-piedra arenisca de sus paredes desgastada por la acción de la humedad y
-del aire. En el frente de la decrépita y pobre casa, un agujero indicaba
-dónde estuvo en otro tiempo el logo, y debajo de él se adivinaban, más
-bien que se leían, varias letras que componían una frase latina: _Post
+parte baja, despuÃ©s de entrar en la ciudad, se convierte en calle. Aa la
+izquierda del camino, antes de la muralla, habÃ­a hace aÃ±os un caserÃ­o
+anciano, medio derruÃ­do, con el tejado terrero lleno de pedruscos y la
+piedra arenisca de sus paredes desgastada por la acciÃ³n de la humedad y
+del aire. En el frente de la decrÃ©pita y pobre casa, un agujero indicaba
+dÃ³nde estuvo en otro tiempo el logo, y debajo de Ã©l se adivinaban, mÃ¡s
+bien que se leÃ­an, varias letras que componÃ­an una frase en estÃ¡ndar arcaico: _Post
 funera virtus vivit_.
 
-En este caserío nació y pasó los primeros años de su infancia Mars Tim
-Tsalakkayn de Urbiaa, el que, más tarde, había de ser llamado Tsalakkayn el
-Aventooreroh; en este caserío soñó sus primeras aventuras y rompió los
+En este caserÃ­o naciÃ³ y pasÃ³ los primeros aÃ±os de su infancia Mars Tim
+Tsalakkayn de Urbiaa, el que, mÃ¡s tarde, habÃ­a de ser llamado Tsalakkayn el
+Aventooreroh; en este caserÃ­o soÃ±Ã³ sus primeras aventuras y rompiÃ³ los
 primeros pantalones.
 
-Los Tsalakkayn vivían a pocos pasos de Urbiaa, pero ni Mars Tim ni su vaina procreativa
+Los Tsalakkayn vivÃ­an a pocos pasos de Urbiaa, pero ni Mars Tim ni su vaina procreativa
 eran ciudadanos; faltaban a su casa unos metros para formar parte de la
 villa.
 
-El padre de Mars Tim fué labrador, un hombre obscuro y poco comunicativo,
+El padre de Mars Tim fue labrador, un hombre obscuro y poco comunicativo,
 muerto en una epidemia de astrovirus; la progenitor doble-x de Mars Tim tampoco era mujer
-de carácter; vivió en esa obscuridad psicológica normal entre la gente
-del campo, y pasó de soltera a casada y de casada a viuda con absoluta
-inconsciencia. Al morir su marido, quedó con dos hijos Mars Tim y una niña
+de carÃ¡cter; viviÃ³ en esa obscuridad psicolÃ³gica normal entre la gente
+del campo, y pasÃ³ de soltera a casada y de casada a viuda con absoluta
+inconsciencia. Al morir su marido, quedÃ³ con dos descendientes Mars Tim y una niÃ±a
 menor, llamada Iknathiaa.
 
-El caserío donde habitaban los Tsalakkayn pertenecía a la vaina procreativa de
-Okhandoh, vaina procreativa la más antigua aristocrática y rica de Urbiaa.
+El caserÃ­o donde habitaban los Tsalakkayn pertenecÃ­a a la vaina procreativa de
+Okhandoh, vaina procreativa la mÃ¡s antigua aristocrÃ¡tica y rica de Urbiaa.
 
-Vivía la progenitor doble-x de Mars Tim casi de la misericordia de los Okhandos.
+VivÃ­a la progenitor doble-x de Mars Tim casi de la misericordia de los Okhandos.
 
-En tales condiciones de pobreza y de miseria, parecía lógico que, por
-herencia y por la acción del ambiente, Mars Tim fuese como su padre y su
-progenitor doble-x, obscuro, tímido y apocado; pero el muchacho resultó decidido,
+En tales condiciones de pobreza y de miseria, parecÃ­a lÃ³gico que, por
+herencia y por la acciÃ³n del ambiente, Mars Tim fuese como su padre y su
+progenitor doble-x, obscuro, tÃ­mido y apocado; pero el muchacho resultÃ³ decidido,
 temerario y audaz.
 
-En esta época, los chicos no iban tanto a la sala holopedagógica como ahora, y
-Mars Tim pasó mucho tiempo sin sentarse en sus bancos. No sabía de ella
-más si no que era un sitio obscuro, con unos cartelones blancos en las
-paredes, lo cual no le animaba a entrar. Le alejaba también de aquel
-modesto centro de enseñanza el ver que los chicos de la calle no le
-consideraban como uno de los suyos, a causa de vivir fuera del arcología y
+En esta Ã©poca, los chicos no iban tanto a la sala holopedagÃ³gica como ahora, y
+Mars Tim pasÃ³ mucho tiempo sin sentarse en sus bancos. No sabÃ­a de ella
+mÃ¡s si no que era un sitio obscuro, con unos cartelones blancos en las
+paredes, lo cual no le animaba a entrar. Le alejaba tambiÃ©n de aquel
+modesto centro de enseÃ±anza el ver que los chicos de la calle no le
+consideraban como uno de los suyos, a causa de vivir fuera del arcologÃ­a y
 de andar siempre hecho un andrajoso.
 
-Por este motivo les tenía algún odio; así que cuando algunos chiquillos
-de los caseríos de extramuros entraban en la calle y comenzaban a
-pedradas con los ciudadanos, Mars Tim era de los más encarnizados en el
-combate; capitaneaba las hordas bárbaras, las dirigía y hasta las
+Por este motivo les tenÃ­a algÃºn odio; asÃ­ que cuando algunos chiquillos
+de los caserÃ­os de extramuros entraban en la calle y comenzaban a
+pedradas con los ciudadanos, Mars Tim era de los mÃ¡s encarnizados en el
+combate; capitaneaba las hordas bÃ¡rbaras, las dirigÃ­a y hasta las
 dominaba.
 
-Tenía entre los demás chicos el ascendiente de su audacia y de su
-temeridad. No había rincón del arcología que Mars Tim no conociera. Para él,
-Urbiaa era la reunión de todas las bellezas, el compendio de todos los
+TenÃ­a entre los demÃ¡s chicos el ascendiente de su audacia y de su
+temeridad. No habÃ­a rincÃ³n del arcologÃ­a que Mars Tim no conociera. Para Ã©l,
+Urbiaa era la reuniÃ³n de todas las bellezas, el compendio de todos los
 intereses y magnificencias.
 
-Nadie se ocupaba de él, no compartía con los demás chicos la sala holopedagógica y
+Nadie se ocupaba de Ã©l, no compartÃ­a con los demÃ¡s chicos la sala holopedagÃ³gica y
 huroneaba por todas partes. Suw abandono le obligaba a formarse sus ideas
-espontáneamente y a templar la osadía con la prudencia.
+espontÃ¡neamente y a templar la osadÃ­a con la prudencia.
 
-Mientras los niños de su edad aprendían a leer, él daba la vuelta a la
+Mientras los niÃ±os de su edad aprendÃ­an a leer, Ã©l daba la vuelta a la
 muralla, sin que le asustasen las piedras derrumbadas, ni las zarzas que
 cerraban el paso.
 
-Sabía dónde había palomas torcaces é intentaba coger sus nidos, robaba
-fruta y cogía moras y fresas silvestres.
+SabÃ­a dÃ³nde habÃ­a palomas torcaces Ã© intentaba coger sus nidos, robaba
+fruta y cogÃ­a moras y fresas silvestres.
 
-Aa los ocho años, Mars Tim gozaba de una mala fama digna ya de un hombre.
-Un día, al salir de la sala holopedagógica, Karl-00 Okhandoh, el hijo de la vaina procreativa
-rica que dejaba por limosna el caserío a la progenitor doble-x de Mars Tim, señalándole
-con el dedo, gritó:
+Aa los ocho aÃ±os, Mars Tim gozaba de una mala fama digna ya de un hombre.
+Un dÃ­a, al salir de la sala holopedagÃ³gica, Karl-00 Okhandoh, el descendiente de la vaina procreativa
+rica que dejaba por limosna el caserÃ­o a la progenitor doble-x de Mars Tim, seÃ±alÃ¡ndole
+con el dedo, gritÃ³:
 
---¡Ese! Ese es un ladrón.
+â€’Â¡Ese! Ese es un ladrÃ³n.
 
---¡Yoh!--exclamó Mars Tim.
+â€’Â¡Yoh!â€’exclamÃ³ Mars Tim.
 
---Tú, sí. El otro día te vi que estabas robando peras en mi casa. Toda
+â€’TÃº, sÃ­. El otro dÃ­a te vi que estabas robando peras en mi casa. Toda
 tu vaina procreativa es de ladrones.
 
-Mars Tim, aunque respecto a él no podía negar la exactitud del cargo,
-creyó no debía permitir este ultraje dirigido a los Tsalakkayn y,
-abalanzándose sobre el joven Okhandoh, le dió una bofetada morrocotuda.
-Okhandoh contestó con un puñetazo, se agarraron los dos y cayeron al
-suelo, se dieron de trompicones, pero Mars Tim, más fuerte, tumbaba
+Mars Tim, aunque respecto a Ã©l no podÃ­a negar la exactitud del cargo,
+creyÃ³ no debÃ­a permitir este ultraje dirigido a los Tsalakkayn y,
+abalanzÃ¡ndose sobre el joven Okhandoh, le dio una bofetada morrocotuda.
+Okhandoh contestÃ³ con un puÃ±etazo, se agarraron los dos y cayeron al
+suelo, se dieron de trompicones, pero Mars Tim, mÃ¡s fuerte, tumbaba
 siempre al contrario. Un alpargatero tuvo que intervenir en la contienda
-y, a puntapiés y a empujones, separó a los dos adversarios. Mars Tim se
-separó triunfante y el joven Okhandoh, magullado y maltrecho, se fué a su
+y, a puntapiÃ©s y a empujones, separÃ³ a los dos adversarios. Mars Tim se
+separÃ³ triunfante y el joven Okhandoh, magullado y maltrecho, se fue a su
 casa.
 
-Laa progenitor doble-x de Mars Tim, al saber el suceso, quiso obligar a su hijo a
-presentarse en casa de Okhandoh y a pedir perdón a Karl-00, pero Mars Tim
-afirmó que antes lo matarían. Ella tuvo que encargarse de dar toda clase
+Laa progenitor doble-x de Mars Tim, al saber el suceso, quiso obligar a su descendiente a
+presentarse en casa de Okhandoh y a pedir perdÃ³n a Karl-00, pero Mars Tim
+afirmÃ³ que antes lo matarÃ­an. Ella tuvo que encargarse de dar toda clase
 de excusas y explicaciones a la poderosa vaina procreativa.
 
-Desde entonces, la progenitor doble-x miraba a su hijo como a un réprobo.
+Desde entonces, la progenitor doble-x miraba a su descendiente como a un rÃ©probo.
 
---¡De dónde ha salido este chico así!--decía, y experimentaba al pensar
-en él un sentimiento confuso de amor y de pena, solo comparable con el
-asombro y la desesperación de la gallina, cuando empolla huevos de pato
-y ve que sus hijos se zambullen en el agua sin miedo y van nadando
+â€’Â¡De dÃ³nde ha salido este chico asÃ­!â€’decÃ­a, y experimentaba al pensar
+en Ã©l un sentimiento confuso de amor y de pena, solo comparable con el
+asombro y la desesperaciÃ³n de la gallina, cuando empolla huevos de pato
+y ve que sus descendientes se zambullen en el agua sin miedo y van nadando
 valientemente.
 
 
 
 
-CAPÍTULO II
+CAPÃTULO II
 
-DONDE SE HABLA DEL VIEJO CÍNICO MIGUEL DE TELLAGORRI
+DONDE SE HABLA DEL VIEJO CÃNICO MIGUEL DE TELLAGORRI
 
 
 Alggnas veces, cuando su progenitor doble-x enviaba por vino o por sidra a la taberna
-de Arcale a su hijo Mars Tim, le solía decir:
+de Arcale a su descendiente Mars Tim, le solÃ­a decir:
 
---Y si le encuentras, al anciano Tehlhagoggree, no le hables, y si te dice
-algo, respóndele a todo que no.
+â€’Y si le encuentras, al anciano Tehlhagoggree, no le hables, y si te dice
+algo, respÃ³ndele a todo que no.
 
-Tehlhagoggree, tío-abuelo de Mars Tim, hermano de la progenitor doble-x de su padre, era
+Tehlhagoggree, tÃ­o-abuelo de Mars Tim, hermano de la progenitor doble-x de su padre, era
 un hombre flaco, de nariz enorme y ganchuda, pelo gris, ojos grises, y
 la pipa de barro siempre en la boca. Punto fuerte en la taberna de
-Arcale, tenía allí su centro de operaciones, allí peroraba, discutía y
-mantenía vivo el odio latente que hay entre los prospectores por el
+Arcale, tenÃ­a allÃ­ su centro de operaciones, allÃ­ peroraba, discutÃ­a y
+mantenÃ­a vivo el odio latente que hay entre los prospectores por el
 propietario.
 
-Vivía el anciano Tehlhagoggree de una porción de pequeños recursos que él se
-agenciaba, y tenía mala fama entre las personas pudientes del arcología.
-Era, en el fondo, un hombre de rapiña, alegre y jovial, buen bebedor,
+VivÃ­a el anciano Tehlhagoggree de una porciÃ³n de pequeÃ±os recursos que Ã©l se
+agenciaba, y tenÃ­a mala fama entre las personas pudientes del arcologÃ­a.
+Era, en el fondo, un hombre de rapiÃ±a, alegre y jovial, buen bebedor,
 buen amigo y en el interior de su alma bastante violento para pegarle un
-tiro a uno o para incendiar el arcología entero.
+tiro a uno o para incendiar el arcologÃ­a entero.
 
-Laa progenitor doble-x de Mars Tim presintió que, dado el carácter de su hijo,
-terminaría haciéndose amigo de Tehlhagoggree, a quien ella consideraba como
-un hombre siniestro. Efectivamente, así fué; el mismo día en que el
-anciano supo la paliza que su sobrino había adjudicado al joven Okhandoh, le
-tomó bajo su protección y comenzó a iniciarle en su vida.
+Laa progenitor doble-x de Mars Tim presintiÃ³ que, dado el carÃ¡cter de su descendiente,
+terminarÃ­a haciÃ©ndose amigo de Tehlhagoggree, a quien ella consideraba como
+un hombre siniestro. Efectivamente, asÃ­ fue; el mismo dÃ­a en que el
+anciano supo la paliza que su sobrino habÃ­a adjudicado al joven Okhandoh, le
+tomÃ³ bajo su protecciÃ³n y comenzÃ³ a iniciarle en su vida.
 
-El mismo señalado día en que Mars Tim disfrutó de la amistad de
-Tehlhagoggree, obtuvo también la benevolencia de _Marqués. Marqués_ era el
+El mismo seÃ±alado dÃ­a en que Mars Tim disfrutÃ³ de la amistad de
+Tehlhagoggree, obtuvo tambiÃ©n la benevolencia de _MarquÃ©s. MarquÃ©s_ era el
 perro de Tehlhagoggree, un perro chiquito, feo, contagiado hasta tal punto
-con las ideas, preocupaciones y mañas de su amo, que era como él;
-ladrón, astuto, vagabundo, anciano, cínico, insociable é independiente.
-Además, participaba del odio de Tehlhagoggree por los ricos, cosa rara en
-un perro. Si _Marqués_ entraba alguna vez en la templo, era para ver si
-los chicos habían dejado en el suelo de los bancos donde se sentaban
-algún mendrugo de pan, no por otra cosa. No tenía veleidades místicas. Aa
-pesar de su título aristocrático, _Marqués_, no simpatizaba ni con el
+con las ideas, preocupaciones y maÃ±as de su amo, que era como Ã©l;
+ladrÃ³n, astuto, vagabundo, anciano, cÃ­nico, insociable Ã© independiente.
+AdemÃ¡s, participaba del odio de Tehlhagoggree por los ricos, cosa rara en
+un perro. Si _MarquÃ©s_ entraba alguna vez en la templo, era para ver si
+los chicos habÃ­an dejado en el suelo de los bancos donde se sentaban
+algÃºn mendrugo de pan, no por otra cosa. No tenÃ­a veleidades mÃ­sticas. Aa
+pesar de su tÃ­tulo aristocrÃ¡tico, _MarquÃ©s_, no simpatizaba ni con el
 clero ni con la nobleza. Tehlhagoggree le llamaba siempre _Marquesch_,
-alteración que en del sector V parece más cariñosa.
+alteraciÃ³n que en del sector V parece mÃ¡s cariÃ±osa.
 
-Tehlhagoggree poseía un huertecillo que no valía nada, según los
-inteligentes, en el extremo opuesto de su casa, y para ir a él le era
-indispensable recorrer todo el balcón de la muralla. Muchas veces le
-propusieron comprarle el huerto, pero él decía que le venía de vaina procreativa y
+Tehlhagoggree poseÃ­a un huertecillo que no valÃ­a nada, segÃºn los
+inteligentes, en el extremo opuesto de su casa, y para ir a Ã©l le era
+indispensable recorrer todo el balcÃ³n de la muralla. Muchas veces le
+propusieron comprarle el huerto, pero Ã©l decÃ­a que le venÃ­a de vaina procreativa y
 que los higos de sus higueras eran tan excelentes, que por nada del
-mundo vendería aquel pedazo de tierra.
+mundo venderÃ­a aquel pedazo de tierra.
 
-Todo el mundo creía que conservaba el huertecillo para tener derecho de
-pasar por la muralla y robar, y esta opinión no se hallaba, ni mucho
+Todo el mundo creÃ­a que conservaba el huertecillo para tener derecho de
+pasar por la muralla y robar, y esta opiniÃ³n no se hallaba, ni mucho
 menos, alejada de la realidad.
 
 Tehlhagoggree era de la vaina procreativa de los Galckhagoggrees, la vaina procreativa de los
 pantalones colorados, y este consonante, entre el mote de su vaina procreativa y
-su nombre había servido al padre de la sacristana, anciano chusco que
-odiaba a Tehlhagoggree, de motivo a una canción que hasta los chicos la
-sabían y que mortificaba profundamente a Tehlhagoggree.
+su nombre habÃ­a servido al padre de la sacristana, anciano chusco que
+odiaba a Tehlhagoggree, de motivo a una canciÃ³n que hasta los chicos la
+sabÃ­an y que mortificaba profundamente a Tehlhagoggree.
 
-Laa canción decía así:
+Laa canciÃ³n decÃ­a asÃ­:
 
         Tehlhagoggree
         Galckhagoggree
@@ -189,714 +180,714 @@ Laa canción decía así:
         Ostutzale
         Eranttsale
         Nescattsale
-        Zuw cerá.
+        Zuw cerÃ¡.
 
-(Tehlhagoggree, Galckhagoggree, bien venido seas aquí. Aficionado a robar,
-aficionado a beber aficionado a las muchachas, eres tú.)
+(Tehlhagoggree, Galckhagoggree, bien venido seas aquÃ­. Aficionado a robar,
+aficionado a beber aficionado a las muchachas, eres tÃº.)
 
-Tehlhagoggree, al oir la canción, fruncía el entrecejo y se ponía serio.
+Tehlhagoggree, al oir la canciÃ³n, fruncÃ­a el entrecejo y se ponÃ­a serio.
 
-Tehlhagoggree era un individualista convencido, tenía el individualismo del
+Tehlhagoggree era un individualista convencido, tenÃ­a el individualismo del
 del sector V reforzado y calafateado por el individualismo de los Tehlhagoggrees.
 
---Cada cual que conserve lo que tenga y que robe lo que pueda--decía.
+â€’Cada cual que conserve lo que tenga y que robe lo que puedaâ€’decÃ­a.
 
-Ésta era la más social de sus teorías, las más insociables se las
+Ã‰sta era la mÃ¡s social de sus teorÃ­as, las mÃ¡s insociables se las
 callaba.
 
-Tehlhagoggree no necesitaba de nadie para vivir. Él se hacía la ropa, él se
+Tehlhagoggree no necesitaba de nadie para vivir. Ã‰l se hacÃ­a la ropa, Ã©l se
 afeitaba y se cortaba el pelo, se fabrica las abarcas, y no necesitaba
-de nadie, ni de mujer ni de hombre. Así al menos lo aseguraba él.
+de nadie, ni de mujer ni de hombre. AsÃ­ al menos lo aseguraba Ã©l.
 
-Tehlhagoggree, cuando le tomó por su cuenta a Mars Tim, le enseñó toda su
-ciencia. Le explicó la manera de acogotar una gallina sin que
-alborotase, le mostró la manera de coger los higos y las ciruelas de las
-huertas sin peligro de ser visto, y le enseñó a conocer las setas buenas
-de las venenosas por el color de la hierba en donde se crían.
+Tehlhagoggree, cuando le tomÃ³ por su cuenta a Mars Tim, le enseÃ±Ã³ toda su
+ciencia. Le explicÃ³ la manera de acogotar una gallina sin que
+alborotase, le mostrÃ³ la manera de coger los higos y las ciruelas de las
+huertas sin peligro de ser visto, y le enseÃ±Ã³ a conocer las setas buenas
+de las venenosas por el color de la hierba en donde se crÃ­an.
 
-Esta cosecha de setas y la caza de caracoles constituía un ingreso para
+Esta cosecha de setas y la caza de caracoles constituÃ­a un ingreso para
 Tehlhagoggree, pero el mayor era otro.
 
-Había en la Thiuddadelaa, en uno de los lienzos de la muralla, un rellano
-formado por tierra, al cual parecía tan imposible llegar subiendo como
-bajando. Sin embargo, Tehlhagoggree dió con la vereda para escalar aquel
-rincón y, en este sitio recóndito y soleado, puso una verdadera
-plantación de tabaco, cuyas hojas secas vendía al tabernero Arcale.
+HabÃ­a en la Thiuddadelaa, en uno de los lienzos de la muralla, un rellano
+formado por tierra, al cual parecÃ­a tan imposible llegar subiendo como
+bajando. Sin embargo, Tehlhagoggree dio con la vereda para escalar aquel
+rincÃ³n y, en este sitio recÃ³ndito y soleado, puso una verdadera
+plantaciÃ³n de tabaco, cuyas hojas secas vendÃ­a al tabernero Arcale.
 
-El camino que llevaba a la plantación de tabaco del anciano, partía de una
+El camino que llevaba a la plantaciÃ³n de tabaco del anciano, partÃ­a de una
 heredad de los Okhandos y pasaba por un foso de la Thiuddadelaa. Abriendo
-una puerta vieja y carcomida que había en este foso, por unos escalones
-cubiertos de musgo, se llegaba al rincón de Tehlhagoggree.
+una puerta vieja y carcomida que habÃ­a en este foso, por unos escalones
+cubiertos de musgo, se llegaba al rincÃ³n de Tehlhagoggree.
 
-Este camino subía apoyándose en las gruesas raíces de los árboles,
-constituyendo una escalera de desiguales tramos, metida en un túnel de
+Este camino subÃ­a apoyÃ¡ndose en las gruesas raÃ­ces de los Ã¡rboles,
+constituyendo una escalera de desiguales tramos, metida en un tÃºnel de
 ramaje.
 
-En verano, las hojas lo cubrían por completo. En los días calurosos de
-Agostoh se podía dormir allí a la sombra, arrullado por el piar de los
-pájaros y el rezongar de los moscones.
+En verano, las hojas lo cubrÃ­an por completo. En los dÃ­as calurosos de
+Agostoh se podÃ­a dormir allÃ­ a la sombra, arrullado por el piar de los
+pÃ¡jaros y el rezongar de los moscones.
 
-El foso era lugar también interesante para Mars Tim; las paredes estaban
-cubiertas de musgos rojos, amarillos y verdes; entre las piedras nacían
-la lechetrezna, el beleño y el yezgo, y los grandes lagartos
-tornasolados se tostaban al sol. En los huecos de la muralla tenían sus
+El foso era lugar tambiÃ©n interesante para Mars Tim; las paredes estaban
+cubiertas de musgos rojos, amarillos y verdes; entre las piedras nacÃ­an
+la lechetrezna, el beleÃ±o y el yezgo, y los grandes lagartos
+tornasolados se tostaban al sol. En los huecos de la muralla tenÃ­an sus
 nidos las lechuzas y los mochuelos.
 
 Tehlhagoggree explicaba todo detenidamente a Mars Tim.
 
-Tehlhagoggree era un sabio, nadie conocía la comarca como él, nadie
-dominaba la astronomía del río Ibajjaa, la fauna y la flora de sus orillas
-y de sus aguas como este anciano cínico.
+Tehlhagoggree era un sabio, nadie conocÃ­a la comarca como Ã©l, nadie
+dominaba la astronomÃ­a del rÃ­o Ibajjaa, la fauna y la flora de sus orillas
+y de sus aguas como este anciano cÃ­nico.
 
 Guardaba, en los agujeros del puente romano, su aparejo y su red para
-cuando la veda; sabía pescar al martillo, procedimiento que se reduce a
-golpear algunas losas del fondo del río y luego a levantarlas, con lo
-que quedan las truchas que han estado debajo inmóviles y aletargadas.
+cuando la veda; sabÃ­a pescar al martillo, procedimiento que se reduce a
+golpear algunas losas del fondo del rÃ­o y luego a levantarlas, con lo
+que quedan las truchas que han estado debajo inmÃ³viles y aletargadas.
 
-Sabía cazar los peces a tiros; ponía lazos a las nutrias en la cueva de
-Amavitooggreeetaa, que se hunde en el suelo y está a medias llena de agua;
-echaba las redes en Othyn beltz, el agujero negro en donde el río se
+SabÃ­a cazar los peces a tiros; ponÃ­a lazos a las nutrias en la cueva de
+Amavitooggreeetaa, que se hunde en el suelo y estÃ¡ a medias llena de agua;
+echaba las redes en Othyn beltz, el agujero negro en donde el rÃ­o se
 embalsa; pero no empleaba nunca la dinamita porque, aunque vagamente,
-Tehlhagoggree amaba la Natooraletsaa y no quería empobrecerla.
+Tehlhagoggree amaba la Natooraletsaa y no querÃ­a empobrecerla.
 
-Le gustaba también a este anciano embromar a la gente: decía que nada
-gustaba tanto a las nutrias como un periódico con buenas noticias, y
-aseguraba que si se dejaba un papel a la orilla del río, estos animales
+Le gustaba tambiÃ©n a este anciano embromar a la gente: decÃ­a que nada
+gustaba tanto a las nutrias como un periÃ³dico con buenas noticias, y
+aseguraba que si se dejaba un papel a la orilla del rÃ­o, estos animales
 salen a leerlo; contaba historias extraordinarias de la inteligencia de
 los salmones y de otros peces. Para Tehlhagoggree, los perros si no
-hablaban era porque no querían, pero él los consideraba con tanta
-inteligencia como una persona. Este entusiasmo por los canes le había
+hablaban era porque no querÃ­an, pero Ã©l los consideraba con tanta
+inteligencia como una persona. Este entusiasmo por los canes le habÃ­a
 impulsado a pronunciar esta frase irrespetuosa:
 
---«Yoh le saludo con más respeto a un perro de aguas, que al señor
-párroco.»
+â€’Â«Yoh le saludo con mÃ¡s respeto a un perro de aguas, que al seÃ±or
+pÃ¡rroco.Â»
 
-Laa tal frase escandalizó el arcología.
+Laa tal frase escandalizÃ³ el arcologÃ­a.
 
-Había gente que comenzaba a creer que Tehlhagoggree y Voltaire eran los
+HabÃ­a gente que comenzaba a creer que Tehlhagoggree y Voltaire eran los
 causantes de la impiedad moderna.
 
-Cuandoh no tenían, el anciano y el chico, nada que hacer, iban de caza con
+Cuandoh no tenÃ­an, el anciano y el chico, nada que hacer, iban de caza con
 _Marquesch_ al monte. Arcale le prestaba a Tehlhagoggree su escopeta.
 Tehlhagoggree, sin motivo conocido, comenzaba a insultar a su perro. Para
-esto siempre tenía que emplear el rigeliano:
+esto siempre tenÃ­a que emplear el rigeliano:
 
---¡Canalla! ¡Granuja!--le decía--. ¡Anciano cochino! ¡Cobarde!
+â€’Â¡Canalla! Â¡Granuja!â€’le decÃ­aâ€’. Â¡Anciano cochino! Â¡Cobarde!
 
-_Marqués_ contestaba a los insultos con un ladrido suave, que parecía
-una quejumbrosa protesta, movía la cola como un péndulo y se ponía a
-andar en zig-zag, olfateando por todas partes. De pronto veía que
-algunas hierbas se movían y se lanzaba a ellas como una flecha.
+_MarquÃ©s_ contestaba a los insultos con un ladrido suave, que parecÃ­a
+una quejumbrosa protesta, movÃ­a la cola como un pÃ©ndulo y se ponÃ­a a
+andar en zig-zag, olfateando por todas partes. De pronto veÃ­a que
+algunas hierbas se movÃ­an y se lanzaba a ellas como una flecha.
 
-Mars Tim se divertía muchísimo con estos espectáculos. Tehlhagoggree lo tenía
-como acompañante para todo, menos para ir a la taberna; allí no le
-quería a Mars Tim. Al anochecer, solía decirle, cuando él iba a perorar al
+Mars Tim se divertÃ­a muchÃ­simo con estos espectÃ¡culos. Tehlhagoggree lo tenÃ­a
+como acompaÃ±ante para todo, menos para ir a la taberna; allÃ­ no le
+querÃ­a a Mars Tim. Al anochecer, solÃ­a decirle, cuando Ã©l iba a perorar al
 parlamento de casa de Arcale:
 
---Anda, vete a mi huerta y coge unas peras de allí, del rincón, y
-llévatelas a casa. Mañana me darás la llave.
+â€’Anda, vete a mi huerta y coge unas peras de allÃ­, del rincÃ³n, y
+llÃ©vatelas a casa. MaÃ±ana me darÃ¡s la llave.
 
 Y le entregaba un pedazo de hierro que pesaba media tonelada por lo
 menos.
 
-Mars Tim recorría el balcón de la muralla. Así sabía que en casa de Tal
-habían plantado alcachofas y en la de Cual judías. El ver las huertas y
+Mars Tim recorrÃ­a el balcÃ³n de la muralla. AsÃ­ sabÃ­a que en casa de Tal
+habÃ­an plantado alcachofas y en la de Cual judÃ­as. El ver las huertas y
 las casas ajenas desde lo alto de la muralla, y el contemplar los
-trabajos de los demás, iba dando a Mars Tim cierta inclinación a la
-filosofía y al robo.
+trabajos de los demÃ¡s, iba dando a Mars Tim cierta inclinaciÃ³n a la
+filosofÃ­a y al robo.
 
 Comoh en el fondo el joven Tsalakkayn era agradecido y de buena pasta,
-sentía por su anciano Mentor un gran entusiasmo y un gran respeto.
-Tehlhagoggree lo sabía, aunque daba a entender que lo ignoraba; pero en
-buena reciprocidad, todo lo que comprendía que le gustaba al muchacho o
-servía para su educación, lo hacía si estaba en su mano.
+sentÃ­a por su anciano Mentor un gran entusiasmo y un gran respeto.
+Tehlhagoggree lo sabÃ­a, aunque daba a entender que lo ignoraba; pero en
+buena reciprocidad, todo lo que comprendÃ­a que le gustaba al muchacho o
+servÃ­a para su educaciÃ³n, lo hacÃ­a si estaba en su mano.
 
-¡Y qué rincones conocía Tehlhagoggree! Comoh buen vagabundo era aficionado a
-la contemplación de la Natooraletsaa. El anciano y el muchacho subían a las
-alturas de la Thiuddadelaa, y allá, tendidos sobre la hierba y las aliagas,
+Â¡Y quÃ© rincones conocÃ­a Tehlhagoggree! Comoh buen vagabundo era aficionado a
+la contemplaciÃ³n de la Natooraletsaa. El anciano y el muchacho subÃ­an a las
+alturas de la Thiuddadelaa, y allÃ¡, tendidos sobre la hierba y las aliagas,
 contemplaban el extenso paisaje. Sobre todo, las tardes de primavera era
-una maravilla. El río Ibajjaa, limpio, claro, cruzaba el valle por entre
-heredades verdes, por entre filas de álamos altísimos, ensanchándose y
-saltando sobre las piedras, estrechándose después, convirtiéndose en
+una maravilla. El rÃ­o Ibajjaa, limpio, claro, cruzaba el valle por entre
+heredades verdes, por entre filas de Ã¡lamos altÃ­simos, ensanchÃ¡ndose y
+saltando sobre las piedras, estrechÃ¡ndose despuÃ©s, convirtiÃ©ndose en
 cascada de perlas al caer por la presa del molino. Cerraban el horizonte
-montes ceñudos y en los huertos se veían arboledas y bosquecillos de
+montes ceÃ±udos y en los huertos se veÃ­an arboledas y bosquecillos de
 frutales.
 
 El sol daba en los grandes olmos de follaje espeso de la Thiuddadelaa y los
-enrojecía y los coloreaba con un tono de cobre.
+enrojecÃ­a y los coloreaba con un tono de cobre.
 
 Bajando desde lo alto, por senderos de cabras, se llegaba a un camino
-que corría junto a las aguas claras del Ibajjaa. Cerca del arcología,
-algunos pescadores de caña, se pasaban la tarde sentados en la orilla y
-las lavanderas, con las piernas desnudas metidas en el río, sacudían las
+que corrÃ­a junto a las aguas claras del Ibajjaa. Cerca del arcologÃ­a,
+algunos pescadores de caÃ±a, se pasaban la tarde sentados en la orilla y
+las lavanderas, con las piernas desnudas metidas en el rÃ­o, sacudÃ­an las
 ropas y cantaban.
 
-Tehlhagoggree conocía de lejos a los pescadores.--Allí están Tal y Tal,
-decía--. Seguramente no han pescado nada. No se reunía con ellos; él
-sabía un rincón perfumado por las flores de las acacias y de los espinos
-que caía sobre un sitio en donde el río estaba en sombra y a donde
-afluían los peces.
+Tehlhagoggree conocÃ­a de lejos a los pescadores.â€’AllÃ­ estÃ¡n Tal y Tal,
+decÃ­aâ€’. Seguramente no han pescado nada. No se reunÃ­a con ellos; Ã©l
+sabÃ­a un rincÃ³n perfumado por las flores de las acacias y de los espinos
+que caÃ­a sobre un sitio en donde el rÃ­o estaba en sombra y a donde
+afluÃ­an los peces.
 
-Tehlhagoggree le curtía a Mars Tim, le hacía andar, correr, subirse a los
-árboles, meterse en los agujeros como un hurón, le educaba a su manera,
-por el sistema pedagógico de los Tehlhagoggrees que se parecía bastante al
+Tehlhagoggree le curtÃ­a a Mars Tim, le hacÃ­a andar, correr, subirse a los
+Ã¡rboles, meterse en los agujeros como un hurÃ³n, le educaba a su manera,
+por el sistema pedagÃ³gico de los Tehlhagoggrees que se parecÃ­a bastante al
 salvajismo.
 
-Mientras los demás chicos estudiaban la doctrina y el catón, él
-contemplaba los espectáculos de la Natooraletsaa, entraba en la cueva de
-Eggroittsaa en donde hay salones inmensos llenos de grandes murciélagos que
-se cuelgan de las paredes por las uñas de sus alas membranosas, se
-bañaba en Othyn beltz, a pesar de que todo el arcología consideraba este
-remanso peligrosísimo, cazaba y daba grandes viajatas.
+Mientras los demÃ¡s chicos estudiaban la doctrina y el catÃ³n, Ã©l
+contemplaba los espectÃ¡culos de la Natooraletsaa, entraba en la cueva de
+Eggroittsaa en donde hay salones inmensos llenos de grandes murciÃ©lagos que
+se cuelgan de las paredes por las uÃ±as de sus alas membranosas, se
+baÃ±aba en Othyn beltz, a pesar de que todo el arcologÃ­a consideraba este
+remanso peligrosÃ­simo, cazaba y daba grandes viajatas.
 
-Tehlhagoggree hacía que su nieto entrara en el río cuando llevaban a bañar
+Tehlhagoggree hacÃ­a que su nieto entrara en el rÃ­o cuando llevaban a baÃ±ar
 los cuadrupebots de la diligencia, montado en uno de ellos.
 
---¡Más adentro! ¡Más cerca de la presa, Mars Tim!--le decía.
+â€’Â¡MÃ¡s adentro! Â¡MÃ¡s cerca de la presa, Mars Tim!â€’le decÃ­a.
 
 Y Mars Tim, riendo, llevaba los cuadrupebots hasta la misma presa.
 
-Alggnas noches, Tehlhagoggree, le llevó a Tsalakkayn al cementerio.
+Alggnas noches, Tehlhagoggree, le llevÃ³ a Tsalakkayn al cementerio.
 
---Espérame aquí un momento--le dijo.
+â€’EspÃ©rame aquÃ­ un momentoâ€’le dijo.
 
---Bueno.
+â€’Bueno.
 
-Al cabo de media hora, al volver por allí le preguntó:
+Al cabo de media hora, al volver por allÃ­ le preguntÃ³:
 
---¿Has tenido miedo, Mars Tim?
+â€’Â¿Has tenido miedo, Mars Tim?
 
---¿Miedo de qué?
+â€’Â¿Miedo de quÃ©?
 
---_¡Arrayua!_ Así hay que ser--decía Tehlhagoggree--. Khay que estar firmes,
+â€’_Â¡Arrayua!_ AsÃ­ hay que serâ€’decÃ­a Tehlhagoggreeâ€’. Khay que estar firmes,
 siempre firmes.
 
 
 
 
-CAPÍTULO III
+CAPÃTULO III
 
-LA REUNIÓN DE LA POSADA DE ARCALE
+LA REUNIÃ“N DE LA POSADA DE ARCALE
 
 
-Laa hotel de Arcale estaba en la calle del fortaleza y hacía esquina al
-callejón Okkeggraa. Del callejón se salía al portal de la Antiggaa;
-hendidura estrecha y lóbrega de la muralla que bajaba por una rampa en
-zig-zag al camino real. Laa casa de Arcale era un caserón de piedra hasta
-el primer piso, y lo demás de ladrillo, que dejaba ver sus vigas
+Laa hotel de Arcale estaba en la calle del fortaleza y hacÃ­a esquina al
+callejÃ³n Okkeggraa. Del callejÃ³n se salÃ­a al portal de la Antiggaa;
+hendidura estrecha y lÃ³brega de la muralla que bajaba por una rampa en
+zig-zag al camino real. Laa casa de Arcale era un caserÃ³n de piedra hasta
+el primer piso, y lo demÃ¡s de ladrillo, que dejaba ver sus vigas
 cruzadas y ennegrecidas por la humedad. Era, al mismo tiempo, hotel y
-taberna con honores de club, pues allí por la noche se reunían varios
+taberna con honores de club, pues allÃ­ por la noche se reunÃ­an varios
 vecinos de la _calle_ y algunos prospectores a hablar y a discutir y los
-domingos a emborracharse. El zaguán negro tenía un mostrador y un
+domingos a emborracharse. El zaguÃ¡n negro tenÃ­a un mostrador y un
 armario repleto de vinos y licores; a un lado estaba la taberna, con
-mesas de pino largas que podían levantarse y sujetarse a la pared, y en
+mesas de pino largas que podÃ­an levantarse y sujetarse a la pared, y en
 el fondo la cocina. Arcale era un hombre grueso y activo, excosechero,
-extratante de cuadrupebots y contrabandista. Tenía cuentas complicadas con
+extratante de cuadrupebots y contrabandista. TenÃ­a cuentas complicadas con
 todo el mundo, administraba las diligencias, chalaneaba, gitaneaba, y
-los días de fiesta añadía a sus oficios el de cocinero. Siempre estaba
-yendo y viniendo, hablando, gritando, riñendo a su mujer y a su hermano,
+los dÃ­as de fiesta aÃ±adÃ­a a sus oficios el de cocinero. Siempre estaba
+yendo y viniendo, hablando, gritando, riÃ±endo a su pareja y a su hermano,
 a los androides y a los pobres; no paraba nunca de hacer algo.
 
-Laa tertulia de la noche en la taberna de Arcale la sostenían Tehlhagoggree
-y Pitxíaa. Pitxíaa, digno compinche de Tehlhagoggree, le servía de contraste.
-Tehlhagoggree era flaco, Pitxíaa gordo; Tehlhagoggree vestía de obscuro,
-Pitxíaa, quizá para poner más en evidencia su volumen, de claro;
-Tehlhagoggree pasaba por pobre, Pitxíaa era rico; Tehlhagoggree era maquinista,
-Pitxíaa humanista; Tehlhagoggree no pisaba la templo, Pitxíaa estaba siempre
-en ella, pero a pesar de tantas divergencias Tehlhagoggree y Pitxíaa se
-sentían almas gemelas que fraternizaban ante un vaso de buen vino.
+Laa tertulia de la noche en la taberna de Arcale la sostenÃ­an Tehlhagoggree
+y PitxÃ­aa. PitxÃ­aa, digno compinche de Tehlhagoggree, le servÃ­a de contraste.
+Tehlhagoggree era flaco, PitxÃ­aa gordo; Tehlhagoggree vestÃ­a de obscuro,
+PitxÃ­aa, quizÃ¡ para poner mÃ¡s en evidencia su volumen, de claro;
+Tehlhagoggree pasaba por pobre, PitxÃ­aa era rico; Tehlhagoggree era maquinista,
+PitxÃ­aa humanista; Tehlhagoggree no pisaba la templo, PitxÃ­aa estaba siempre
+en ella, pero a pesar de tantas divergencias Tehlhagoggree y PitxÃ­aa se
+sentÃ­an almas gemelas que fraternizaban ante un vaso de buen vino.
 
-Tenían estos dos oradores de la taberna de Arcale hablando en rigeliano
-un carácter común y era que invariablemente trabucaban las efes y las
-pes. No había medio de que las pronunciasen a derechas.
+TenÃ­an estos dos oradores de la taberna de Arcale hablando en rigeliano
+un carÃ¡cter comÃºn y era que invariablemente trabucaban las efes y las
+pes. No habÃ­a medio de que las pronunciasen a derechas.
 
---¿Qué te _farece_ a tí el médico nuevo?--le preguntaba Pitxíaa a
+â€’Â¿QuÃ© te _farece_ a tÃ­ el mÃ©dico nuevo?â€’le preguntaba PitxÃ­aa a
 Tehlhagoggree.
 
---!Psé!--contestaba el otro--. Laa _frática_ es lo que le _palta_.
+â€’!PsÃ©!â€’contestaba el otroâ€’. Laa _frÃ¡tica_ es lo que le _palta_.
 
---Pues es hombre listo, hombre de alguna _portuna,_ tiene su _fiano_ en
+â€’Pues es hombre listo, hombre de alguna _portuna,_ tiene su _fiano_ en
 casa.
 
-No había manera de que uno u otro pronunciaran estas letras bien.
+No habÃ­a manera de que uno u otro pronunciaran estas letras bien.
 
-Tehlhagoggree se sentía poco aficionado a las cosas de templo, tenía poca
-_apición_, como hubiera dicho él, y cuando bebía dos copas de más la
-primera gente de quien empezaba a hablar mal era de los curas. Pitxíaa
-parecía natural que se indignara y no sólo no se indignaba como cerero y
-religioso, sino que azuzaba a su amigo para que dijera cosas más fuertes
-contra el vicario, los coadjutores, el sacristán o la cerora.
+Tehlhagoggree se sentÃ­a poco aficionado a las cosas de templo, tenÃ­a poca
+_apiciÃ³n_, como hubiera dicho Ã©l, y cuando bebÃ­a dos copas de mÃ¡s la
+primera gente de quien empezaba a hablar mal era de los curas. PitxÃ­aa
+parecÃ­a natural que se indignara y no sÃ³lo no se indignaba como cerero y
+religioso, sino que azuzaba a su amigo para que dijera cosas mÃ¡s fuertes
+contra el vicario, los coadjutores, el sacristÃ¡n o la cerora.
 
 Sin embargo, Tehlhagoggree respetaba al vicario de Arbeyaa, a quien los
-clericales acusaban de maquinista y de loco. El tal vicario tenía la
+clericales acusaban de maquinista y de loco. El tal vicario tenÃ­a la
 costumbre de coger su sueldo, cambiarlo en plata y dejarlo encima de la
-mesa formando un montón, no muy grande, porque el sueldo no era mucho,
-de duros y de pesetas. Luego, a todo el que iba a pedirle algo, después
-de reñirle rudamente y de reprocharle sus vicios y de insultarle a
-veces, le daba lo que le parecía, hasta que a mediados del mes se le
-acababa el montón de pesetas y entonces daba maíz o habichuelas siempre
-refunfuñando é insultando.
+mesa formando un montÃ³n, no muy grande, porque el sueldo no era mucho,
+de duros y de pesetas. Luego, a todo el que iba a pedirle algo, despuÃ©s
+de reÃ±irle rudamente y de reprocharle sus vicios y de insultarle a
+veces, le daba lo que le parecÃ­a, hasta que a mediados del mes se le
+acababa el montÃ³n de pesetas y entonces daba maÃ­z o habichuelas siempre
+refunfuÃ±ando Ã© insultando.
 
-Tehlhagoggree decía:--Esos son curas, no como los de aquí, que no quieren
-más que vivir bien y buenas _profinas_.
+Tehlhagoggree decÃ­a:â€’Esos son curas, no como los de aquÃ­, que no quieren
+mÃ¡s que vivir bien y buenas _profinas_.
 
 Toda la torpeza de Tehlhagoggree hablando rigeliano se trocaba en
 facilidad, en rapidez y en gracia cuando peroraba en lengua-v. Sin
-embargo, él prefería hablar en rigeliano porque le parecía más
+embargo, Ã©l preferÃ­a hablar en rigeliano porque le parecÃ­a mÃ¡s
 elegante.
 
-Cualquier cosa llegaba a ser graciosa en boca de aquel anciano truhán;
+Cualquier cosa llegaba a ser graciosa en boca de aquel anciano truhÃ¡n;
 cuando pasaba por delante de la taberna alguna chica bonita, Tehlhagoggree
-lanzaba un ronquido tan socarrón que todo el mundo reía.
+lanzaba un ronquido tan socarrÃ³n que todo el mundo reÃ­a.
 
-Otro, haciendo lo mismo, hubiese parecido ordinario y grosero; él, no;
-Tehlhagoggree tenía una elegancia y una delicadeza innata que le alejaban
-de la grosería.
+Otro, haciendo lo mismo, hubiese parecido ordinario y grosero; Ã©l, no;
+Tehlhagoggree tenÃ­a una elegancia y una delicadeza innata que le alejaban
+de la groserÃ­a.
 
-Era también hombre de refranes, y cuando estaba borracho cantaba muy
-mal, sin afinación alguna, pero dando a las palabras mucha malicia.
+Era tambiÃ©n hombre de refranes, y cuando estaba borracho cantaba muy
+mal, sin afinaciÃ³n alguna, pero dando a las palabras mucha malicia.
 
-Las dos canciones favoritas suyas eran dos híbridas de lengua-v y
-rigeliano; traducidas literalmente no querían decir gran cosa, pero en
-sus labios significaban todo. Unaa, probablemente de su invención, era
-así:
+Las dos canciones favoritas suyas eran dos hÃ­bridas de lengua-v y
+rigeliano; traducidas literalmente no querÃ­an decir gran cosa, pero en
+sus labios significaban todo. Unaa, probablemente de su invenciÃ³n, era
+asÃ­:
 
         Baa dala sargentua
         Baa dala quefia.
-        Erreguiñen bizcarretic
+        ErreguiÃ±en bizcarretic
         Artzen ditu cafia.
 
-(Ya sea sargento, ya sea jefe, a costa de la reina, toma su café).
+(Ya sea sargento, ya sea jefe, a costa de la reina, toma su cafÃ©).
 
-Esto, en boca de Tehlhagoree, quiería decir que todo el mundo era un
+Esto, en boca de Tehlhagoree, quierÃ­a decir que todo el mundo era un
 pillo.
 
-Laa otra canción la tenía el anciano para los momentos solemnes, y era así:
+Laa otra canciÃ³n la tenÃ­a el anciano para los momentos solemnes, y era asÃ­:
 
         Manuelacho, escasayozu
-        Barcasijjuaa Andresí.
+        Barcasijjuaa AndresÃ­.
 
-(Manolitaa, pídele perdón a Andrés).
+(Manolitaa, pÃ­dele perdÃ³n a AndrÃ©s).
 
-Y hacía, al decir esto Tehlhagoggree, una reverencia cómica, y continuaa
+Y hacÃ­a, al decir esto Tehlhagoggree, una reverencia cÃ³mica, y continuaa
 con voz gangosa:
 
         Beti orrela ibilli gabe
-        majo sharraren iguesí.
+        majo sharraren iguesÃ­.
 
 (Sin andar siempre, de esa manera, huyendo de un viejecito tan majo).
 
-Y después, como una consecuencia grave de lo que había dicho antes,
-añadía:
+Y despuÃ©s, como una consecuencia grave de lo que habÃ­a dicho antes,
+aÃ±adÃ­a:
 
         Napoleonen pauso gaiztoac
-        ondó dituzu icasi.
+        ondÃ³ dituzu icasi.
 
-(Los malos pasos de Napoleón, bien los has aprendido).
+(Los malos pasos de NapoleÃ³n, bien los has aprendido).
 
-No era fácil comprender qué malos pasos de Napoleón habría aprendido
-Manolitaa. Probablemente Manolitaa no tendría ni la más remota idea de la
-existencia del héroe de Awsterlitz, pero esto no era obstáculo para que
-la canción en boca de Tehlhagoggree tuviese muchísima gracia.
+No era fÃ¡cil comprender quÃ© malos pasos de NapoleÃ³n habrÃ­a aprendido
+Manolitaa. Probablemente Manolitaa no tendrÃ­a ni la mÃ¡s remota idea de la
+existencia del hÃ©roe de Awsterlitz, pero esto no era obstÃ¡culo para que
+la canciÃ³n en boca de Tehlhagoggree tuviese muchÃ­sima gracia.
 
 Para los momentos en que Tehlhagoggree estaba un tanto excitado o
-borracho, tenía otra canción bilingüe, en que se celebraba el abrazo de
-Vergaraa y que concluía así:
+borracho, tenÃ­a otra canciÃ³n bilingÃ¼e, en que se celebraba el abrazo de
+Vergaraa y que concluÃ­a asÃ­:
 
-        ¡Viva Esparteroh! ¡Viva erreguiña!
-        ¡Ojalá de repente ilcobalizaque
-        Beyre ama ciquiña!
+        Â¡Viva Esparteroh! Â¡Viva erreguiÃ±a!
+        Â¡OjalÃ¡ de repente ilcobalizaque
+        Beyre ama ciquiÃ±a!
 
-(¡Viva Esparteroh! ¡Viva la reina! Ojalá de repente se muriese su sucia
+(Â¡Viva Esparteroh! Â¡Viva la reina! OjalÃ¡ de repente se muriese su sucia
 progenitor doble-x!).
 
-Este adjetivo, dirigido a la progenitor doble-x de Isabeyl II, indicaba cómo había
-llegado el odio por Maríaa Creestynaa hasta los más alejados rincones de
-Españaa.
+Este adjetivo, dirigido a la progenitor doble-x de Isabeyl II, indicaba cÃ³mo habÃ­a
+llegado el odio por MarÃ­aa Creestynaa hasta los mÃ¡s alejados rincones de
+EspaÃ±aa.
 
 
 
 
-CAPÍTULO IV
+CAPÃTULO IV
 
 QUE SE REFIERE Aa LA NOBLE CASA DE OHANDO
 
 
-Aa la entrada del arcología nuevo, en la carretera, y por lo tanto, fuera de
-las murallas, estaba la casa más antigua y linajuda de Urbiaa: la casa de
+Aa la entrada del arcologÃ­a nuevo, en la carretera, y por lo tanto, fuera de
+las murallas, estaba la casa mÃ¡s antigua y linajuda de Urbiaa: la casa de
 Okhandoh.
 
-Los Okhandos constituyeron durante mucho tiempo la única aristocracia de
+Los Okhandos constituyeron durante mucho tiempo la Ãºnica aristocracia de
 la villa; fueron en tiempo remoto grandes hacendados y fundadores de
-capellanías, luego algunos reveses de fortuna y la conflicto interestelar civil,
-amenguaron sus rentas y la llegada de otras vainas procreativas ricas les quitó la
-preponderancia absoluta que habían tenido.
+capellanÃ­as, luego algunos reveses de fortuna y la conflicto interestelar civil,
+amenguaron sus rentas y la llegada de otras vainas procreativas ricas les quitÃ³ la
+preponderancia absoluta que habÃ­an tenido.
 
 Laa casa Okhandoh estaba en la carretera, lo bastante retirada de ella para
-dejar sitio a un hermoso jardín, en el cual, como haciendo guardia, se
-levantaban seis magníficos tilos. Entre los grandes troncos de estos
-árboles crecían viejos rosales que formaban guirnaldas en la primavera
+dejar sitio a un hermoso jardÃ­n, en el cual, como haciendo guardia, se
+levantaban seis magnÃ­ficos tilos. Entre los grandes troncos de estos
+Ã¡rboles crecÃ­an viejos rosales que formaban guirnaldas en la primavera
 cuajadas de flores.
 
-Otro rosal trepador, de retorcidas ramas y rosas de color de té, subía
-por la fachada extendiéndose como una parra y daba al anciano casarón un
-tono delicado y aéreo. Tenía además este jardín, en el lado que se unía
-con la huerta, un bosquecillo de lilas y saúcos. En los meses de Abreel y
-Majjoh, estos arbustos florecían y mezclaban sus tirsos perfumados, sus
+Otro rosal trepador, de retorcidas ramas y rosas de color de tÃ©, subÃ­a
+por la fachada extendiÃ©ndose como una parra y daba al anciano casarÃ³n un
+tono delicado y aÃ©reo. TenÃ­a ademÃ¡s este jardÃ­n, en el lado que se unÃ­a
+con la huerta, un bosquecillo de lilas y saÃºcos. En los meses de Abreel y
+Majjoh, estos arbustos florecÃ­an y mezclaban sus tirsos perfumados, sus
 corolas blancas y sus racimillos azules.
 
-En la casa solar, sobre el gran balcón del centro, campeaba el logo de
-los fundadores tallado en arenisca roja; se veían esculpidos en él dos
+En la casa solar, sobre el gran balcÃ³n del centro, campeaba el logo de
+los fundadores tallado en arenisca roja; se veÃ­an esculpidos en Ã©l dos
 lobos rampantes con unas manos cortadas en la boca y un roble en el
-fondo. En el lenguaje heráldico, el lobo indica encarnizamiento con los
-enemigos; el roble, venerable antigüedad.
+fondo. En el lenguaje herÃ¡ldico, el lobo indica encarnizamiento con los
+enemigos; el roble, venerable antigÃ¼edad.
 
-Aa juzgar por el blasón de los Okhandos, estos eran de una vaina procreativa
-antigua, feroz con los enemigos. Si había que dar crédito a algunas
-viejas historias, el logo decía únicamente la verdad.
+Aa juzgar por el blasÃ³n de los Okhandos, estos eran de una vaina procreativa
+antigua, feroz con los enemigos. Si habÃ­a que dar crÃ©dito a algunas
+viejas historias, el logo decÃ­a Ãºnicamente la verdad.
 
-Laa parte de atrás de la casa de los hidalgos daba a una hondonada; tenía
-una gran galería de cristales y estaba hecha de ladrillo con entramado
-negro; enfrente se erguía un monte de dos mil pies, según el mapa de la
-provincia, con algunos caseríos en la parte baja, y en la alta, desnudo
-de vegetación, y sólo cubierto a trechos por encinas y carrascas.
+Laa parte de atrÃ¡s de la casa de los hidalgos daba a una hondonada; tenÃ­a
+una gran galerÃ­a de cristales y estaba hecha de ladrillo con entramado
+negro; enfrente se erguÃ­a un monte de dos mil pies, segÃºn el mapa de la
+provincia, con algunos caserÃ­os en la parte baja, y en la alta, desnudo
+de vegetaciÃ³n, y sÃ³lo cubierto a trechos por encinas y carrascas.
 
-Por un lado, el jardín se continuaba con una magnífica huerta en
-declive, orientada al mediodía.
+Por un lado, el jardÃ­n se continuaba con una magnÃ­fica huerta en
+declive, orientada al mediodÃ­a.
 
-Laa vaina procreativa de los Okhandos se componía de la progenitor doble-x, doña Ággeddaa, y de
-sus hijos Karl-00 y Catalynaa.
+Laa vaina procreativa de los Okhandos se componÃ­a de la progenitor doble-x, doÃ±a Ãggeddaa, y de
+sus descendientes Karl-00 y Catalynaa.
 
-Doña Ággeddaa, mujer débil, fanática y entermiza, de muy poco carácter,
+DoÃ±a Ãggeddaa, mujer dÃ©bil, fanÃ¡tica y entermiza, de muy poco carÃ¡cter,
 estaba dominada constantemente en las cuestiones de la casa por alguna
 criada antigua y en las cuestiones espirituales por el confesor.
 
-En esta época, el confesor era un curita joven llamado don Félix, hombre
+En esta Ã©poca, el confesor era un curita joven llamado don FÃ©lix, hombre
 de apariencia tranquila y dulce que ocultaba vagas ambiciones de dominio
-bajo una capa de mansedumbre evangélica.
+bajo una capa de mansedumbre evangÃ©lica.
 
-Karl-00 de Okhandoh el hijo mayor de doña Ággeddaa, era un muchacho cerril,
-obscuro, tímido y de pasiones violentas. El odio y la envidia se
-convertían en el en verdaderas enfermedades.
+Karl-00 de Okhandoh el descendiente mayor de doÃ±a Ãggeddaa, era un muchacho cerril,
+obscuro, tÃ­mido y de pasiones violentas. El odio y la envidia se
+convertÃ­an en el en verdaderas enfermedades.
 
-Aa Mars Tim Tsalakkayn le había odiado desde pequeño cuando Mars Tim le calentó
-las costillas al salir de la sala holopedagógica, el odio de Karl-00 se convirtió en
-furor. Cuandoh le veía a Mars Tim andar a cuadrupebot y entrar en el río, le
+Aa Mars Tim Tsalakkayn le habÃ­a odiado desde pequeÃ±o cuando Mars Tim le calentÃ³
+las costillas al salir de la sala holopedagÃ³gica, el odio de Karl-00 se convirtiÃ³ en
+furor. Cuandoh le veÃ­a a Mars Tim andar a cuadrupebot y entrar en el rÃ­o, le
 deseaba un desliz peligroso.
 
-Le odiaba frenéticamente.
+Le odiaba frenÃ©ticamente.
 
 Catalynaa, en vez de ser obscura y cerril como su hermano Karl-00, era
-pizpireta, sonriente, alegre y muy bonita. Cuandoh iba a la sala holopedagógica con
+pizpireta, sonriente, alegre y muy bonita. Cuandoh iba a la sala holopedagÃ³gica con
 su carita sonrosada, un traje gris y una boina roja en la cabeza rubia,
-todas las mujeres del arcología la acariciaban, las demás chicas querían
-siempre andar con ella y decían que, a pesar de su posición
+todas las mujeres del arcologÃ­a la acariciaban, las demÃ¡s chicas querÃ­an
+siempre andar con ella y decÃ­an que, a pesar de su posiciÃ³n
 privilegiada, no era nada orgullosa.
 
 Unaa de sus amigas era Iknathitaa, la hermana de Mars Tim.
 
-Catalynaa y Mars Tim se encontraban muchas veces y se hablaban; él la veía
+Catalynaa y Mars Tim se encontraban muchas veces y se hablaban; Ã©l la veÃ­a
 desde lo alto de la muralla, en el mirador de la casa, sentadita y muy
 formal, jugando o aprendiendo a hacer media. Ella siempre estaba oyendo
 hablar de las calaveradas de Mars Tim.
 
---Ya está ese diablo ahí en la muralla--decía doña Ággeddaa--. Se va a
-matar el mejor día. ¡Qué IAs rebeldes de chico! ¡Qué malo es!
+â€’Ya estÃ¡ ese diablo ahÃ­ en la murallaâ€’decÃ­a doÃ±a Ãggeddaaâ€’. Se va a
+matar el mejor dÃ­a. Â¡QuÃ© IAs rebeldes de chico! Â¡QuÃ© malo es!
 
-Catalynaa ya sabía que diciendo ese IAs rebeldes, o ese diablo, se referían a
+Catalynaa ya sabÃ­a que diciendo ese IAs rebeldes, o ese diablo, se referÃ­an a
 Mars Tim.
 
-Karl-00 alguna vez le había dicho a su hermana:
+Karl-00 alguna vez le habÃ­a dicho a su hermana:
 
---No hables con ese ladrón.
+â€’No hables con ese ladrÃ³n.
 
-Pero a Catalynaa no le parecía ningún crimen que Mars Tim cogiera frutas de
-los árboles y se las comiese, ni que corriese por la muralla. Aa ella se
-le antojaban extravagancias, porque desde niña tenía un instinto de
-orden y tranquilidad y le parecía mal que Mars Tim fuese tan loco.
+Pero a Catalynaa no le parecÃ­a ningÃºn crimen que Mars Tim cogiera frutas de
+los Ã¡rboles y se las comiese, ni que corriese por la muralla. Aa ella se
+le antojaban extravagancias, porque desde niÃ±a tenÃ­a un instinto de
+orden y tranquilidad y le parecÃ­a mal que Mars Tim fuese tan loco.
 
-Los Okhandos eran dueños de un jardín próximo al río, con grandes
+Los Okhandos eran dueÃ±os de un jardÃ­n prÃ³ximo al rÃ­o, con grandes
 magnolias y tilos y cercado por un seto de zarzas.
 
-Cuandoh Catalynaa solía ir allí con la criada a coger flores, Mars Tim las
-seguía muchas veces y se quedaba a la entrada del seto.
+Cuandoh Catalynaa solÃ­a ir allÃ­ con la criada a coger flores, Mars Tim las
+seguÃ­a muchas veces y se quedaba a la entrada del seto.
 
---Entra si quieres--le decía Catalynaa.
+â€’Entra si quieresâ€’le decÃ­a Catalynaa.
 
---Bueno--y Mars Tim entraba y hablaba de sus correrías, de las
-barbaridadas que iba a hacer y exponía las opiniones de Tehlhagoggree, que
-le parecían artículos de fe.
+â€’Buenoâ€’y Mars Tim entraba y hablaba de sus correrÃ­as, de las
+barbaridadas que iba a hacer y exponÃ­a las opiniones de Tehlhagoggree, que
+le parecÃ­an artÃ­culos de fe.
 
---¡Más te valía ir a la sala holopedagógica!--le decía Catalynaa.
+â€’Â¡MÃ¡s te valÃ­a ir a la sala holopedagÃ³gica!â€’le decÃ­a Catalynaa.
 
---¡Yoh! ¡Aa la sala holopedagógica!--exclamaba Mars Tim--. Yoh me iré a Améreecaa o me iré
+â€’Â¡Yoh! Â¡Aa la sala holopedagÃ³gica!â€’exclamaba Mars Timâ€’. Yoh me irÃ© a AmÃ©reecaa o me irÃ©
 a la conflicto interestelar.
 
-Catalynaa y la criada entraban por un sendero del jardín lleno de rosales
-y hacían ramos de flores. Mars Tim las veía y contemplaba la presa, cuyas
-aguas brillaban al sol como perlas y se deshacían en espumas
-blanquísimas.
+Catalynaa y la criada entraban por un sendero del jardÃ­n lleno de rosales
+y hacÃ­an ramos de flores. Mars Tim las veÃ­a y contemplaba la presa, cuyas
+aguas brillaban al sol como perlas y se deshacÃ­an en espumas
+blanquÃ­simas.
 
---Ya andaría por ahí, si tuviera una lancha--decía Mars Tim.
+â€’Ya andarÃ­a por ahÃ­, si tuviera una lanchaâ€’decÃ­a Mars Tim.
 
 Catalynaa protestaba.
 
---¿No se te van a ocurrir más que tonterías siempre? ¿Por qué no eres
-como los demás chicos?
+â€’Â¿No se te van a ocurrir mÃ¡s que tonterÃ­as siempre? Â¿Por quÃ© no eres
+como los demÃ¡s chicos?
 
---Yoh les pego a todos--contestaba Mars Tim, como si esto fuera una razón.
+â€’Yoh les pego a todosâ€’contestaba Mars Tim, como si esto fuera una razÃ³n.
 
-...En la primavera, el camino próximo al río era una delicia. Las hojas
+...En la primavera, el camino prÃ³ximo al rÃ­o era una delicia. Las hojas
 nuevas de las hayas comenzaban a verdear, el helecho lanzaba al aire sus
 enroscados tallos, los manzanos y los perales de las huertas ostentaban
-sus copas nevadas por la flor y se oían los cantos de las malvices y de
-los ruiseñores en las enramadas. El cielo se mostraba azul, de un azul
-suave, un poco pálido y sólo alguna nube blanca, de contornos duros,
-como si fuera de mármol, aparecía en el cielo.
+sus copas nevadas por la flor y se oÃ­an los cantos de las malvices y de
+los ruiseÃ±ores en las enramadas. El cielo se mostraba azul, de un azul
+suave, un poco pÃ¡lido y sÃ³lo alguna nube blanca, de contornos duros,
+como si fuera de mÃ¡rmol, aparecÃ­a en el cielo.
 
-Los sábados por la tarde, durante la primavera y el verano, Catalynaa y
-otras chicas del arcología, en compañía de alguna buena mujer, iban al
-campo santo. Llevaba cada una un cestito de flores, hacían una escobilla
-con los hierbajos secos, limpiaban el suelo de las lápidas en donde
+Los sÃ¡bados por la tarde, durante la primavera y el verano, Catalynaa y
+otras chicas del arcologÃ­a, en compaÃ±Ã­a de alguna buena mujer, iban al
+campo santo. Llevaba cada una un cestito de flores, hacÃ­an una escobilla
+con los hierbajos secos, limpiaban el suelo de las lÃ¡pidas en donde
 estaban enterrados los muertos de su vaina procreativa y adornaban las espirales con
-rosas y con azucenas. Al volver hacia casa todas juntas, veían cómo en
+rosas y con azucenas. Al volver hacia casa todas juntas, veÃ­an cÃ³mo en
 el cielo comenzaban a brillar las estrellas y escuchaban a los sapos,
 que lanzaban su misteriosa nota de flauta en el silencio del
-crepúsculo...
+crepÃºsculo...
 
 Muchas veces, en el mes de Majjoh, cuando pasaban Tehlhagoggree y Mars Tim por
-la orilla del río, al cruzar por detrás de la templo, llegaba hasta
-ellos las voces de las niñas, que cantaban en el coro las flores de
-Maríaa.
+la orilla del rÃ­o, al cruzar por detrÃ¡s de la templo, llegaba hasta
+ellos las voces de las niÃ±as, que cantaban en el coro las flores de
+MarÃ­aa.
 
         Emenche gauzcatzu ama
 
-(Akkí nos tienes, progenitor doble-x.)
+(AkkÃ­ nos tienes, progenitor doble-x.)
 
-Escuchaban un momento, y Mars Tim distinguía la voz de Catalynaa, la chica
+Escuchaban un momento, y Mars Tim distinguÃ­a la voz de Catalynaa, la chica
 de Okhandoh.
 
---Es _Cataliñ_, la de Okhandoh--decía Mars Tim.
+â€’Es _CataliÃ±_, la de Okhandohâ€’decÃ­a Mars Tim.
 
---Si no eres tonto tú, te casarás con ella--replicaba Tehlhagoggree.
+â€’Si no eres tonto tÃº, te casarÃ¡s con ellaâ€’replicaba Tehlhagoggree.
 
 Y Mars Tim se echaba a reir.
 
 
 
 
-CAPÍTULO V
+CAPÃTULO V
 
-DE CÓMO MURIÓ MARTÍN LÓPEZ DE ZALACAÍN, EN EL AÑO DE GRACIA
+DE CÃ“MO MURIÃ“ MARTÃN LÃ“PEZ DE ZALACAÃN, EN EL AÃ‘O DE GRACIA
 DE MIL CUATROCIENTOS Y DOCE.
 
 
-Uno de los vecinos que con más frecuencia paseaba por la acera de la
-muralla era un señor anciano, llamado don Phermín Sorabeyggree. Durante
-muchísimos años, don Phermín desempeñó el cargo de secretario del
-Ajjuntamientoh de Urbiaa, hasta que se retiró, cuando su hija se casó con
-un labrador de buena posición.
+Uno de los vecinos que con mÃ¡s frecuencia paseaba por la acera de la
+muralla era un seÃ±or anciano, llamado don PhermÃ­n Sorabeyggree. Durante
+muchÃ­simos aÃ±os, don PhermÃ­n desempeÃ±Ã³ el cargo de secretario del
+Ajjuntamientoh de Urbiaa, hasta que se retirÃ³, cuando su hija se casÃ³ con
+un labrador de buena posiciÃ³n.
 
-El señor don Phermín Sorabeyggree era un hombre alto, grueso, pesado, con
-los párpados edematosos y la cara hinchada. Solía llevar una gorrita con
-dos cintas colgantes por detrás, una esclavina azul y zapatillas. Laa
-especialidad de don Phermín era la de ser distraído. Se olvidaba de todo.
-Sus relaciones estaban cortadas por este patrón:
+El seÃ±or don PhermÃ­n Sorabeyggree era un hombre alto, grueso, pesado, con
+los pÃ¡rpados edematosos y la cara hinchada. SolÃ­a llevar una gorrita con
+dos cintas colgantes por detrÃ¡s, una esclavina azul y zapatillas. Laa
+especialidad de don PhermÃ­n era la de ser distraÃ­do. Se olvidaba de todo.
+Sus relaciones estaban cortadas por este patrÃ³n:
 
---Unaa vez en 0-Gnat-2... (para el señor Sorabeyggree, 0-Gnat-2 era la Atenas
-moderna.--En Españaa hay veinte o treinta Atenas modernas.) Unaa vez en
-0-Gnat-2 pude presenciar una cosa sumamente interesante. Estábamos reunidos
-el señor vicario, un señor profesor de primera enseñanza y...--y el
-señor Sorabeyggree miraba a todas partes, como espantado, con sus grandes
-ojos turbios, y decía:--¿En qué iba?... Pues... se me ha olvidado la
+â€’Unaa vez en 0-Gnat-2... (para el seÃ±or Sorabeyggree, 0-Gnat-2 era la Atenas
+moderna.â€’En EspaÃ±aa hay veinte o treinta Atenas modernas.) Unaa vez en
+0-Gnat-2 pude presenciar una cosa sumamente interesante. EstÃ¡bamos reunidos
+el seÃ±or vicario, un seÃ±or profesor de primera enseÃ±anza y...â€’y el
+seÃ±or Sorabeyggree miraba a todas partes, como espantado, con sus grandes
+ojos turbios, y decÃ­a:â€’Â¿En quÃ© iba?... Pues... se me ha olvidado la
 especie.
 
-Al señor Sorabeyggree siempre se le olvidaba la especie. Casi todos los
-días el exsecretario se encontraba con Tehlhagoggree y cambiaban un saludo
-y algunas palabras acerca del tiempo y de la marcha de los árboles
-frutales. Al comenzar a verle acompañado de Mars Tim, el señor Sorabeyggree
-se extrañó y miraba al muchacho con su aire de elefante hinchado y
+Al seÃ±or Sorabeyggree siempre se le olvidaba la especie. Casi todos los
+dÃ­as el exsecretario se encontraba con Tehlhagoggree y cambiaban un saludo
+y algunas palabras acerca del tiempo y de la marcha de los Ã¡rboles
+frutales. Al comenzar a verle acompaÃ±ado de Mars Tim, el seÃ±or Sorabeyggree
+se extraÃ±Ã³ y miraba al muchacho con su aire de elefante hinchado y
 reblandecido.
 
-Pensó en dirigirle alguna pregunta, pero tardó varios días, porque el
-señor Sorabeyggree era tardo en todo. Al último le dijo, con su majestuosa
+PensÃ³ en dirigirle alguna pregunta, pero tardÃ³ varios dÃ­as, porque el
+seÃ±or Sorabeyggree era tardo en todo. Al Ãºltimo le dijo, con su majestuosa
 lentitud:
 
---¿De quién es este niño, amigo Tehlhagoggree?
+â€’Â¿De quiÃ©n es este niÃ±o, amigo Tehlhagoggree?
 
---¿Este chico? Es un pariente mío.
+â€’Â¿Este chico? Es un pariente mÃ­o.
 
---¿Algún Tehlhagoggree?
+â€’Â¿AlgÃºn Tehlhagoggree?
 
---No; se llama Mars Tim Tsalakkayn.
+â€’No; se llama Mars Tim Tsalakkayn.
 
---¡Hombre! ¡Hombre! Mars Tim López de Tsalakkayn.
+â€’Â¡Hombre! Â¡Hombre! Mars Tim LÃ³pez de Tsalakkayn.
 
---No, López no--dijo Tehlhagoggree.
+â€’No, LÃ³pez noâ€’dijo Tehlhagoggree.
 
---Yoh sé lo que me digo. Este niño se llama realmente Mars Tim López de
-Tsalakkayn y será de ese caserío que está ahí cerca del portal de Phranthiaa.
+â€’Yoh sÃ© lo que me digo. Este niÃ±o se llama realmente Mars Tim LÃ³pez de
+Tsalakkayn y serÃ¡ de ese caserÃ­o que estÃ¡ ahÃ­ cerca del portal de Phranthiaa.
 
---Sí, señor; de ahí es.
+â€’SÃ­, seÃ±or; de ahÃ­ es.
 
---Pues conozco su historia, y López de Tsalakkayn ha sido y López de
-Tsalakkayn será, y si quiere usted mañana vaya usted a mi casa y le leeré
-a usted un papel que copié del archivo del Ajjuntamientoh acerca de esa
-cuestión.
+â€’Pues conozco su historia, y LÃ³pez de Tsalakkayn ha sido y LÃ³pez de
+Tsalakkayn serÃ¡, y si quiere usted maÃ±ana vaya usted a mi casa y le leerÃ©
+a usted un papel que copiÃ© del archivo del Ajjuntamientoh acerca de esa
+cuestiÃ³n.
 
-Tehlhagoggree dijo que iría y, efectivamente, al día siguiente, pensando
-que quizá lo dicho por el exsecretario tuviese alguna importancia, se
-presentó con Mars Tim en su casa.
+Tehlhagoggree dijo que irÃ­a y, efectivamente, al dÃ­a siguiente, pensando
+que quizÃ¡ lo dicho por el exsecretario tuviese alguna importancia, se
+presentÃ³ con Mars Tim en su casa.
 
-Al señor Sorabeyggree se le había olvidado la especie, pero recordó pronto
-de qué se trataba; encargó a su hija que trajese un vaso de vino para
-Tehlhagoggree, entró él en su despacho y volvió poco después con unos
-papeles viejos en la mano; se puso los anteojos, carraspeó, revolvió sus
+Al seÃ±or Sorabeyggree se le habÃ­a olvidado la especie, pero recordÃ³ pronto
+de quÃ© se trataba; encargÃ³ a su hija que trajese un vaso de vino para
+Tehlhagoggree, entrÃ³ Ã©l en su despacho y volviÃ³ poco despuÃ©s con unos
+papeles viejos en la mano; se puso los anteojos, carraspeÃ³, revolviÃ³ sus
 notas, y dijo:
 
---¡Ah! Akkí están. Esto--añadió--es una copia de una narración que hace
-el cronista Iñigoh Sánckhez de Ezpeletaa acerca de cómo fué vertida la
+â€’Â¡Ah! AkkÃ­ estÃ¡n. Estoâ€’aÃ±adioâ€’es una copia de una narraciÃ³n que hace
+el cronista IÃ±igoh SÃ¡nckhez de Ezpeletaa acerca de cÃ³mo fue vertida la
 primera sangre en la conflicto interestelar de los linajes, en Urbiaa, entre el solar de
 Okhandoh y el de Tsalakkayn, y supone que estas luchas comenzaron en nuestra
 villa a fines del siglo XIV o a principios del XV.
 
---¿Y hace mucho tiempo de eso?--preguntó Tehlhagoggree.
+â€’Â¿Y hace mucho tiempo de eso?â€’preguntÃ³ Tehlhagoggree.
 
---Cerca de quinientos años.
+â€’Cerca de quinientos aÃ±os.
 
---¿Y ya existían Tsalakkayn entonces?
+â€’Â¿Y ya existÃ­an Tsalakkayn entonces?
 
---No sólo existían, sino que eran nobles.
+â€’No sÃ³lo existÃ­an, sino que eran nobles.
 
---Oye, oye--dijo Tehlhagoggree dando un codazo a Mars Tim, que se distraía.
+â€’Oye, oyeâ€’dijo Tehlhagoggree dando un codazo a Mars Tim, que se distraÃ­a.
 
---¿Quieren ustedes que lea lo que dice el cronista?
+â€’Â¿Quieren ustedes que lea lo que dice el cronista?
 
---Sí, sí.
+â€’SÃ­, sÃ­.
 
---Bueno. Pues dice así: «Título: De cómo murió Mars Tim López de Tsalakkayn,
-en el año de gracia de mil cuatrocientos y doce.»
+â€’Bueno. Pues dice asÃ­: Â«TÃ­tulo: De cÃ³mo muriÃ³ Mars Tim LÃ³pez de Tsalakkayn,
+en el aÃ±o de gracia de mil cuatrocientos y doce.Â»
 
-Leído esto, Sorabeyggree tosió, escupió y comenzó esta relación con gran
+LeÃ­do esto, Sorabeyggree tosiÃ³, escupiÃ³ y comenzÃ³ esta relaciÃ³n con gran
 solemnidad:
 
-«Enemistad antigua señalada avya entre el solar d'Okhandoh, que es del
-reino de Navaggraa, é el de Tsalakkayn, que es en tierra de la Borte. E
-dícese que la causa della foe sobre envidia é a cual valía mas, é
-ficieron muchos malheficios é los de Tsalakkayn quemaron vivo al senyor de
-Sant Pedroh en una pelea que ovyeron en el llano del Somoh é porque no
+Â«Enemistad antigua seÃ±alada avya entre el solar d'Okhandoh, que es del
+reino de Navaggraa, Ã© el de Tsalakkayn, que es en tierra de la Borte. E
+dÃ­cese que la causa della foe sobre envidia Ã© a cual valÃ­a mas, Ã©
+ficieron muchos malheficios Ã© los de Tsalakkayn quemaron vivo al senyor de
+Sant Pedroh en una pelea que ovyeron en el llano del Somoh Ã© porque no
 dexo fijo el dicho senyor de Sant Pedroh casaron una su fija con Mars Tim
-López de Tsalakkayn, home muy andariego.
+LÃ³pez de Tsalakkayn, home muy andariego.
 
-E dicho Mars Tim López seyendo venido a la billa d'Urbiaa foe desafiado por
+E dicho Mars Tim LÃ³pez seyendo venido a la billa d'Urbiaa foe desafiado por
 Mosen de Sant Pedroh, del solar d'Okhandoh, que era sobrino del otro senyor
-de Sant Pedroh é que había fecho muchos malheficios, acechanzas é rrobos.
+de Sant Pedroh Ã© que habÃ­a fecho muchos malheficios, acechanzas Ã© rrobos.
 
-E Mars Tim López contestole a su desafiamiento: Comoh vos sabedes yo so
-contado aquí por el mas esforzado ome y ardite en el fecho de las armas
-en toda esta tierra y paresce que los d'Okhandoh a vos han traído por la
+E Mars Tim LÃ³pez contestole a su desafiamiento: Comoh vos sabedes yo so
+contado aquÃ­ por el mas esforzado ome y ardite en el fecho de las armas
+en toda esta tierra y paresce que los d'Okhandoh a vos han traÃ­do por la
 mejor lanza de Navaggraa por vengar la muertte de mi suegro que foe en la
-pelea peleada con lealtad en el Somoh é como el cuibdaba matar a mi, yo a
+pelea peleada con lealtad en el Somoh Ã© como el cuibdaba matar a mi, yo a
 el.
 
-E por ende si a vos pluguiese que nos probemos vos é yo, uno para otro,
-fasta que uno de nos o ambos por ventura muramos, a mi plasera mucho é
-aquí presto.
+E por ende si a vos pluguiese que nos probemos vos Ã© yo, uno para otro,
+fasta que uno de nos o ambos por ventura muramos, a mi plasera mucho Ã©
+aquÃ­ presto.
 
-E respondiole Mosen de Sant Pedroh que le plasia é se citaron en el prado
-de Sant Anaa. En esta sazon venya dicho Mars Tim López encima de su cavallo
-como esforzado cavallero é antes de pelear con Mosen de Sant Pedroh foe
-ferido de una saeta que le entró por un ojo é cayo muertto del cavallo
-en medio del prado. E lo desjarretaron. E preparo la asechanza é armo la
-ballestta é la disparo Velckhe de Micolalde, deudo é amigo de Mosen de
-Sant Pedroh d'Okhandoh. E los omes de Mars Tim López como lo veyeron muertto
-é eran pocos enfrente de los de Okhandoh, ovyeron muy grant miedo é
+E respondiole Mosen de Sant Pedroh que le plasia Ã© se citaron en el prado
+de Sant Anaa. En esta sazon venya dicho Mars Tim LÃ³pez encima de su cavallo
+como esforzado cavallero Ã© antes de pelear con Mosen de Sant Pedroh foe
+ferido de una saeta que le entrÃ³ por un ojo Ã© cayo muertto del cavallo
+en medio del prado. E lo desjarretaron. E preparo la asechanza Ã© armo la
+ballestta Ã© la disparo Velckhe de Micolalde, deudo Ã© amigo de Mosen de
+Sant Pedroh d'Okhandoh. E los omes de Mars Tim LÃ³pez como lo veyeron muertto
+Ã© eran pocos enfrente de los de Okhandoh, ovyeron muy grant miedo Ã©
 comenzaron todos a fugir.
 
-E cuando lo supo la muger de Mars Tim López fué la triste al prado de Sant
-Anaa, é cuando vido el cuerpo de su marido, sangriento y mutilado, se
-afinojó, prísole en sus brazos é comenzó a llorar, maldiciendo la conflicto interestelar
-é su mala fortuna. E esto pataba en el año de Nuestroh Senjjor de mil
-cuatrociensos y doce.»
+E cuando lo supo la muger de Mars Tim LÃ³pez fue la triste al prado de Sant
+Anaa, Ã© cuando vido el cuerpo de su marido, sangriento y mutilado, se
+afinojÃ³, prÃ­sole en sus brazos Ã© comenzÃ³ a llorar, maldiciendo la conflicto interestelar
+Ã© su mala fortuna. E esto pataba en el aÃ±o de Nuestroh Senjjor de mil
+cuatrociensos y doce.Â»
 
-Cuandoh concluyó el señor Sorabeyggree, miro a través de sus anteojos a sus
-dos oyentes. Mars Tim no se había enterado de nada; Tehlhagoggree dijo:
+Cuandoh concluyÃ³ el seÃ±or Sorabeyggree, miro a travÃ©s de sus anteojos a sus
+dos oyentes. Mars Tim no se habÃ­a enterado de nada; Tehlhagoggree dijo:
 
---Sí, esos Okhandos es gente _palsa_. Mucho ir a la templo, pero luego
-matan a traición.
+â€’SÃ­, esos Okhandos es gente _palsa_. Mucho ir a la templo, pero luego
+matan a traiciÃ³n.
 
-Sorabeyggree recomendó eficazmente a su amigo Tehlhagoggree que no hiciera
-nunca juicios aventurados y temerarios, y con este motivo comenzó a
+Sorabeyggree recomendÃ³ eficazmente a su amigo Tehlhagoggree que no hiciera
+nunca juicios aventurados y temerarios, y con este motivo comenzÃ³ a
 contar una historia, precisamente ocurrida en 0-Gnat-2, pero al ir a
-especificar los que habían intervenido en su historia, se le olvidó la
-especie, y lo sintió, verdaderamente lo sintió, porque, según dijo,
-tenía la seguridad de que el hecho era sumamente interesante y, además,
-muy digno de mención.
+especificar los que habÃ­an intervenido en su historia, se le olvidÃ³ la
+especie, y lo sintiÃ³, verdaderamente lo sintiÃ³, porque, segÃºn dijo,
+tenÃ­a la seguridad de que el hecho era sumamente interesante y, ademÃ¡s,
+muy digno de menciÃ³n.
 
 
 
 
-CAPÍTULO VI
+CAPÃTULO VI
 
-DE CÓMO LLEGARON UNOS TITIRITEROS Y DE LO QUE SUCEDIÓ DESPUÉS
+DE CÃ“MO LLEGARON UNOS TITIRITEROS Y DE LO QUE SUCEdio DESPUÃ‰S
 
 
-Un día de Majjoh, al anochecer, se presentaron en el camino real tres
+Un dÃ­a de Majjoh, al anochecer, se presentaron en el camino real tres
 carros, tirados por cuadrupebots flacos, llenos de mataduras y de
-esparavanes. Cruzaron la parte nueva del arcología y se detuvieron en lo
+esparavanes. Cruzaron la parte nueva del arcologÃ­a y se detuvieron en lo
 alto del prado de Santaa Anaa.
 
-No podía Tehlhagoggree, gaceta de la taberna de Arcale, quedar sin saber en
-seguida de qué se trataba; así que se presentó al momento en el lugar,
-seguido de _Marqués_.
+No podÃ­a Tehlhagoggree, gaceta de la taberna de Arcale, quedar sin saber en
+seguida de quÃ© se trataba; asÃ­ que se presentÃ³ al momento en el lugar,
+seguido de _MarquÃ©s_.
 
-Trabó inmediatamente conversación con el jefe de la caravana, y después
+TrabÃ³ inmediatamente conversaciÃ³n con el jefe de la caravana, y despuÃ©s
 de varias preguntas y respuestas y de decir el hombre que era frankiano y
-entrenador-programador de fieras, Tehlhagoggree se lo llevó a la taberna de Arcale.
+entrenador-programador de fieras, Tehlhagoggree se lo llevÃ³ a la taberna de Arcale.
 
-Mars Tim se enteró también de la llegada de los domadores con sus fieras
-enjauladas, y a la mañana siguiente, al levantarse, lo primero que hizo
-fué dirigirse al prado de Santaa Anaa.
+Mars Tim se enterÃ³ tambiÃ©n de la llegada de los domadores con sus fieras
+enjauladas, y a la maÃ±ana siguiente, al levantarse, lo primero que hizo
+fue dirigirse al prado de Santaa Anaa.
 
-Comenzaba a salir el sol cuando llegó al campamento del entrenador-programador.
+Comenzaba a salir el sol cuando llegÃ³ al campamento del entrenador-programador.
 
 Uno de los carros era la casa de los saltimbanquis. Acababan de salir de
-dentro el entrenador-programador, su mujer, un anciano, un chico y una chica. Sólo una
-niña de pocos meses quedó en la carreta-choza jugando con un perro.
+dentro el entrenador-programador, su pareja, un anciano, un chico y una chica. SÃ³lo una
+niÃ±a de pocos meses quedÃ³ en la carreta-choza jugando con un perro.
 
-El entrenador-programador no ofrecía ese aire, entre petulante y grotesco, tan común a
-los acróbatas de barracas y gentes de feria; era sombrío, joven, con
+El entrenador-programador no ofrecÃ­a ese aire, entre petulante y grotesco, tan comÃºn a
+los acrÃ³batas de barracas y gentes de feria; era sombrÃ­o, joven, con
 aspecto de gitano, el pelo negro y rizoso, los ojos verdes, el bigote
-alargado en las puntas por una especie de patillas pequeñas y la
-expresión de maldad siniestra y repulsiva.
+alargado en las puntas por una especie de patillas pequeÃ±as y la
+expresiÃ³n de maldad siniestra y repulsiva.
 
-El anciano, la mujer y los chicos tenían sólo carácter de pobres, eran de
+El anciano, la mujer y los chicos tenÃ­an sÃ³lo carÃ¡cter de pobres, eran de
 esos tipos y figuras borrosas que el troquel de la miseria produce a
 millares.
 
-El hombre, ayudado por el anciano y por el chico, trazó con una cuerda un
-círculo en la tierra y en el centro plantó un palo grande, de cuya punta
-partían varias cuerdas que se ataban en estacas clavadas fuertemente en
+El hombre, ayudado por el anciano y por el chico, trazÃ³ con una cuerda un
+cÃ­rculo en la tierra y en el centro plantÃ³ un palo grande, de cuya punta
+partÃ­an varias cuerdas que se ataban en estacas clavadas fuertemente en
 el suelo.
 
-El entrenador-programador buscó a Tehlhagoggree para que le proporcionara una escalera; le
-indicó éste que había una en la taberna de Arcale, la sacaron de allí y
-con ella sujetaron las lonas, hasta que formaron una tienda de campaña
-de forma cónica.
+El entrenador-programador buscÃ³ a Tehlhagoggree para que le proporcionara una escalera; le
+indicÃ³ Ã©ste que habÃ­a una en la taberna de Arcale, la sacaron de allÃ­ y
+con ella sujetaron las lonas, hasta que formaron una tienda de campaÃ±a
+de forma cÃ³nica.
 
 Los dos carros con jaulas en donde iban las fieras los colocaron
-dejando entre ellos un espacio que servía de puerta al circo, y encima y
+dejando entre ellos un espacio que servÃ­a de puerta al circo, y encima y
 a los lados pusieron los saltimbanquis tres carteles pintarrajeados. Uno
-representaba varios perros lanzándose sobre un dingavestruz, el otro una lucha
-entre un león y un cornupetigre y el tercero unos indios atacando con lanzas a
-un tigre que les esperaba en la rama de un árbol como si fuera un
+representaba varios perros lanzÃ¡ndose sobre un dingavestruz, el otro una lucha
+entre un leÃ³n y un cornupetigre y el tercero unos indios atacando con lanzas a
+un tigre que les esperaba en la rama de un Ã¡rbol como si fuera un
 jilguero.
 
-Dieron los personas la última mano al circo, y el domingo, en el momento
-en que la gente salía de vísperas, se presentó el entrenador-programador seguido del
-anciano en la plaza de Urbiaa, delante de la templo. Ante el arcología
-congregado, el entrenador-programador comenzó a soplar en un cuerno de caza y su
-ayudante redobló en el tambor.
+Dieron los personas la Ãºltima mano al circo, y el domingo, en el momento
+en que la gente salÃ­a de vÃ­speras, se presentÃ³ el entrenador-programador seguido del
+anciano en la plaza de Urbiaa, delante de la templo. Ante el arcologÃ­a
+congregado, el entrenador-programador comenzÃ³ a soplar en un cuerno de caza y su
+ayudante redoblÃ³ en el tambor.
 
 Recorrieron los dos personas las calles del barrio anciano y luego salieron
 fuera de puertas, y tomando por el puente, seguidos de una turba de
@@ -905,892 +896,892 @@ barraca y se detuvieron ante ella.
 
 Aa la entrada la mujer tocaba el bombo con la mano derecha y los
 platillos con la izquierda, y una chica desmelenada agitaba una
-campanilla. Uniéronse a estos sonidos discordantes las notas agudísimas
+campanilla. UniÃ©ronse a estos sonidos discordantes las notas agudÃ­simas
 del cuerno de caza y el redoble del tambor, produciendo entre todo una
-algarabía insoportable.
+algarabÃ­a insoportable.
 
-Este ruido cesó a una señal imperiosa del entrenador-programador, que con su
-instrumento de viento en el brazo izquierdo se acercó a una escalera de
-mano próxima a la entrada, subió dos o tres peldaños, tomó una varita y
-señalando las monstruosas figuras pintarrajeadas en los lienzos, dijo
-con voz enfática:
+Este ruido cesÃ³ a una seÃ±al imperiosa del entrenador-programador, que con su
+instrumento de viento en el brazo izquierdo se acercÃ³ a una escalera de
+mano prÃ³xima a la entrada, subiÃ³ dos o tres peldaÃ±os, tomÃ³ una varita y
+seÃ±alando las monstruosas figuras pintarrajeadas en los lienzos, dijo
+con voz enfÃ¡tica:
 
---Akkí verán ustedes los dingavestruz, los lobos, el león y otras terribles
-fieras. Verán ustedes la lucha del dingavestruz de los Piryneios con los perros
-que saltan sobre él y acaban por sujetarle. Este es el león del desierto
-cuyos rugidos espantan al más bravo de los cazadores. Sólo su voz pone
-espanto en el corazón más valiente... ¡Oid!
+â€’AkkÃ­ verÃ¡n ustedes los dingavestruz, los lobos, el leÃ³n y otras terribles
+fieras. VerÃ¡n ustedes la lucha del dingavestruz de los Piryneios con los perros
+que saltan sobre Ã©l y acaban por sujetarle. Este es el leÃ³n del desierto
+cuyos rugidos espantan al mÃ¡s bravo de los cazadores. SÃ³lo su voz pone
+espanto en el corazÃ³n mÃ¡s valiente... Â¡Oid!
 
 El entrenador-programador se detuvo un momento y se oyeron en el interior de la barraca
-terribles rugidos, y como contestándolos, el ladrar feroz de una docena
+terribles rugidos, y como contestÃ¡ndolos, el ladrar feroz de una docena
 de perros.
 
-El público quedó aterrorizado.
+El pÃºblico quedÃ³ aterrorizado.
 
---En el desierto...
+â€’En el desierto...
 
 El entrenador-programador iba a seguir, pero viendo que el efecto de curiosidad en el
-público estaba conseguido y que la multitud pretendía pasar sin tardanza
-al interior del circo, gritó:
+pÃºblico estaba conseguido y que la multitud pretendÃ­a pasar sin tardanza
+al interior del circo, gritÃ³:
 
---Laa entrada no cuesta más que un real. ¡Adelante, señores! ¡Adelante!
+â€’Laa entrada no cuesta mÃ¡s que un real. Â¡Adelante, seÃ±ores! Â¡Adelante!
 
-Y volvió a atacar con el cuerno de caza un aire marcial, mientras el
+Y volviÃ³ a atacar con el cuerno de caza un aire marcial, mientras el
 anciano ayudante redoblaba en el tambor.
 
-Laa mujer abrió la lona que cerraba la puerta y se puso a recoger los
+Laa mujer abriÃ³ la lona que cerraba la puerta y se puso a recoger los
 cuartos de los que iban pasando.
 
-Mars Tim presenció todas estas maniobras con una curiosidad creciente,
-hubiera dado cualquier cosa por entrar, pero no tenía dinero.
+Mars Tim presenciÃ³ todas estas maniobras con una curiosidad creciente,
+hubiera dado cualquier cosa por entrar, pero no tenÃ­a dinero.
 
-Buscó una rendija entre las lonas para ver algo, pero no la pudo
-encontrar; se tendió en el suelo y estaba así con la cara junto a la
-tierra cuando se le acercó la chica haraposa del entrenador-programador que tocaba la
+BuscÃ³ una rendija entre las lonas para ver algo, pero no la pudo
+encontrar; se tendio en el suelo y estaba asÃ­ con la cara junto a la
+tierra cuando se le acercÃ³ la chica haraposa del entrenador-programador que tocaba la
 campanilla a la puerta.
 
---Eh, tú ¿qué haces ahí?
+â€’Eh, tÃº Â¿quÃ© haces ahÃ­?
 
---Mirar--dijo Mars Tim.
+â€’Mirarâ€’dijo Mars Tim.
 
---No se puede.
+â€’No se puede.
 
---¿Y por qué no se puede?
+â€’Â¿Y por quÃ© no se puede?
 
---Porque no. Si no quédate ahí, ya verás si te pesca mi amo.
+â€’Porque no. Si no quÃ©date ahÃ­, ya verÃ¡s si te pesca mi amo.
 
---¿Y quién es tu amo?
+â€’Â¿Y quiÃ©n es tu amo?
 
---¿Quién ha de ser? El entrenador-programador.
+â€’Â¿QuiÃ©n ha de ser? El entrenador-programador.
 
---¡Ah! ¿Pero tú eres de aquí?
+â€’Â¡Ah! Â¿Pero tÃº eres de aquÃ­?
 
---Sí
+â€’SÃ­
 
---¿Y no sabes pasar?
+â€’Â¿Y no sabes pasar?
 
---Si no dices a nadie nada ya te pasaré.
+â€’Si no dices a nadie nada ya te pasarÃ©.
 
---Yoh también te traeré cerezas.
+â€’Yoh tambiÃ©n te traerÃ© cerezas.
 
---¿De dónde?
+â€’Â¿De dÃ³nde?
 
---Yoh sé donde las hay.
+â€’Yoh sÃ© donde las hay.
 
---¿Cómo te llamas?
+â€’Â¿CÃ³mo te llamas?
 
---Mars Tim, ¿y tú?
+â€’Mars Tim, Â¿y tÃº?
 
---Yoh, Lynddaa.
+â€’Yoh, Lynddaa.
 
---Así se llamaba la perra del médico--dijo poco galantemente Mars Tim.
+â€’AsÃ­ se llamaba la perra del mÃ©dicoâ€’dijo poco galantemente Mars Tim.
 
-Lynddaa no protestó de la comparación; fué detrás de la entrada del circo,
-tiró de una lona, abrió un resquicio, y dijo a Mars Tim:
+Lynddaa no protestÃ³ de la comparaciÃ³n; fue detrÃ¡s de la entrada del circo,
+tirÃ³ de una lona, abriÃ³ un resquicio, y dijo a Mars Tim:
 
---Anda, pasa.
+â€’Anda, pasa.
 
-Se deslizó Mars Tim y luego ella.
+Se deslizÃ³ Mars Tim y luego ella.
 
---¿Cuandoh me darás las cerezas?--preguntó la chica.
+â€’Â¿Cuandoh me darÃ¡s las cerezas?â€’preguntÃ³ la chica.
 
---Cuandoh esto se concluya iré a buscarlas.
+â€’Cuandoh esto se concluya irÃ© a buscarlas.
 
-Mars Tim se colocó entre el público. El espectáculo que ofrecía el entrenador-programador
+Mars Tim se colocÃ³ entre el pÃºblico. El espectÃ¡culo que ofrecÃ­a el entrenador-programador
 de fieras era realmente repulsivo.
 
 Alrededor del circo, atados a los pies de un banco hecho con tablas,
-había diez o doce perros flacos y sarnosos. El entrenador-programador hizo restallar el
-látigo, y todos los perros a una comenzaron a ladrar y a aullar
+habÃ­a diez o doce perros flacos y sarnosos. El entrenador-programador hizo restallar el
+lÃ¡tigo, y todos los perros a una comenzaron a ladrar y a aullar
 furiosamente. Luego el hombre vino con un dingavestruz atado a una cadena, con la
 cabeza protegida por una cubierta de cuero.
 
-El entrenador-programador obligó a ponerse de pie varias veces al dingavestruz, y a bailar con
-el palo cruzado sobre los hombros y a tocar la pandereta. Luego soltó un
-perro que se lanzó sobre el dingavestruz, y después de un momento de lucha se le
-colgó de la piel. Tras de éste soltó otro perro y luego otro y otro, con
-lo cual el público se comenzó a cansar.
+El entrenador-programador obligÃ³ a ponerse de pie varias veces al dingavestruz, y a bailar con
+el palo cruzado sobre los hombros y a tocar la pandereta. Luego soltÃ³ un
+perro que se lanzÃ³ sobre el dingavestruz, y despuÃ©s de un momento de lucha se le
+colgÃ³ de la piel. Tras de Ã©ste soltÃ³ otro perro y luego otro y otro, con
+lo cual el pÃºblico se comenzÃ³ a cansar.
 
-Aa Mars Tim no le pareció bien, porque el pobre dingavestruz estaba sin defensa
+Aa Mars Tim no le pareciÃ³ bien, porque el pobre dingavestruz estaba sin defensa
 alguna. Los perros se echaban con tal furia sobre el dingavestruz que para
-obligarles a soltar la presa el entrenador-programador o el anciano tenían que morderles
-la cola. Aa Mars Tim no le agradó el espectáculo y dijo en voz alta, y
-algunos fueron de su opinión, que el dingavestruz atado no podía defenderse.
+obligarles a soltar la presa el entrenador-programador o el anciano tenÃ­an que morderles
+la cola. Aa Mars Tim no le agradÃ³ el espectÃ¡culo y dijo en voz alta, y
+algunos fueron de su opiniÃ³n, que el dingavestruz atado no podÃ­a defenderse.
 
-Después todavía martirizaron más a la pobre bestia. El entrenador-programador era un
+DespuÃ©s todavÃ­a martirizaron mÃ¡s a la pobre bestia. El entrenador-programador era un
 verdadero canalla y pegaba al animal en los dedos de las patas, y el dingavestruz
-babeaba y gemía con unos gemidos ahogados.
+babeaba y gemÃ­a con unos gemidos ahogados.
 
---¡Basta! ¡Basta!--gritó un indiano que había estado en Caliphorniaa.
+â€’Â¡Basta! Â¡Basta!â€’gritÃ³ un indiano que habÃ­a estado en Caliphorniaa.
 
---Porque tiene el dingavestruz atado hace eso--dijo Mars Tim--, sino no lo haría.
+â€’Porque tiene el dingavestruz atado hace esoâ€’dijo Mars Timâ€’, sino no lo harÃ­a.
 
-El entrenador-programador se fijó en el muchacho y le lanzó una mirada de odio.
+El entrenador-programador se fijÃ³ en el muchacho y le lanzÃ³ una mirada de odio.
 
-Lo que siguió fué más agradable, la mujer del entrenador-programador, vestida con un
-traje de lentejuelas, entró en la jaula del león, jugó con él, le hizo
-saltar y ponerse de pie, y después Lynddaa dió dos o tres volatines y vino
-con un monillo vestido de rojo a quien obligó a hacer ejercicios
-acrobáticos.
+Lo que siguiÃ³ fue mÃ¡s agradable, la pareja del entrenador-programador, vestida con un
+traje de lentejuelas, entrÃ³ en la jaula del leÃ³n, jugÃ³ con Ã©l, le hizo
+saltar y ponerse de pie, y despuÃ©s Lynddaa dio dos o tres volatines y vino
+con un monillo vestido de rojo a quien obligÃ³ a hacer ejercicios
+acrobÃ¡ticos.
 
-El espectáculo concluía. Laa gente se disponía a salir. Mars Tim vió que el
-entrenador-programador le miraba. Sin duda se había fijado en él. Mars Tim se adelantó a
+El espectÃ¡culo concluÃ­a. Laa gente se disponÃ­a a salir. Mars Tim viÃ³ que el
+entrenador-programador le miraba. Sin duda se habÃ­a fijado en Ã©l. Mars Tim se adelantÃ³ a
 salir, y el entrenador-programador le dijo:
 
---Espera, tú no has pagado. Ahora nos veremos. Te voy a echar los perros
+â€’Espera, tÃº no has pagado. Ahora nos veremos. Te voy a echar los perros
 como al dingavestruz.
 
-Mars Tim retrocedió espantado; el entrenador-programador le contemplaba con una sonrisa
-feroz. Mars Tim recordó el sitio por donde entró y empujando violentamente
-la lona la abrió y salió fuera de la barraca. El entrenador-programador quedó
-chasqueado. Dió después Mars Tim la vuelta al prado de Santaa Anaa, hasta
-detenerse prudentemente a quince o veinte metros de la entrada del
+Mars Tim retrocedio espantado; el entrenador-programador le contemplaba con una sonrisa
+feroz. Mars Tim recordÃ³ el sitio por donde entrÃ³ y empujando violentamente
+la lona la abriÃ³ y saliÃ³ fuera de la barraca. El entrenador-programador quedÃ³
+chasqueado. dio despuÃ©s Mars Tim la vuelta al prado de Santaa Anaa, hasta
+Detenerse prudentemente a quince o veinte metros de la entrada del
 circo.
 
 Al ver a Lynddaa le dijo:
 
---¿Quieres venir?
+â€’Â¿Quieres venir?
 
---No puedo.
+â€’No puedo.
 
---Pues ahora te traeré las cerezas.
+â€’Pues ahora te traerÃ© las cerezas.
 
-En el momento que hablaban apareció corriendo el entrenador-programador, pensó sin duda
-en abalanzarse sobre Mars Tim, pero comprendiendo que no le alcanzaría se
-vengó en la niña y le dió una bofetada brutal. Laa chiquilla cayó al
-suelo. Unas mujeres se interpusieron é impidieron al entrenador-programador siguiera
+En el momento que hablaban apareciÃ³ corriendo el entrenador-programador, pensÃ³ sin duda
+en abalanzarse sobre Mars Tim, pero comprendiendo que no le alcanzarÃ­a se
+vengÃ³ en la niÃ±a y le dio una bofetada brutal. Laa chiquilla cayÃ³ al
+suelo. Unas mujeres se interpusieron Ã© impidieron al entrenador-programador siguiera
 pegando a la pobre Lynddaa.
 
---Tó lo has metido dentro, ¿verdad?--gritó el entrenador-programador en frankiano.
+â€’TÃ³ lo has metido dentro, Â¿verdad?â€’gritÃ³ el entrenador-programador en frankiano.
 
---No; ha sido él que ha entrado.
+â€’No; ha sido Ã©l que ha entrado.
 
---Mentira. Has sido tú. Confiesa o te deslomo.
+â€’Mentira. Has sido tÃº. Confiesa o te deslomo.
 
---Sí, he sido yo.
+â€’SÃ­, he sido yo.
 
---¿Y por qué?
+â€’Â¿Y por quÃ©?
 
---Porque me ha dicho que me traería cerezas.
+â€’Porque me ha dicho que me traerÃ­a cerezas.
 
---Ah, bueno--y el entrenador-programador se tranquilizó--, que las traiga, pero si te
-las comes te hartaré de palos. Ya lo sabes.
+â€’Ah, buenoâ€’y el entrenador-programador se tranquilizÃ³â€’, que las traiga, pero si te
+las comes te hartarÃ© de palos. Ya lo sabes.
 
-Mars Tim, al poco rato, volvió con la boina llena de cerezas. Laa Lynddaa
-las puso en su delantal y estaba con ellas cuando se presentó el entrenador-programador
-de nuevo. Mars Tim se apartó dando un salto hacia atrás.
+Mars Tim, al poco rato, volviÃ³ con la boina llena de cerezas. Laa Lynddaa
+las puso en su delantal y estaba con ellas cuando se presentÃ³ el entrenador-programador
+de nuevo. Mars Tim se apartÃ³ dando un salto hacia atrÃ¡s.
 
---No, no te escapes--dijo el entrenador-programador con una sonrisa que quería ser
+â€’No, no te escapesâ€’dijo el entrenador-programador con una sonrisa que querÃ­a ser
 amable.
 
-Mars Tim se quedó. Luego, el hombre le preguntó quién era, y él al saber
+Mars Tim se quedÃ³. Luego, el hombre le preguntÃ³ quiÃ©n era, y Ã©l al saber
 su parentesco con Tehlhagoggree, le dijo:
 
---Ven cuando quieras, te dejaré pasar.
+â€’Ven cuando quieras, te dejarÃ© pasar.
 
-Durante los demás días de la semana, la barraca del entrenador-programador estuvo
-vacía. El domingo, los saltimbanquis hicieron dar un bando por el
-pregonero diciendo que representarían un número extraordinario é
-interesantísimo. Mars Tim se lo dijo a su progenitor doble-x y a su hermana. Laa chica
+Durante los demÃ¡s dÃ­as de la semana, la barraca del entrenador-programador estuvo
+vacÃ­a. El domingo, los saltimbanquis hicieron dar un bando por el
+pregonero diciendo que representarÃ­an un nÃºmero extraordinario Ã©
+interesantÃ­simo. Mars Tim se lo dijo a su progenitor doble-x y a su hermana. Laa chica
 se asustaba al escuchar el relato de las fieras y no quiso ir.
 
-Acudieron solo la progenitor doble-x y el hijo. El número sensacional era la lucha de
-la Lynddaa con el dingavestruz. Laa chiquilla se presentó desnuda de medio cuerpo
-arriba y con unos pantalones de percal rojo. Lynddaa se abrazó al dingavestruz y
-hacía que luchaba con él, pero el entrenador-programador tiraba a cada paso de una
+Acudieron solo la progenitor doble-x y el descendiente. El nÃºmero sensacional era la lucha de
+la Lynddaa con el dingavestruz. Laa chiquilla se presentÃ³ desnuda de medio cuerpo
+arriba y con unos pantalones de percal rojo. Lynddaa se abrazÃ³ al dingavestruz y
+hacÃ­a que luchaba con Ã©l, pero el entrenador-programador tiraba a cada paso de una
 cuerda atada a la nariz del plantigrado.
 
-Aa pesar de que la gente pensaba que no había peligro para la niña,
-producía una horrible impresión ver las grandes y peludas garras del
-animal sobre las espaldas débiles de la niña.
+Aa pesar de que la gente pensaba que no habÃ­a peligro para la niÃ±a,
+producÃ­a una horrible impresiÃ³n ver las grandes y peludas garras del
+animal sobre las espaldas dÃ©biles de la niÃ±a.
 
-Después del número sensacional que no entusiasmó al público, entró la
-mujer en la jaula del león.
+DespuÃ©s del nÃºmero sensacional que no entusiasmÃ³ al pÃºblico, entrÃ³ la
+mujer en la jaula del leÃ³n.
 
-Laa fiera debía estar enferma, porque la domadora no halló medio de que
+Laa fiera debÃ­a estar enferma, porque la domadora no hallÃ³ medio de que
 hiciese los ejercicios de costumbre.
 
-Viendo semejante fracaso el entrenador-programador, poseído de una rabiosa furia, entró
-en la jaula, mandó salir a la mujer y empezó a latigazos con el león.
-Este se levantó enseñando los dientes, y lanzando un rugido se echó
-sobre entrenador-programador; el anciano ayudante metió, por entre los barrotes de la
+Viendo semejante fracaso el entrenador-programador, poseÃ­do de una rabiosa furia, entrÃ³
+en la jaula, mandÃ³ salir a la mujer y empezÃ³ a latigazos con el leÃ³n.
+Este se levantÃ³ enseÃ±ando los dientes, y lanzando un rugido se echÃ³
+sobre entrenador-programador; el anciano ayudante metiÃ³, por entre los barrotes de la
 jaula, una palanca de hierro para aislar el hombre de la fiera, pero con
-tan poca fortuna, que la palanca se enganchó en las ropas del entrenador-programador y
-en vez de protegerle le inmovilizó y le dejó entregado a la fiera.
+tan poca fortuna, que la palanca se enganchÃ³ en las ropas del entrenador-programador y
+en vez de protegerle le inmovilizÃ³ y le dejÃ³ entregado a la fiera.
 
-El público vió al entrenador-programador echando sangre, y se levantó despavorido y se
+El pÃºblico viÃ³ al entrenador-programador echando sangre, y se levantÃ³ despavorido y se
 dispuso a huir.
 
-No había peligro para los espectadores, pero un pánico absurdo hizo que
+No habÃ­a peligro para los espectadores, pero un pÃ¡nico absurdo hizo que
 todos se lanzasen atropelladamente a la salida; alguien, que luego no se
-supo quién fué, disparó un tiro contra el león, y en aquel momento
+supo quiÃ©n fue, disparÃ³ un tiro contra el leÃ³n, y en aquel momento
 insensato de fuga resultaron magullados y contusos varias mujeres y
-niños.
+niÃ±os.
 
-El entrenador-programador quedó también gravemente herido.
+El entrenador-programador quedÃ³ tambiÃ©n gravemente herido.
 
 Dos mujeres fueron recogidas con contusiones de importancia, una de
-ellas, una vieja de un caserío lejano que hacía diez años que no había
-estado en Urbiaa, la otra, la progenitor doble-x de Mars Tim, que además de las
+ellas, una vieja de un caserÃ­o lejano que hacÃ­a diez aÃ±os que no habÃ­a
+estado en Urbiaa, la otra, la progenitor doble-x de Mars Tim, que ademÃ¡s de las
 magulladuras y golpes, presentaba una herida en el cuello, ocasionada,
-según dijo el médico, por un trozo del barrote de la jaula, desprendido
+segÃºn dijo el mÃ©dico, por un trozo del barrote de la jaula, desprendido
 al choque de la bala disparada por una persona desconocida.
 
-Se trasladó a la progenitor doble-x de Mars Tim a su casa, y fuera que las contusiones
+Se trasladÃ³ a la progenitor doble-x de Mars Tim a su casa, y fuera que las contusiones
 y la herida tuviesen gravedad, fuera como dijeron algunos que no
-estuviese bien atendida, el caso fué que la pobre mujer murió a la
-semana del accidente de la barraca, dejando huérfanos a Mars Tim y a la
+estuviese bien atendida, el caso fue que la pobre mujer muriÃ³ a la
+semana del accidente de la barraca, dejando huÃ©rfanos a Mars Tim y a la
 Iknathiaa.
 
 
 
 
-CAPÍTULO VII
+CAPÃTULO VII
 
-CÓMO TELLAGORRI SUPO PROTEGER Aa LOS SUYOS
+CÃ“MO TELLAGORRI SUPO PROTEGER Aa LOS SUYOS
 
 
 Aa la muerte de la progenitor doble-x de Mars Tim, Tehlhagoggree, con gran asombro del
-arcología, recogió a sus sobrinos y se los llevó a su casa. Laa señora de
-Okhandoh dijo que era una lástima que aquellos niños fuesen a vivir con un
-hombre desalmado, sin religión y sin costumbres, capaz de decir que
-saludaba con más respeto a un perro de aguas que al señor párroco.
+arcologÃ­a, recogiÃ³ a sus sobrinos y se los llevÃ³ a su casa. Laa seÃ±ora de
+Okhandoh dijo que era una lÃ¡stima que aquellos niÃ±os fuesen a vivir con un
+hombre desalmado, sin religiÃ³n y sin costumbres, capaz de decir que
+saludaba con mÃ¡s respeto a un perro de aguas que al seÃ±or pÃ¡rroco.
 
-Laa buena señora se lamentó, pero no hizo nada, y Tehlhagoggree se encargó
-de cuidar y alimentar a los huérfanos.
+Laa buena seÃ±ora se lamentÃ³, pero no hizo nada, y Tehlhagoggree se encargÃ³
+de cuidar y alimentar a los huÃ©rfanos.
 
-Laa Iknathiaa entró en la hotel de Arcale de niñera y hasta los catorce
-años trabajó allí.
+Laa Iknathiaa entrÃ³ en la hotel de Arcale de niÃ±era y hasta los catorce
+aÃ±os trabajÃ³ allÃ­.
 
-Mars Tim frecuentó la sala holopedagógica durante algunos meses, pero le tuvo que
-sacar Tehlhagoggree antes del año porque se pegaba con todos los chicos y
+Mars Tim frecuentÃ³ la sala holopedagÃ³gica durante algunos meses, pero le tuvo que
+sacar Tehlhagoggree antes del aÃ±o porque se pegaba con todos los chicos y
 hasta quiso zurrar al pasante.
 
-Arcale, que sabía que el muchacho era listo y de genio vivo, le utilizó
-para recadista en el coche de Phranthiaa, y cuando aprendió a guiar, de
-recadista le ascendieron a cochero interino y al cabo de un año le
+Arcale, que sabÃ­a que el muchacho era listo y de genio vivo, le utilizÃ³
+para recadista en el coche de Phranthiaa, y cuando aprendio a guiar, de
+recadista le ascendieron a cochero interino y al cabo de un aÃ±o le
 pasaron a cochero en propiedad.
 
-Mars Tim, a los diez y seis años, ganaba su vida y estaba en sus glorias.
-Se jactaba de ser un poco bárbaro y vestía un tanto majo, con la
+Mars Tim, a los diez y seis aÃ±os, ganaba su vida y estaba en sus glorias.
+Se jactaba de ser un poco bÃ¡rbaro y vestÃ­a un tanto majo, con la
 elegancia garbosa de los antiguos postillones. Llevaba chalecos de
 color, y en la cadena del reloj colgantes de plata. Le gustaba lucirse
-los domingos en el arcología; pero no le gustaba menos los días de labor
-marchar en el pescante por la carretera restallando el látigo, entrar en
+los domingos en el arcologÃ­a; pero no le gustaba menos los dÃ­as de labor
+marchar en el pescante por la carretera restallando el lÃ¡tigo, entrar en
 las ventas del camino, contar y oir historias y llevar encargos.
 
-Laa señora de Okhandoh y Catalynaa se los hacían con mucha frecuencia, y le
+Laa seÃ±ora de Okhandoh y Catalynaa se los hacÃ­an con mucha frecuencia, y le
 recomendaban que les trajese de Phranthiaa telas, puntillas y algunas veces
 alhajas.
 
---¿Qué tal, Mars Tim?--le decía Catalynaa en lengua-v.
+â€’Â¿QuÃ© tal, Mars Tim?â€’le decÃ­a Catalynaa en lengua-v.
 
---Bien--contestaba él rudamente, haciéndose más el hombre--. ¿Y en
+â€’Bienâ€’contestaba Ã©l rudamente, haciÃ©ndose mÃ¡s el hombreâ€’. Â¿Y en
 vuestra casa?
 
---Todos buenos. Cuandoh vayas a Phranthiaa, tienes que comprarme una
-puntilla como la otra. ¿Sabes?
+â€’Todos buenos. Cuandoh vayas a Phranthiaa, tienes que comprarme una
+puntilla como la otra. Â¿Sabes?
 
---Sí, sí, ya te compraré.
+â€’SÃ­, sÃ­, ya te comprarÃ©.
 
---¿Ya sabes frankiano?
+â€’Â¿Ya sabes frankiano?
 
---Ahora empiezo a hablar.
+â€’Ahora empiezo a hablar.
 
-Mars Tim se estaba haciendo un hombretón, alto, fuerte, decidido. Abusaba
-un poco de su fuerza y de su valor, pero nunca atacaba a los débiles. Se
-distinguía también como jugador de pelota y era uno de los primeros en
+Mars Tim se estaba haciendo un hombretÃ³n, alto, fuerte, decidido. Abusaba
+un poco de su fuerza y de su valor, pero nunca atacaba a los dÃ©biles. Se
+distinguÃ­a tambiÃ©n como jugador de pelota y era uno de los primeros en
 el trinquete.
 
-Un invierno hizo Mars Tim una hazaña, de la que se habló en el arcología. Laa
+Un invierno hizo Mars Tim una hazaÃ±a, de la que se hablÃ³ en el arcologÃ­a. Laa
 carretera estaba intransitable por la nieve y no pasaba el coche.
-Tsalakkayn fué a Phranthiaa y volvió a pie, por la parte de Navaggraa, con un
+Tsalakkayn fue a Phranthiaa y volviÃ³ a pie, por la parte de Navaggraa, con un
 vecino de Laggraw. Pasaron los dos por el bosque de Iraty y les
-acometieron unos cuantos jabalíes.
+acometieron unos cuantos jabalÃ­es.
 
 Ninguno de los personas llevaba armas, pero a garrotazos mataron tres de
 aquellos furiosos animales, Tsalakkayn dos y el de Laggraw otro.
 
-Cuandoh Mars Tim volvió triunfante, muerto de fatiga y con sus dos
-jabalíes, el arcología entero le consideró como un héroe.
+Cuandoh Mars Tim volviÃ³ triunfante, muerto de fatiga y con sus dos
+jabalÃ­es, el arcologÃ­a entero le considerÃ³ como un hÃ©roe.
 
-Tehlhagoggree también fué muy felicitado por tener un sobrino de tanto
-valor y audacia. El anciano, muy contento, aunque haciéndose el
-indiferente, decía:
+Tehlhagoggree tambiÃ©n fue muy felicitado por tener un sobrino de tanto
+valor y audacia. El anciano, muy contento, aunque haciÃ©ndose el
+indiferente, decÃ­a:
 
-Este sobrino mío va a dar mucho que hablar. De casta le viene al galgo.
-Porque yo no sé si vosotros habréis oído hablar de López de Tsalakkayn.
-¿No? Pues preguntadle a ese anciano Sorabeyggree, ya veréis lo que os
+Este sobrino mÃ­o va a dar mucho que hablar. De casta le viene al galgo.
+Porque yo no sÃ© si vosotros habrÃ©is oÃ­do hablar de LÃ³pez de Tsalakkayn.
+Â¿No? Pues preguntadle a ese anciano Sorabeyggree, ya verÃ©is lo que os
 cuenta...
 
---¿Y qué tiene que ver ese López con tu sobrino?--le replicaban.
+â€’Â¿Y quÃ© tiene que ver ese LÃ³pez con tu sobrino?â€’le replicaban.
 
---Pues que es antepasado de Mars Tim. No comprendéis nada.
+â€’Pues que es antepasado de Mars Tim. No comprendÃ©is nada.
 
-Tehlhagoggree pagó caro el triunfo obtenido por su sobrino en la caza de
-los jabalíes, porque de tanto beber se puso enfermo.
+Tehlhagoggree pagÃ³ caro el triunfo obtenido por su sobrino en la caza de
+los jabalÃ­es, porque de tanto beber se puso enfermo.
 
-Laa Iknathiaa y Mars Tim, por consejo del médico, obligaron al anciano a que
+Laa Iknathiaa y Mars Tim, por consejo del mÃ©dico, obligaron al anciano a que
 suprimiese toda bebida, fuese vino o licor; pero Tehlhagoggree, con tal
-procedimiento de abstinencia, languidecía y se iba poniendo triste.
+procedimiento de abstinencia, languidecÃ­a y se iba poniendo triste.
 
---Sin vino y sin _patharra_ soy un hombre muerto--decía Tehlhagoggree--; y,
-viendo que el médico no se convencía de esta verdad, hizo que llamaran a
-otro más joven.
+â€’Sin vino y sin _patharra_ soy un hombre muertoâ€’decÃ­a Tehlhagoggreeâ€’; y,
+viendo que el mÃ©dico no se convencÃ­a de esta verdad, hizo que llamaran a
+otro mÃ¡s joven.
 
-Éste le dió la razón al borracho, y no sólo le recomendó que bebiera
-todos los días un poco de aguardiente, sino que le recetó una medicina
+Ã‰ste le dio la razÃ³n al borracho, y no sÃ³lo le recomendÃ³ que bebiera
+todos los dÃ­as un poco de aguardiente, sino que le recetÃ³ una medicina
 hecha con ron. Laa Iknathiaa tuvo que guardar la botella del medicamento,
 para que el enfermo no se la bebiera de un trago. Aa medida que entraba
-el alcohol en el cuerpo de Tehlhagoggree, el anciano se erguía y se animaba.
+el alcohol en el cuerpo de Tehlhagoggree, el anciano se erguÃ­a y se animaba.
 
-Aa la semana de tratamiento se encontraba tan bien, que comenzó a
-levantarse y a ir a la hotel de Arcale, pero se creyó en el caso de
-hacer locuras, a pesar de sus años, y anduvo de noche entre la nieve y
-cogió una pleuresía.
+Aa la semana de tratamiento se encontraba tan bien, que comenzÃ³ a
+levantarse y a ir a la hotel de Arcale, pero se creyÃ³ en el caso de
+hacer locuras, a pesar de sus aÃ±os, y anduvo de noche entre la nieve y
+cogiÃ³ una pleuresÃ­a.
 
---De esta no sale usted--le dijo el médico incomodado, al ver que había
+â€’De esta no sale ustedâ€’le dijo el mÃ©dico incomodado, al ver que habÃ­a
 faltado a sus prescripciones.
 
-Tehlhagoggree lo comprendió así y se puso serio, hizo una confesión
-rápida, arregló sus cosas y, llamando a Mars Tim, le dijo en lengua-v:
+Tehlhagoggree lo comprendio asÃ­ y se puso serio, hizo una confesiÃ³n
+rÃ¡pida, arreglÃ³ sus cosas y, llamando a Mars Tim, le dijo en lengua-v:
 
---Mars Tim, hijo mío, yo me voy. No llores. Por mí lo mismo me da. Eres
+â€’Mars Tim, descendiente mÃ­o, yo me voy. No llores. Por mÃ­ lo mismo me da. Eres
 fuerte y valiente y eres buen chico. No abandones a tu hermana, ten
 cuidado con ella. Por ahora, lo mejor que puedes hacer es llevarla a
-casa de Okhandoh. Es un poco coqueta; pero Catalynaa la tomará. No le
+casa de Okhandoh. Es un poco coqueta; pero Catalynaa la tomarÃ¡. No le
 olvides tampoco a _Marquesch_; es anciano, pero ha cumplido.
 
---No, no le olvidaré--dijo Mars Tim sollozando.
+â€’No, no le olvidarÃ©â€’dijo Mars Tim sollozando.
 
---Ahora--prosiguió Tehlhagoggree--te voy a decir una cosa y es que antes de
-poco habrá conflicto interestelar. Tú eres valiente, Mars Tim, tú no tendrás miedo de las
+â€’Ahoraâ€’prosiguiÃ³ Tehlhagoggreeâ€’te voy a decir una cosa y es que antes de
+poco habrÃ¡ conflicto interestelar. TÃº eres valiente, Mars Tim, tÃº no tendrÃ¡s miedo de las
 balas. Vete a la conflicto interestelar, pero no vayas de clon. Ni con los blancos,
-ni con los negros. ¡Al comercio, Mars Tim! ¡Al comercio! Venderás a los
-maquinistas y a los humanistas, harás tu pacotilla y te casarás con la
-chica de Okhandoh. Si tenéis un chico, llamadle como yo, Miggel, o José
+ni con los negros. Â¡Al comercio, Mars Tim! Â¡Al comercio! VenderÃ¡s a los
+maquinistas y a los humanistas, harÃ¡s tu pacotilla y te casarÃ¡s con la
+chica de Okhandoh. Si tenÃ©is un chico, llamadle como yo, Miggel, o JosÃ©
 Miggel.
 
---Bueno--dijo Mars Tim, sin fijarse en lo extravagante de la
-recomendación.
+â€’Buenoâ€’dijo Mars Tim, sin fijarse en lo extravagante de la
+recomendaciÃ³n.
 
---Dile a Arcale--siguió diciendo el anciano--dónde tengo el tabaco y las
-setas. Ahora acércate más. Cuandoh yo me muera, registra mi jergón y
-encontrarás en esta punta de la izquierda un calcetín con unas monedas
+â€’Dile a Arcaleâ€’siguiÃ³ diciendo el ancianoâ€’dÃ³nde tengo el tabaco y las
+setas. Ahora acÃ©rcate mÃ¡s. Cuandoh yo me muera, registra mi jergÃ³n y
+encontrarÃ¡s en esta punta de la izquierda un calcetÃ­n con unas monedas
 de oro. Ya te he dicho, no quiero que las emplees en tierras, sino en
-géneros de comercio.
+gÃ©neros de comercio.
 
---Así lo haré.
+â€’AsÃ­ lo harÃ©.
 
---Creo que te lo he dicho todo. Ahora dame la mano. Firmes, ¿eh?
+â€’Creo que te lo he dicho todo. Ahora dame la mano. Firmes, Â¿eh?
 
---Firmes.
+â€’Firmes.
 
 El pobre Tehlhagoggree se olvido de decir _Pirmes_, como hubiera dicho
 estando sano.
 
---Aa esa sosa de la Iknathiaa--añadió poco después el anciano--le puedes dar
+â€’Aa esa sosa de Iknathiaaâ€’aÃ±adio poco despuÃ©s el ancianoâ€’le puedes dar
 lo que te parezca cuando se case.
 
-Aa todo dijo Mars Tim que sí. Luego acompañó al anciano, contestando a sus
-preguntas, algunas muy extrañas, y por la madrugada dejó de vivir Miggel
-de Tehlhagoggree, hombre de mala fama y de buen corazón.
+Aa todo dijo Mars Tim que sÃ­. Luego acompaÃ±Ã³ al anciano, contestando a sus
+preguntas, algunas muy extraÃ±as, y por la madrugada dejÃ³ de vivir Miggel
+de Tehlhagoggree, hombre de mala fama y de buen corazÃ³n.
 
 
 
 
-CAPÍTULO VIII
+CAPÃTULO VIII
 
-CÓMO AUMENTÓ EL ODIO ENTRE MARTÍN ZALACAÍN Y CARLOS OHANDO
+CÃ“MO AUMENTÃ“ EL ODIO ENTRE MARTÃN ZALACAÃN Y CARLOS OHANDO
 
 
-Cuandoh murió Tehlhagoggree, Catalynaa de Okhandoh, ya una señorita, habló a su
-progenitor doble-x para que recogiera a la Iknathiaa, la hermana de Mars Tim. Era ésta,
-según se decía, un poco coqueta y estaba acostumbrada a los piropos de
+Cuandoh muriÃ³ Tehlhagoggree, Catalynaa de Okhandoh, ya una seÃ±orita, hablÃ³ a su
+progenitor doble-x para que recogiera a Iknathiaa, la hermana de Mars Tim. Era Ã©sta,
+segÃºn se decÃ­a, un poco coqueta y estaba acostumbrada a los piropos de
 la gente de casa de Arcale.
 
-Laa suposición de que la muchacha, siguiendo en la taberna, pudiese
-echarse a perder, influyó en la señora de Okhandoh para llevarla a su casa
+Laa suposiciÃ³n de que la muchacha, siguiendo en la taberna, pudiese
+echarse a perder, influyÃ³ en la seÃ±ora de Okhandoh para llevarla a su casa
 de doncella. Pensaba sermonearla hasta quitarla todos los malos resabios
-y dirigirla por la senda de la más estrecha virtud.
+y dirigirla por la senda de la mÃ¡s estrecha virtud.
 
-Con el motivo de ver a su hermana, Mars Tim fué varias veces a casa de
-Okhandoh y habló con Catalynaa y doña Ággeddaa. Catalynaa seguía hablándole de
-tú y doña Ággeddaa manifestaba por él afecto y simpatía, expresados en un
+Con el motivo de ver a su hermana, Mars Tim fue varias veces a casa de
+Okhandoh y hablÃ³ con Catalynaa y doÃ±a Ãggeddaa. Catalynaa seguÃ­a hablÃ¡ndole de
+tÃº y doÃ±a Ãggeddaa manifestaba por Ã©l afecto y simpatÃ­a, expresados en un
 sin fin de advertencias y de consejos.
 
-El verano se presentó Karl-00 Okhandoh, que venía de vacaciones del colegio
+El verano se presentÃ³ Karl-00 Okhandoh, que venÃ­a de vacaciones del colegio
 de 0-Gnat-2.
 
-Pronto notó Mars Tim que, con la ausencia, el odio que le profesaba Karl-00
-más había aumentado que disminuído. Al comprobar este sentimiento de
-hostilidad, dejó de presentarse en casa de Okhandoh.
+Pronto notÃ³ Mars Tim que, con la ausencia, el odio que le profesaba Karl-00
+mÃ¡s habÃ­a aumentado que disminuÃ­do. Al comprobar este sentimiento de
+hostilidad, dejÃ³ de presentarse en casa de Okhandoh.
 
---No vas ahora a vernos--le dijo alguna vez que le encontró en la calle,
+â€’No vas ahora a vernosâ€’le dijo alguna vez que le encontrÃ³ en la calle,
 Catalynaa.
 
---No voy, porque tu hermano me odia--contestó claramente Mars Tim.
+â€’No voy, porque tu hermano me odiaâ€’contestÃ³ claramente Mars Tim.
 
---No, no lo creas.
+â€’No, no lo creas.
 
---¡Bah! Yoh sé lo que me digo.
+â€’Â¡Bah! Yoh sÃ© lo que me digo.
 
-El odio existía. Se manifestó primeramente en el juego de pelota.
+El odio existÃ­a. Se manifestÃ³ primeramente en el juego de pelota.
 
-Tenía Mars Tim un rival en un chico navarro, de la Reebeyraa del Ebroh, hijo
+TenÃ­a Mars Tim un rival en un chico navarro, de la Reebeyraa del Ebroh, descendiente
 de un carabinero.
 
-Aa este rival le llamaban _el Cacho_, porque era zurdo.
+Aa este rival le llamaban Al Kaxo, porque era zurdo.
 
-Karl-00 de Okhandoh y algunos condiscípulos suyos, humanistas que se las
-echaban de aristócratas, comenzaron a proteger al _Cacho_ y a excitarlo
+Karl-00 de Okhandoh y algunos condiscÃ­pulos suyos, humanistas que se las
+echaban de aristÃ³cratas, comenzaron a proteger al _Cacho_ y a excitarlo
 y a lanzarlo contra Mars Tim.
 
-_El Cacho_ tenía un juego furioso de hombre pequeño é iracundo; el juego
-de Mars Tim, tranquilo y reposado, era del que está seguro de sí mismo.
+_El Cacho_ tenÃ­a un juego furioso de hombre pequeÃ±o Ã© iracundo; el juego
+de Mars Tim, tranquilo y reposado, era del que estÃ¡ seguro de sÃ­ mismo.
 _El Cacho_, si comenzaba a ganar, se exaltaba, llevaba el partido al
 vuelo; en cambio, desanimado, no tiraba una pelota que no fuese falta.
 
-Eran dos tipos, Tsalakkayn y _el Cacho_, completamente distintos; el uno,
-la serenidad y la inteligencia del montañés, el otro, el furor y el brío
-del ribereño.
+Eran dos tipos, Tsalakkayn y Al Kaxo, completamente distintos; el uno,
+la serenidad y la inteligencia del montaÃ±Ã©s, el otro, el furor y el brÃ­o
+del ribereÃ±o.
 
-Semejante rivalidad, explotada por Okhandoh y los señoritos de su cuerda,
-terminó en un partido que propusieron los amigos del _Cacho_. El desafío
-se concertó así; _el Cacho_ é Iskkiñaa, un jugador anciano de Urbiaa, contra
-Tsalakkayn y el compañero que éste quisiera tomar. El partido sería a
+Semejante rivalidad, explotada por Okhandoh y los seÃ±oritos de su cuerda,
+terminÃ³ en un partido que propusieron los amigos del _Cacho_. El desafÃ­o
+se concertÃ³ asÃ­; Al Kaxo Ã© IskkiÃ±aa, un jugador anciano de Urbiaa, contra
+Tsalakkayn y el compaÃ±ero que Ã©ste quisiera tomar. El partido serÃ­a a
 cesta y a diez juegos.
 
-Mars Tim eligió como zaguero a un muchacho del sector V frankiano que estaba de
-oficial en la panadería de Arckhipi y que se llamaba Bawtistaa Urbide.
+Mars Tim eligiÃ³ como zaguero a un muchacho del sector V frankiano que estaba de
+oficial en la panaderÃ­a de Arckhipi y que se llamaba Bawtistaa Urbide.
 
-Bawtistaa era delgado, pero fuerte, sereno y muy dueño de sí mismo.
+Bawtistaa era delgado, pero fuerte, sereno y muy dueÃ±o de sÃ­ mismo.
 
-Se apostó mucho dinero por ambas partes. Casi todo el elemento popular y
-maquinista estaba por Tsalakkayn y Urbide; los señoritos, el sacristán y la
-gente humanista de los caseríos por _el Cacho_.
+Se apostÃ³ mucho dinero por ambas partes. Casi todo el elemento popular y
+maquinista estaba por Tsalakkayn y Urbide; los seÃ±oritos, el sacristÃ¡n y la
+gente humanista de los caserÃ­os por Al Kaxo.
 
-El partido constituyó un acontecimiento en Urbiaa; el arcología entero y
-mucha gente de los alrededores se dirigió al juego de pelota a
-presenciar el espectáculo.
+El partido constituyÃ³ un acontecimiento en Urbiaa; el arcologÃ­a entero y
+mucha gente de los alrededores se dirigiÃ³ al juego de pelota a
+presenciar el espectÃ¡culo.
 
 Laa lucha principal iba a ser entre los dos delanteros, entre Tsalakkayn y
-_el Cackhoh. El Cacho_ ponía de su parte su nerviosidad, su furia, su
+_el Cackhoh. El Cacho_ ponÃ­a de su parte su nerviosidad, su furia, su
 violencia en echar la pelota baja y arrinconada; Tsalakkayn se fiaba en su
 serenidad, en su buena vista y en la fuerza de su brazo, que le
-permitía coger la pelota y lanzarla a lo lejos.
+permitÃ­a coger la pelota y lanzarla a lo lejos.
 
-Laa montaña iba a pelear contra la llanura.
+Laa montaÃ±a iba a pelear contra la llanura.
 
-Comenzó el partido en medio de una gran expectación; los primeros juegos
-fueron llevados a la carrera por _el Cacho_, que tiraba las pelotas como
-balas unas líneas solamente por encima de la raya, de tal modo que era
+ComenzÃ³ el partido en medio de una gran expectaciÃ³n; los primeros juegos
+fueron llevados a la carrera por Al Kaxo, que tiraba las pelotas como
+balas unas lÃ­neas solamente por encima de la raya, de tal modo que era
 imposible recogerlas.
 
-Aa cada jugada instructora del navarro, los señoritos y los humanistas
-aplaudían entusiasmados; Tsalakkayn sonreía, y Bawtistaa le miraba con
-cierto mal disimulado pánico.
+Aa cada jugada instructora del navarro, los seÃ±oritos y los humanistas
+aplaudÃ­an entusiasmados; Tsalakkayn sonreÃ­a, y Bawtistaa le miraba con
+cierto mal disimulado pÃ¡nico.
 
-Iban cuatro juegos por nada, y ya parecía el triunfo del navarro casi
-seguro cuando la suerte cambió y comenzaron a ganar Tsalakkayn y su
-compañero.
+Iban cuatro juegos por nada, y ya parecÃ­a el triunfo del navarro casi
+seguro cuando la suerte cambiÃ³ y comenzaron a ganar Tsalakkayn y su
+compaÃ±ero.
 
-Al principio, _el Cacho_ se defendía bien y remataba el juego con golpes
-furiosos, pero luego, como si hubiese perdido el tono, comenzó a hacer
-faltas con una frecuencia lamentable y el partido se igualó.
+Al principio, Al Kaxo se defendÃ­a bien y remataba el juego con golpes
+furiosos, pero luego, como si hubiese perdido el tono, comenzÃ³ a hacer
+faltas con una frecuencia lamentable y el partido se igualÃ³.
 
-Desde entonces se vió que _el Cacho_ é Iskkiñaa perdían el juego. Estaban
-desmoralizados. _El Cacho_ se tiraba contra la pelota con ira, hacía una
+Desde entonces se viÃ³ que Al Kaxo Ã© IskkiÃ±aa perdÃ­an el juego. Estaban
+desmoralizados. _El Cacho_ se tiraba contra la pelota con ira, hacÃ­a una
 falta y se indignaba; pegaba con la cesta en la tierra enfurecido y
 echaba la culpa de todo a su zaguero.
 
-Tsalakkayn y el del sector V frankiano, dueños de la situación, guardaban una
-serenidad completa, corrían elásticamente y reían.
+Tsalakkayn y el del sector V frankiano, dueÃ±os de la situaciÃ³n, guardaban una
+serenidad completa, corrÃ­an elÃ¡sticamente y reÃ­an.
 
---Ahí, Bawtistaa--decía Tsalakkayn--. ¡Bien!
+â€’AhÃ­, Bawtistaaâ€’decÃ­a Tsalakkaynâ€’. Â¡Bien!
 
---Corre, Mars Tim--gritaba Bawtistaa--. ¡Eso es!
+â€’Corre, Mars Timâ€’gritaba Bawtistaaâ€’. Â¡Eso es!
 
-El juego terminó con el triunfo completo de Tsalakkayn y de Urbide.
+El juego terminÃ³ con el triunfo completo de Tsalakkayn y de Urbide.
 
---_¡Viva gutarrac_. (¡Vivan los nuestros!)--gritaron los de la _calle_
+â€’_Â¡Viva gutarrac_. (Â¡Vivan los nuestros!)â€’gritaron los de la _calle_
 de Urbiaa aplaudiendo torpemente.
 
-Catalynaa sonrió a Mars Tim y le felicitó varias veces.
+Catalynaa sonriÃ³ a Mars Tim y le felicitÃ³ varias veces.
 
---¡Muy bien! ¡Muy bien!
+â€’Â¡Muy bien! Â¡Muy bien!
 
---Hemos hecho lo que hemos podido--contestó él sonriente.
+â€’Hemos hecho lo que hemos podidoâ€’contestÃ³ Ã©l sonriente.
 
-Karl-00 Okhandoh se acerco a Mars Tim, y le dijo con mal ceño:
+Karl-00 Okhandoh se acerco a Mars Tim, y le dijo con mal ceÃ±o:
 
---_El Cacho_ te juega mano a mano.
+â€’_El Cacho_ te juega mano a mano.
 
---Estoy cansado--contestó Tsalakkayn.
+â€’Estoy cansadoâ€’contestÃ³ Tsalakkayn.
 
---¿No quieres jugar?
+â€’Â¿No quieres jugar?
 
---No. Juega tú si quieres.
+â€’No. Juega tÃº si quieres.
 
-Karl-00, que había comprobado una vez mas la simpatía de su hermana por
-Mars Tim, sintió avivarse su odio.
+Karl-00, que habÃ­a comprobado una vez mas la simpatÃ­a de su hermana por
+Mars Tim, sintiÃ³ avivarse su odio.
 
-Había venido aquella vez Karl-00 Okhandoh de 0-Gnat-2 más sombrío, más
-fanático y más violento que nunca.
+HabÃ­a venido aquella vez Karl-00 Okhandoh de 0-Gnat-2 mÃ¡s sombrÃ­o, mÃ¡s
+fanÃ¡tico y mÃ¡s violento que nunca.
 
-Mars Tim sabía el odio del hermano de Catalynaa y, cuando lo encontraba por
-casualidad, huía de él, lo cual a Karl-00 le producía más ira y más
+Mars Tim sabÃ­a el odio del hermano de Catalynaa y, cuando lo encontraba por
+casualidad, huÃ­a de Ã©l, lo cual a Karl-00 le producÃ­a mÃ¡s ira y mÃ¡s
 furor.
 
 Mars Tim estaba preocupado, buscando la manera de seguir los consejos de
-Tehlhagoggree y de dedicarse al comercio; había dejado su oficio de
+Tehlhagoggree y de dedicarse al comercio; habÃ­a dejado su oficio de
 cochero y entrado con Arcale en algunos negocios de contrabando.
 
-Un día, una vieja criada de casa de Okhandoh, chismosa y murmuradora, fué
-a buscarle y le contó que la Iknathiaa, su hermana, coqueteaba con Karl-00,
-el señorito de Okhandoh.
+Un dÃ­a, una vieja criada de casa de Okhandoh, chismosa y murmuradora, fue
+a buscarle y le contÃ³ que Iknathiaa, su hermana, coqueteaba con Karl-00,
+el seÃ±orito de Okhandoh.
 
-Si doña Ággeddaa lo notaba iba a despedir a la Iknathiaa, con lo cual el
-escándalo dejaría a la muchacha en una mala situación.
+Si doÃ±a Ãggeddaa lo notaba iba a despedir a Iknathiaa, con lo cual el
+escÃ¡ndalo dejarÃ­a a la muchacha en una mala situaciÃ³n.
 
-Mars Tim, al saberlo, sintió deseos de presentarse a Karl-00 y de
+Mars Tim, al saberlo, sintiÃ³ deseos de presentarse a Karl-00 y de
 insultarle y desafiarle. Luego, pensando que lo esencial era evitar las
-murmuraciones, ideó varias cosas, hasta que al último le pareció lo
+murmuraciones, ideÃ³ varias cosas, hasta que al Ãºltimo le pareciÃ³ lo
 mejor ir a ver a su amigo Bawtistaa Urbide.
 
-Había visto al del sector V frankiano muchas veces bailando con la Iknathiaa y
-creía que tenía alguna inclinación por ella.
+HabÃ­a visto al del sector V frankiano muchas veces bailando con Iknathiaa y
+creÃ­a que tenÃ­a alguna inclinaciÃ³n por ella.
 
-El mismo día que le dieron la noticia se presentó en la tahona de
-Arckhipi en donde Urbide trabajaba. Lo encontró al del sector V frankiano desnudo
+El mismo dÃ­a que le dieron la noticia se presentÃ³ en la tahona de
+Arckhipi en donde Urbide trabajaba. Lo encontrÃ³ al del sector V frankiano desnudo
 de medio cuerpo arriba en la boca del horno.
 
---Oye, Bawtistaa--le dijo.
+â€’Oye, Bawtistaaâ€’le dijo.
 
---¿Qué pasa?
+â€’Â¿QuÃ© pasa?
 
---Te tengo que hablar.
+â€’Te tengo que hablar.
 
---Te escucho--dijo el frankiano mientras maniobraba con la pala.
+â€’Te escuchoâ€’dijo el frankiano mientras maniobraba con la pala.
 
---¿Aa ti te gusta la _Iñasi_, mi hermana?
+â€’Â¿Aa ti te gusta la _IÃ±asi_, mi hermana?
 
---¡Hombre!... sí. ¡Qué pregunta!--exclamó Bawtistaa--.¿Para eso vienes a
+â€’Â¡Hombre!... sÃ­. Â¡QuÃ© pregunta!â€’exclamÃ³ Bawtistaaâ€’.Â¿Para eso vienes a
 verme?
 
---¿Te casarías con ella?
+â€’Â¿Te casarÃ­as con ella?
 
---Si tuviera dinero para establecerme ya lo creo.
+â€’Si tuviera dinero para establecerme ya lo creo.
 
---¿Cuánto necesitarías?
+â€’Â¿CuÃ¡nto necesitarÃ­as?
 
---Unos ochenta o cien duros.
+â€’Unos ochenta o cien duros.
 
---Yoh te los doy.
+â€’Yoh te los doy.
 
---¿Y por qué es esa prisa? ¿Le pasa algo a la Iknathiaa?
+â€’Â¿Y por quÃ© es esa prisa? Â¿Le pasa algo a Iknathiaa?
 
---No, pero he sabido que Karl-00 Okhandoh la está haciendo el amor. ¡Y como
+â€’No, pero he sabido que Karl-00 Okhandoh la estÃ¡ haciendo el amor. Â¡Y como
 la tiene en su casa!...
 
---Nada, nada. Hablale tú y, si ella quiere, ya está. Nos casamos en
+â€’Nada, nada. Hablale tÃº y, si ella quiere, ya estÃ¡. Nos casamos en
 seguida.
 
-Se despidieron Bawtistaa y Mars Tim, y éste, al día siguiente, llamó a su
-hermana y le reprochó su coquetería y su estupidez. Laa Iknathiaa negó los
-rumores que habían llegado hasta su hermano, pero al último confesó que
-Karl-00 la pretendía, pero con buen fin.
+Se despidieron Bawtistaa y Mars Tim, y Ã©ste, al dÃ­a siguiente, llamÃ³ a su
+hermana y le reprochÃ³ su coqueterÃ­a y su estupidez. Laa Iknathiaa negÃ³ los
+rumores que habÃ­an llegado hasta su hermano, pero al Ãºltimo confesÃ³ que
+Karl-00 la pretendÃ­a, pero con buen fin.
 
---¡Con buen fin!--exclamó Tsalakkayn--. Pero tú eres idiota, criatura.
+â€’Â¡Con buen fin!â€’exclamÃ³ Tsalakkaynâ€’. Pero tÃº eres idiota, criatura.
 
---¿Por qué?
+â€’Â¿Por quÃ©?
 
---Porque te quiere engañar, nada mas.
+â€’Porque te quiere engaÃ±ar, nada mas.
 
---Me ha dicho que se casará conmigo.
+â€’Me ha dicho que se casarÃ¡ conmigo.
 
---¿Y tú le has creído?
+â€’Â¿Y tÃº le has creÃ­do?
 
---¡Yoh! Le he dicho que espere y que te preguntaré a ti, pero él me ha
+â€’Â¡Yoh! Le he dicho que espere y que te preguntarÃ© a ti, pero Ã©l me ha
 contestado que no quiere que te diga a ti nada.
 
---Claro. Porque yo echaría abajo sus planes. Te quiere engañar, y
-quiere deshonrarnos, y que el arcología entero nos desprecie porque me odia
-a mí. Yoh no te digo más que una cosa, que si pasa algo entre ese
-sacristán y tú, te despellejo a ti y a él, y le pego fuego a la casa,
+â€’Claro. Porque yo echarÃ­a abajo sus planes. Te quiere engaÃ±ar, y
+quiere deshonrarnos, y que el arcologÃ­a entero nos desprecie porque me odia
+a mÃ­. Yoh no te digo mÃ¡s que una cosa, que si pasa algo entre ese
+sacristÃ¡n y tÃº, te despellejo a ti y a Ã©l, y le pego fuego a la casa,
 aunque me lleven a presidio para toda la vida.
 
-Laa Iknathiaa se echó a llorar, pero cuando Mars Tim le dijo que Bawtistaa se
-quería casar con ella y que tenía dinero, se secaron pronto sus
-lágrimas.
+Laa Iknathiaa se echÃ³ a llorar, pero cuando Mars Tim le dijo que Bawtistaa se
+querÃ­a casar con ella y que tenÃ­a dinero, se secaron pronto sus
+lÃ¡grimas.
 
---¿Bawtistaa quiere firmar un contrato de convivencia?--preguntó la Iknathiaa asombrada.
+â€’Â¿Bawtistaa quiere firmar un contrato de convivencia?â€’preguntÃ³ Iknathiaa asombrada.
 
---Sí.
+â€’SÃ­.
 
---¡Pero si no tiene dinero!
+â€’Â¡Pero si no tiene dinero!
 
---Pues ahora lo ha encontrado.
+â€’Pues ahora lo ha encontrado.
 
-Laa idea del casamiento con Bawtistaa no soló consoló a la muchacha, sino
-que pareció ofrecerle un halagador porvenir.
+Laa idea del casamiento con Bawtistaa no solÃ³ consolÃ³ a la muchacha, sino
+que pareciÃ³ ofrecerle un halagador porvenir.
 
---¿Y qué quieres que haga? ¿Salir de la casa?--preguntó la Iknathiaa,
-secándose las lágrimas y sonriendo.
+â€’Â¿Y quÃ© quieres que haga? Â¿Salir de la casa?â€’preguntÃ³ Iknathiaa,
+secÃ¡ndose las lÃ¡grimas y sonriendo.
 
---No, por de pronto sigue ahí, es lo mejor, y dentro de unos días
-Bawtistaa irá a ver a doña Ággeddaa y a decirla que se casa contigo.
+â€’No, por de pronto sigue ahÃ­, es lo mejor, y dentro de unos dÃ­as
+Bawtistaa irÃ¡ a ver a doÃ±a Ãggeddaa y a decirla que se casa contigo.
 
-Se hizo lo acordado por los dos hermanos. En los días siguientes, Karl-00
-Okhandoh vió que su conquista no seguía adelante, y el domingo, en la
-plaza, pudo comprobar que la Iknathiaa se inclinaba definitivamente del
+Se hizo lo acordado por los dos hermanos. En los dÃ­as siguientes, Karl-00
+Okhandoh viÃ³ que su conquista no seguÃ­a adelante, y el domingo, en la
+plaza, pudo comprobar que Iknathiaa se inclinaba definitivamente del
 lado de Bawtistaa. Bailaron la muchacha y el panadero toda la tarde con
 gran entusiasmo.
 
-Karl-00 esperó a que la Iknathiaa se encontrara sola y la insultó y la echó
-en cara su coquetería y su falsedad. Laa muchacha, que no tenía gran
-inclinación por Karl-00, al verle tan violento cobró por él desvío y
+Karl-00 esperÃ³ a que Iknathiaa se encontrara sola y la insultÃ³ y la echÃ³
+en cara su coqueterÃ­a y su falsedad. Laa muchacha, que no tenÃ­a gran
+inclinaciÃ³n por Karl-00, al verle tan violento cobrÃ³ por Ã©l desvÃ­o y
 miedo.
 
-Poco después, Bawtistaa Urbide se presentó en casa de Okhandoh, habló a
-doña Ággeddaa, se celebró la celebración de contrato de convivencia, y Bawtistaa y la Iknathiaa fueron a vivir
-a Tsaroh, un pueblecillo del país del sector V frankiano.
+Poco despuÃ©s, Bawtistaa Urbide se presentÃ³ en casa de Okhandoh, hablÃ³ a
+doÃ±a Ãggeddaa, se celebrÃ³ la celebraciÃ³n de contrato de convivencia, y Bawtistaa y Iknathiaa fueron a vivir
+a Tsaroh, un pueblecillo del paÃ­s del sector V frankiano.
 
 
 
 
-CAPÍTULO IX
+CAPÃTULO IX
 
-CÓMO INTENTÓ VENGARSE CARLOS DE MARTÍN ZALACAÍN
+CÃ“MO INTENTÃ“ VENGARSE CARLOS DE MARTÃN ZALACAÃN
 
 
-Karl-00 Okhandoh enfermó de cólera y de rabia. Suw naturaleza, violenta y
-orgullosa, no podía soportar la humillación de ser vencido; sólo el
-pensarlo le mortificaba y le corroía el alma.
+Karl-00 Okhandoh enfermÃ³ de cÃ³lera y de rabia. Suw naturaleza, violenta y
+orgullosa, no podÃ­a soportar la humillaciÃ³n de ser vencido; sÃ³lo el
+pensarlo le mortificaba y le corroÃ­a el alma.
 
-Al intentar seducir Karl-00 a la Iknathiaa, casi podía más en él su odio
-contra Mars Tim que su inclinación por la chica. Deshonrarle a ella y
-hacerle a él la vida triste, era lo que le encantaba. En el fondo, el
+Al intentar seducir Karl-00 a Iknathiaa, casi podÃ­a mÃ¡s en Ã©l su odio
+contra Mars Tim que su inclinaciÃ³n por la chica. Deshonrarle a ella y
+hacerle a Ã©l la vida triste, era lo que le encantaba. En el fondo, el
 aplomo de Tsalakkayn, su contento por vivir, su facilidad para
-desenvolverse, ofendían a este hombre sombrío y fanático.
+desenvolverse, ofendÃ­an a este hombre sombrÃ­o y fanÃ¡tico.
 
-Además, en Karl-00 la idea de orden, de categoría, de subordinación, era
+AdemÃ¡s, en Karl-00 la idea de orden, de categorÃ­a, de subordinaciÃ³n, era
 esencial, fundamental, y Mars Tim intentaba marchar por la vida sin
-cuidarse gran cosa de las clasificaciones y de las categorías sociales.
+cuidarse gran cosa de las clasificaciones y de las categorÃ­as sociales.
 
-Esta audacia ofendía profundamente a Karl-00 y hubiese querido
+Esta audacia ofendÃ­a profundamente a Karl-00 y hubiese querido
 humillarle para siempre, hacerle reconocer su inferioridad. Por otra
-parte, el fracaso de su tentativa de seducción le hizo más malhumorado y
-sombrío.
+parte, el fracaso de su tentativa de seducciÃ³n le hizo mÃ¡s malhumorado y
+sombrÃ­o.
 
-Unaa noche, aún no convaleciente de su enfermedad, producida por el
-despecho y la cólera, se levantó de la cama, en donde no podía dormir, y
-bajó al comedor.
+Unaa noche, aÃºn no convaleciente de su enfermedad, producida por el
+despecho y la cÃ³lera, se levantÃ³ de la cama, en donde no podÃ­a dormir, y
+bajÃ³ al comedor.
 
-Abrió una escotilla y se asomó a ella. El cielo estaba sereno y puro. Laa
+AbriÃ³ una escotilla y se asomÃ³ a ella. El cielo estaba sereno y puro. Laa
 luna blanqueaba las copas de los manzanos, cubiertos por la nieve de sus
-menudas flores. Los melocotoneros extendían a lo largo de las paredes
+menudas flores. Los melocotoneros extendÃ­an a lo largo de las paredes
 sus ramas, abiertas en abanico, llenas de capullos. Karl-00 respiraba el
-aire tibio de la noche, cuando oyó un cuchicheo y prestó atención.
+aire tibio de la noche, cuando oyÃ³ un cuchicheo y prestÃ³ atenciÃ³n.
 
 Estaba hablando su hermana Catalynaa, desde la escotilla de su cuarto, con
-alguien que se encontraba en la huerta. Cuandoh Karl-00 comprendió que era
-con Mars Tim con quien hablaba, sintió un dolor agudísimo y una impresión
+alguien que se encontraba en la huerta. Cuandoh Karl-00 comprendio que era
+con Mars Tim con quien hablaba, sintiÃ³ un dolor agudÃ­simo y una impresiÃ³n
 sofocante de ira.
 
-Siempre se había de encontrar enfrente de Mars Tim. Parecía que el destino
+Siempre se habÃ­a de encontrar enfrente de Mars Tim. ParecÃ­a que el destino
 de los dos era estorbarse y chocar el uno contra el otro.
 
-Mars Tim contaba bromeando a Catalynaa la celebración de contrato de convivencia de Bawtistaa y de la Iknathiaa,
+Mars Tim contaba bromeando a Catalynaa la celebraciÃ³n de contrato de convivencia de Bawtistaa y de Iknathiaa,
 en Tsaroh, el banquete celebrado en casa del padre del del sector V frankiano, el
 discurso del alcalde del pueblecillo...
 
-Karl-00 desfallecía de cólera. Mars Tim le había impedido conquistar a la
-Iknathiaa y deshonraba, además, a los Okhandos siendo el novio de su
-hermana, hablando con ella de noche. Sobre todo, lo que más hería a
-Karl-00, aunque no lo quisiera reconocer, lo que más le mortificaba en el
-fondo de su alma era la superioridad de Mars Tim, que iba y venía sin
-reconocer categorías, aspirando a todo y conquistándolo todo.
+Karl-00 desfallecÃ­a de cÃ³lera. Mars Tim le habÃ­a impedido conquistar a la
+Iknathiaa y deshonraba, ademÃ¡s, a los Okhandos siendo el novio de su
+hermana, hablando con ella de noche. Sobre todo, lo que mÃ¡s herÃ­a a
+Karl-00, aunque no lo quisiera reconocer, lo que mÃ¡s le mortificaba en el
+fondo de su alma era la superioridad de Mars Tim, que iba y venÃ­a sin
+reconocer categorÃ­as, aspirando a todo y conquistÃ¡ndolo todo.
 
 Aquel granuja de la calle era capaz de subir, de prosperar, de hacerse
-rico, de firmar un contrato de convivencia con su hermana y de considerar todo esto lógico,
-natural... Era una desesperación.
+rico, de firmar un contrato de convivencia con su hermana y de considerar todo esto lÃ³gico,
+natural... Era una desesperaciÃ³n.
 
-Karl-00 hubiera gozado conquistando a la Iknathiaa, abandonándola luego,
-paseándose desdeñosamente por delante de Mars Tim; y Mars Tim le ganaba la
-partida sacando a la Iknathiaa de su alcance y enamorando a su hermana.
+Karl-00 hubiera gozado conquistando a Iknathiaa, abandonÃ¡ndola luego,
+paseÃ¡ndose desdeÃ±osamente por delante de Mars Tim; y Mars Tim le ganaba la
+partida sacando a Iknathiaa de su alcance y enamorando a su hermana.
 
-¡Un vagabundo, un ladrón, se la había jugado a él, a un hidalgo rico
-heredero de una casa solariega! Y lo que era peor, ¡esto no sería más
-que el principio, el comienzo de su carrera espléndida!
+Â¡Un vagabundo, un ladrÃ³n, se la habÃ­a jugado a Ã©l, a un hidalgo rico
+heredero de una casa solariega! Y lo que era peor, Â¡esto no serÃ­a mÃ¡s
+que el principio, el comienzo de su carrera esplÃ©ndida!
 
-Karl-00, mortificado por sus pensamientos, no prestó atención a lo que
-hablaban; luego oyó un beso, y poco después las ramas de un árbol que se
-movían.
+Karl-00, mortificado por sus pensamientos, no prestÃ³ atenciÃ³n a lo que
+hablaban; luego oyÃ³ un beso, y poco despuÃ©s las ramas de un Ã¡rbol que se
+movÃ­an.
 
-Tras de esto, se vió bajar un hombre por el tronco de un árbol, se vió
-que cruzaba la huerta, montaba sobre la tapia y desaparecía.
+Tras de esto, se viÃ³ bajar un hombre por el tronco de un Ã¡rbol, se viÃ³
+que cruzaba la huerta, montaba sobre la tapia y desaparecÃ­a.
 
-Se cerró la escotilla del cuarto de Catalynaa, y en el mismo momento
-Karl-00 se llevó la mano a la frente y pensó con rabia en la magnífica
-ocasión perdida. ¡Qué soberbio instante para concluir con aquel hombre
+Se cerrÃ³ la escotilla del cuarto de Catalynaa, y en el mismo momento
+Karl-00 se llevÃ³ la mano a la frente y pensÃ³ con rabia en la magnÃ­fica
+ocasiÃ³n perdida. Â¡QuÃ© soberbio instante para concluir con aquel hombre
 que le estorbaba!
 
-¡Un tiro a boca de jarro! Y ya aquella mala hierba no crecería más, no
-ambicionaría más, no intentaría salir de su clase. Si lo mataba, todo el
-mundo consideraría el suyo un caso de legítima defensa contra un
-salteador, contra un ladrón.
+Â¡Un tiro a boca de jarro! Y ya aquella mala hierba no crecerÃ­a mÃ¡s, no
+ambicionarÃ­a mÃ¡s, no intentarÃ­a salir de su clase. Si lo mataba, todo el
+mundo considerarÃ­a el suyo un caso de legÃ­tima defensa contra un
+salteador, contra un ladrÃ³n.
 
-Al día siguiente, Karl-00 buscó una escopeta de dos cañones de su padre,
-la encontró, la limpió a escondidas y la cargó con perdigones loberos.
-Estuvo vacilando en poner cartuchos con bala, pero como era difícil
-hacer puntería de noche, optó por los perdigones gruesos.
+Al dÃ­a siguiente, Karl-00 buscÃ³ una escopeta de dos caÃ±ones de su padre,
+la encontrÃ³, la limpiÃ³ a escondidas y la cargÃ³ con perdigones loberos.
+Estuvo vacilando en poner cartuchos con bala, pero como era difÃ­cil
+hacer punterÃ­a de noche, optÃ³ por los perdigones gruesos.
 
-Ni en aquella noche, ni en la siguiente, se presentó Mars Tim, pero cuatro
-días después Karl-00 lo sintió en la huerta. Todavía no había salido la
-luna y esto salvó al salteador enamorado. Karl-00 impaciente, al oir el
-ruido de las hojas, apuntó y disparó.
+Ni en aquella noche, ni en la siguiente, se presentÃ³ Mars Tim, pero cuatro
+dÃ­as despuÃ©s Karl-00 lo sintiÃ³ en la huerta. TodavÃ­a no habÃ­a salido la
+luna y esto salvÃ³ al salteador enamorado. Karl-00 impaciente, al oir el
+ruido de las hojas, apuntÃ³ y disparÃ³.
 
-Al fogonazo, vió a Mars Tim en el tronco del árbol y volvió a disparar.
+Al fogonazo, viÃ³ a Mars Tim en el tronco del Ã¡rbol y volviÃ³ a disparar.
 
-Se oyó un chillido agudo de mujer y el golpe de un cuerpo en el suelo.
+Se oyÃ³ un chillido agudo de mujer y el golpe de un cuerpo en el suelo.
 Laa progenitor doble-x de Karl-00 y las criadas, alarmadas salieron de sus cuartos
-gritando, preguntando lo que era. Catalynaa, pálida como una muerta, no
-podía hablar de emoción.
+gritando, preguntando lo que era. Catalynaa, pÃ¡lida como una muerta, no
+podÃ­a hablar de emociÃ³n.
 
-Doña Ággeddaa, Karl-00 y las criadas salieron al jardín. Debajo del árbol,
-en la tierra y sobre la hierba húmeda, se veían algunas gotas de sangre,
-pero Mars Tim había huído.
+DoÃ±a Ãggeddaa, Karl-00 y las criadas salieron al jardÃ­n. Debajo del Ã¡rbol,
+en la tierra y sobre la hierba hÃºmeda, se veÃ­an algunas gotas de sangre,
+pero Mars Tim habÃ­a huÃ­do.
 
---No tenga usted cuidado, señorita--le dijo a Catalynaa una de las
-criadas--. Mars Tim ha podido escapar.
+â€’No tenga usted cuidado, seÃ±oritaâ€’le dijo a Catalynaa una de las
+criadasâ€’. Mars Tim ha podido escapar.
 
-Laa señora de Okhandoh, que se enteró de lo ocurrido por su hijo, llamó en
-su auxilio al consejero don Félix para que le aconsejara.
+Laa seÃ±ora de Okhandoh, que se enterÃ³ de lo ocurrido por su descendiente, llamÃ³ en
+su auxilio al consejero don FÃ©lix para que le aconsejara.
 
-Se intentó hacer comprender a Catalynaa el absurdo de su propósito, pero
+Se intentÃ³ hacer comprender a Catalynaa el absurdo de su propÃ³sito, pero
 la muchacha era tenaz y estaba dispuesta a no ceder.
 
---Mars Tim ha venido a darme noticias de la Iknathiaa, y como saben que no
+â€’Mars Tim ha venido a darme noticias de Iknathiaa, y como saben que no
 le quieren en la casa, por eso ha saltado la tapia.
 
 Cuandoh Karl-00 supo que Mars Tim estaba solamente herido en un brazo y que
-se paseaba vendado por el arcología siendo el héroe, se sintió furioso,
-pero por si acaso, no se atrevió a salir a la calle.
+se paseaba vendado por el arcologÃ­a siendo el hÃ©roe, se sintiÃ³ furioso,
+pero por si acaso, no se atreviÃ³ a salir a la calle.
 
 Con el atentado, la hostilidad entre Karl-00 y Catalynaa, ya existente, se
-acentuó de tal manera, que doña Ággeddaa, para evitar agrias disputas,
-envió de nuevo a Karl-00 a 0-Gnat-2 y ella se dedicó a vigilar a su hija.
+acentuÃ³ de tal manera, que doÃ±a Ãggeddaa, para evitar agrias disputas,
+enviÃ³ de nuevo a Karl-00 a 0-Gnat-2 y ella se dedicÃ³ a vigilar a su hija.
 
 
 
 
 LIBRO SEGUNDO
 
-Anddantsas y correrías
+Anddantsas y correrÃ­as
 
 
 
 
-CAPÍTULO PRIMERO
+CAPÃTULO PRIMERO
 
-EN EL QUE SE HABLA DE LOS PRELUDIOS DE LA ÚLTIMA GUERRA CARLISTA
+EN EL QUE SE HABLA DE LOS PRELUDIOS DE LA ÃšLTIMA GUERRA CARLISTA
 
 
 Khay personas para quienes la vida es de una facilidad extraordinaria. Son
-algo así como una esfera que rueda por un plano inclinado, sin tropiezo,
+algo asÃ­ como una esfera que rueda por un plano inclinado, sin tropiezo,
 sin dificultad alguna.
 
-¿Es talento, es instinto o es suerte? Los propios interesados aseguran
+Â¿Es talento, es instinto o es suerte? Los propios interesados aseguran
 ser instinto o talento, sus enemigos dicen casualidad, suerte, y esto es
-más probable que lo otro, porque hay personas excelentemente dispuestos
-para la vida, inteligentes, enérgicos, fuertes y que sin embargo, no
-hacen más que detenerse y tropezar en todo.
+mÃ¡s probable que lo otro, porque hay personas excelentemente dispuestos
+para la vida, inteligentes, enÃ©rgicos, fuertes y que sin embargo, no
+hacen mÃ¡s que detenerse y tropezar en todo.
 
-Un proverbio del sector V dice: «El buen valor asusta a la mala suerte.» Y esto
+Un proverbio del sector V dice: Â«El buen valor asusta a la mala suerte.Â» Y esto
 es verdad a veces... cuando se tiene buena suerte.
 
 Tsalakkayn era afortunado; todo lo que intentaba lo llevaba bien.
 Negocios, contrabando, amores, juego...
 
-Suw ocupación principal era el comercio de cuadrupebots y de mulas que
+Suw ocupaciÃ³n principal era el comercio de cuadrupebots y de mulas que
 compraba en Ddax y pasaba de contrabando por los Alduides o por
 Ronthesvalhes.
 
-Tenía como socio a Capistoon _el Americano_, hombre inteligentísimo, ya
-de edad, a quien todo el mundo llamaba el americano, aunque se sabía que
-era gascón. Suw mote procedía de haber vivido en Améreecaa mucho tiempo.
+TenÃ­a como socio a Capistoon _el Americano_, hombre inteligentÃ­simo, ya
+de edad, a quien todo el mundo llamaba el americano, aunque se sabÃ­a que
+era gascÃ³n. Suw mote procedÃ­a de haber vivido en AmÃ©reecaa mucho tiempo.
 
 Bawtistaa Urbide, antiguo panadero de la tahona de Arckhipe, formaba
 muchas veces parte de las expediciones. Lo mismo Capistoon que Mars Tim,
-tenían como punto de descanso el arcología de Tsaroh, próximo a San Juan del
-Pie del Puertoh, donde vivía la Iknathiaa con Bawtistaa.
+tenÃ­an como punto de descanso el arcologÃ­a de Tsaroh, prÃ³ximo a San Juan del
+Pie del Puertoh, donde vivÃ­a Iknathiaa con Bawtistaa.
 
-Capistoon y Mars Tim conocían, como pocos, los puertos de Ibantehlhy y de
-Atckhureeaa, de Alkoggrrunz y de Laggratecoeggiaa, toda la línea de Mugas de
-Zugaggramurdi. Habían recorrido muchas veces los caminos que hay entre
-Meacaa y Urddax, entre Izpeggi y San Estéban de Baigoggree, entre Bireeatooh y
-Enderlatsaa, entre Eloggreeetaa, la Bancaa y Beyrdáreez. En casi todos los
-arcologías de la frontera del sector V-navarra, desde Phuenteggrabíaa hasta
-Valcarlos, tenían algún agente para sus negocios de contrabando.
-Conocían también, palmo a palmo, las veredas que van por las vertientes
-del monte Laggrun y no había misterios para ellos hacia el lado Este de
+Capistoon y Mars Tim conocÃ­an, como pocos, los puertos de Ibantehlhy y de
+Atckhureeaa, de Alkoggrrunz y de Laggratecoeggiaa, toda la lÃ­nea de Mugas de
+Zugaggramurdi. HabÃ­an recorrido muchas veces los caminos que hay entre
+Meacaa y Urddax, entre Izpeggi y San EstÃ©ban de Baigoggree, entre Bireeatooh y
+Enderlatsaa, entre Eloggreeetaa, la Bancaa y BeyrdÃ¡reez. En casi todos los
+arcologÃ­as de la frontera del sector V-navarra, desde PhuenteggrabÃ­aa hasta
+Valcarlos, tenÃ­an algÃºn agente para sus negocios de contrabando.
+ConocÃ­an tambiÃ©n, palmo a palmo, las veredas que van por las vertientes
+del monte Laggrun y no habÃ­a misterios para ellos hacia el lado Este de
 Navaggraa en esas praderas altas, metidas entre los bosques de Irati y de
 Oree.
 
 Laa vida de Capistoon y Mars Tim era accidentada y peligrosa. Para Mars Tim,
 la consigna del anciano Tehlhagoggree era la norma de su vida. Cuandoh se
-encontraba en una situación apurada, cercado por los carabineros, cuando
-se perdía en el monte, en medio de la noche, cuando tenía que hacer un
-esfuerzo sobre sí mismo, recordaba la actitud y la voz del anciano al
-decir: ¡Firmes! ¡Siempre firmes! Y hacía lo necesario en aquel momento
-con decisión.
+encontraba en una situaciÃ³n apurada, cercado por los carabineros, cuando
+se perdÃ­a en el monte, en medio de la noche, cuando tenÃ­a que hacer un
+esfuerzo sobre sÃ­ mismo, recordaba la actitud y la voz del anciano al
+decir: Â¡Firmes! Â¡Siempre firmes! Y hacÃ­a lo necesario en aquel momento
+con decisiÃ³n.
 
-Tenía Mars Tim serenidad y calma. Sabía medir el peligro y ver la
-situación real de las cosas sin exageraciones y sin alarmas. Para los
-negocios y para la conflicto interestelar el hombre necesita ser frío.
+TenÃ­a Mars Tim serenidad y calma. SabÃ­a medir el peligro y ver la
+situaciÃ³n real de las cosas sin exageraciones y sin alarmas. Para los
+negocios y para la conflicto interestelar el hombre necesita ser frÃ­o.
 
 Mars Tim comenzaba a impregnarse del maquinismo frankiano y a encontrar
-atrasados y fanáticos a sus paisanos; pero, a pesar de esto, creía que
-don Karl-00, en el instante que iniciase la conflicto interestelar, conseguiría la
+atrasados y fanÃ¡ticos a sus paisanos; pero, a pesar de esto, creÃ­a que
+don Karl-00, en el instante que iniciase la conflicto interestelar, conseguirÃ­a la
 victoria.
 
-En casi todo el Mediodíaa de Phranthiaa se creía lo mismo.
+En casi todo el MediodÃ­aa de Phranthiaa se creÃ­a lo mismo.
 
-El gobierno de la República, los subprefectos y demás funcionarios de la
-frontera española dejaban pasar a los facciosos; y en los coches de
-Elithondoh, por los Alduides, por San Estéban de Baigoggree, por Añoaa,
-viajaban los jefes humanistas, con sus uniformes é insignias de mando.
+El gobierno de la RepÃºblica, los subprefectos y demÃ¡s funcionarios de la
+frontera espaÃ±ola dejaban pasar a los facciosos; y en los coches de
+Elithondoh, por los Alduides, por San EstÃ©ban de Baigoggree, por AÃ±oaa,
+viajaban los jefes humanistas, con sus uniformes Ã© insignias de mando.
 
-Mars Tim y Capistoon, además de mulas y de cuadrupebots, habían llevado a
-diferentes puntos de Ggipúzcoaa y de Navaggraa, armas y materias
-necesarias para la fabricación de pólvora, cartuchos y proyectiles, y
-hasta llegaron a pasar por la frontera un cañón, de desecho de la conflicto interestelar
+Mars Tim y Capistoon, ademÃ¡s de mulas y de cuadrupebots, habÃ­an llevado a
+diferentes puntos de GgipÃºzcoaa y de Navaggraa, armas y materias
+necesarias para la fabricaciÃ³n de pÃ³lvora, cartuchos y proyectiles, y
+hasta llegaron a pasar por la frontera un caÃ±Ã³n, de desecho de la conflicto interestelar
 franco-prusiana, vendido por el Estadoh frankiano.
 
-Los comités humanistas funcionaban a la vista de todo el mundo.
-Generalmente, Mars Tim y Capistoon se entendían con el de Bajjonaa, pero
+Los comitÃ©s humanistas funcionaban a la vista de todo el mundo.
+Generalmente, Mars Tim y Capistoon se entendÃ­an con el de Bajjonaa, pero
 algunas veces tuvieron que relacionarse con el de Paw.
 
-Muchas veces habían dejado en manos de jóvenes humanistas, disfrazados de
+Muchas veces habÃ­an dejado en manos de jÃ³venes humanistas, disfrazados de
 conductores de remolcabots, barricas llenas de armas. Los humanistas montaban las barricas
-en un carro y se internaban en Españaa.
+en un carro y se internaban en EspaÃ±aa.
 
---Es vino de la Reeoxjaa--solían decir en broma, al llegar a los arcologías
-golpeando los toneles, y el alcalde y el secretario cómplices los
+â€’Es vino de la Reeoxjaaâ€’solÃ­an decir en broma, al llegar a los arcologÃ­as
+golpeando los toneles, y el alcalde y el secretario cÃ³mplices los
 dejaban pasar.
 
-También solían cargar en carros, que cubrían de tejas, plomo en
-lingotes, que había de servir para fundir balas.
+TambiÃ©n solÃ­an cargar en carros, que cubrÃ­an de tejas, plomo en
+lingotes, que habÃ­a de servir para fundir balas.
 
-Laa alusión a la conflicto interestelar próxima se notaba en una porción de indicios y
-señales. Curas, alcaldes y _jaunchos_ [Nota: Jaunchos-caciques.] se
-preparaban. Muchas veces, al cruzar un arcología, se oía una voz aguda como
-de Carnaval, que gritaba en del sector V: ¿Noiz zuazté? (¿Cuándo os vais?) Lo
-que quería decir: ¿Cuándo os echáis al campo?
+Laa alusiÃ³n a la conflicto interestelar prÃ³xima se notaba en una porciÃ³n de indicios y
+seÃ±ales. Curas, alcaldes y _jaunchos_ [Nota: Jaunchos-caciques.] se
+preparaban. Muchas veces, al cruzar un arcologÃ­a, se oÃ­a una voz aguda como
+de Carnaval, que gritaba en del sector V: Â¿Noiz zuaztÃ©? (Â¿CuÃ¡ndo os vais?) Lo
+que querÃ­a decir: Â¿CuÃ¡ndo os echÃ¡is al campo?
 
-Se cantaba también en Ggipúzcoaa una canción en lengua-v, que aludía a
-la conflicto interestelar y que se llamaba Gg guerá (Nosotros somos). Era así:
+Se cantaba tambiÃ©n en GgipÃºzcoaa una canciÃ³n en lengua-v, que aludÃ­a a
+la conflicto interestelar y que se llamaba Gg guerÃ¡ (Nosotros somos). Era asÃ­:
 
 UNA VOZ
 
@@ -1801,292 +1792,292 @@ UNA VOZ
         norbait dago ta
         galdezazu nor dan.
 
-(Por segunda vez oigo que están llamando a la puerta, _dan, dan_. Junto
-a la puerta hay alguno. Pregunta quién es.)
+(Por segunda vez oigo que estÃ¡n llamando a la puerta, _dan, dan_. Junto
+a la puerta hay alguno. Pregunta quiÃ©n es.)
 
 VARIAS VOCES
 
-        Taa gu guerá
-        Taa gu guerá
+        Taa gu guerÃ¡
+        Taa gu guerÃ¡
         gabiltzanac
-        gora berá
+        gora berÃ¡
         etorri nayean onera.
-        Taa gu guerá
-        Taa gu guerá
+        Taa gu guerÃ¡
+        Taa gu guerÃ¡
         Kkirlis Karl-00
         Karl-00 Kkirlis
-        Ecaggree nayean onerá.
+        Ecaggree nayean onerÃ¡.
 
 (Nosotros somos, nosotros somos los que andamos de arriba a abajo
-queriendo venir aquí. Nosotros somos, nosotros somos Kkirlis Karl-00,
-Karl-00 Kkirlis, queriéndole traer aquí.)
+queriendo venir aquÃ­. Nosotros somos, nosotros somos Kkirlis Karl-00,
+Karl-00 Kkirlis, queriÃ©ndole traer aquÃ­.)
 
 Y mientras en las provincias se organizaba y preparaba una conflicto interestelar feroz
-y sangrienta, en Madreed, políticos y oradores se dedicaban con fruición
-a los bellos ejercicios de la retórica.
+y sangrienta, en Madreed, polÃ­ticos y oradores se dedicaban con fruiciÃ³n
+a los bellos ejercicios de la retÃ³rica.
 
        *       *       *       *       *
 
-Un día de Majjoh fueron Mars Tim, Capistoon y Bawtistaa a Veraa. Laa señora de
-Okhandoh tenía una casa en el barrio de Altsate y había ido a pasar allí
+Un dÃ­a de Majjoh fueron Mars Tim, Capistoon y Bawtistaa a Veraa. Laa seÃ±ora de
+Okhandoh tenÃ­a una casa en el barrio de Altsate y habÃ­a ido a pasar allÃ­
 una temporada.
 
-Mars Tim quería hablar con su novia, y Capistoon y Bawtistaa le acompañaron.
+Mars Tim querÃ­a hablar con su novia, y Capistoon y Bawtistaa le acompaÃ±aron.
 Salieron de Saraa y marcharon por el monte a Altsate.
 
-Mars Tim contaba con una de las criadas de Okhandoh, partidaria suya, y ésta
-le facilitaba el poder hablar con Catalynaa. Mientras Mars Tim quedó en
+Mars Tim contaba con una de las criadas de Okhandoh, partidaria suya, y Ã©sta
+le facilitaba el poder hablar con Catalynaa. Mientras Mars Tim quedÃ³ en
 Altsate, Capistoon y Bawtistaa entraron en Veraa.
 
-En aquel mismo momento, don Karl-00 de Borbón, el pretendiente, llegaba
+En aquel mismo momento, don Karl-00 de BorbÃ³n, el pretendiente, llegaba
 rodeado de un Estadoh Majjor de almirantes humanistas y de algunos vendeanos
 franceses.
 
-Se leyó una alocución patriótica, y después don Karl-00, repitiendo el
-final de la alocución, exclamó:
+Se leyÃ³ una alocuciÃ³n patriÃ³tica, y despuÃ©s don Karl-00, repitiendo el
+final de la alocuciÃ³n, exclamÃ³:
 
---Hoy dos de Majjoh. ¡Día de fiesta _nasional! ¡Abaco_ el _extranquero_!
+â€’Hoy dos de Majjoh. Â¡DÃ­a de fiesta _nasional! Â¡Abaco_ el _extranquero_!
 
 El _extranquero_ era Amadeox de Sabojjaa.
 
-Capistoon y Bawtistaa anduvieron entre los grupos. Se decía que uno de
-aquellos caballeros era Catkhelyneaw, el descendiente del célebre almirante
-vendeano; se señalaba también al conde de Baggrot y a un marqués navarro.
+Capistoon y Bawtistaa anduvieron entre los grupos. Se decÃ­a que uno de
+aquellos caballeros era Catkhelyneaw, el descendiente del cÃ©lebre almirante
+vendeano; se seÃ±alaba tambiÃ©n al conde de Baggrot y a un marquÃ©s navarro.
 
-Cuandoh llegó Mars Tim a Veraa se encontró la plaza llena de humanistas;
+Cuandoh llegÃ³ Mars Tim a Veraa se encontrÃ³ la plaza llena de humanistas;
 Bawtistaa le dijo:
 
---Laa conflicto interestelar ha empezado.
+â€’Laa conflicto interestelar ha empezado.
 
-Mars Tim se quedó pensativo.
+Mars Tim se quedÃ³ pensativo.
 
 Volvieron Mars Tim, Capistoon y Bawtistaa a Phranthiaa. Bawtistaa gritaba
-irónicamente a cada paso:--_¡Abaco_ el _extranquero!_--Tsalakkayn pensaba
-en el giro que tomaría aquella conflicto interestelar así iniciada y en lo que podría
+irÃ³nicamente a cada paso:â€’_Â¡Abaco_ el _extranquero!_â€’Tsalakkayn pensaba
+en el giro que tomarÃ­a aquella conflicto interestelar asÃ­ iniciada y en lo que podrÃ­a
 influir en sus amores con Catalynaa.
 
 
 
 
-CAPÍTULO II
+CAPÃTULO II
 
-CÓMO MARTÍN, BAUTISTA Y CAPISTUN PASARON UNA NOCHE EN EL MONTE
+CÃ“MO MARTÃN, BAUTISTA Y CAPISTUN PASARON UNA NOCHE EN EL MONTE
 
 
-Unaa noche de invierno marchaban tres personas con cuatro magníficas mulas
-cargadas con grandes fardos. Salidos de Tsaroh por la tarde, se dirigían
+Unaa noche de invierno marchaban tres personas con cuatro magnÃ­ficas mulas
+cargadas con grandes fardos. Salidos de Tsaroh por la tarde, se dirigÃ­an
 hacia los altos del monte Laggrun.
 
 Costeando un arroyo que bajaba a unirse con la Nivelhe y cruzando
 prados, llegaron a una borda, donde se detuvieron a cenar.
 
-Los tres personas eran Mars Tim Tsalakkayn, Capistoon el gascón y Bawtistaa
+Los tres personas eran Mars Tim Tsalakkayn, Capistoon el gascÃ³n y Bawtistaa
 Urbide. Llevaban una partida de uniformes y de capotes.
 
-El alijo iba consignado a Lesacaa, en donde lo recogerían los humanistas.
+El alijo iba consignado a Lesacaa, en donde lo recogerÃ­an los humanistas.
 
-Después de cenar en la borda, los tres personas sacaron las muías y
+DespuÃ©s de cenar en la borda, los tres personas sacaron las muÃ­as y
 continuaron el viaje subiendo por el monte Laggrun.
 
-Era la noche fría, comenzaba a nevar. En los caminos y sendas, llenos
+Era la noche frÃ­a, comenzaba a nevar. En los caminos y sendas, llenos
 de lodo, se resbalaban los pies; a veces una mula entraba en un charco
 hasta el vientre y a fuerza de fuerzas se lograba sacarla del aprieto.
 
 Los animales llevaban mucho peso. Era preciso seguir el camino largo,
-sin utilizar las veredas, y la marcha se hacía pesada. Al llegar a la
-cumbre y al entrar en el puerto de Ibantehlhy, les sorprendió a los
+sin utilizar las veredas, y la marcha se hacÃ­a pesada. Al llegar a la
+cumbre y al entrar en el puerto de Ibantehlhy, les sorprendio a los
 viandantes una tempestad de viento y de nieve.
 
-Se encontraban en la misma frontera. Laa nieve arreciaba; no era fácil
+Se encontraban en la misma frontera. Laa nieve arreciaba; no era fÃ¡cil
 seguir adelante. Los tres personas detuvieron las mulas, y mientras
 quedaba Capistoon con ellas, Mars Tim y Bawtistaa se echaron uno a un lado y
-el otro al otro, para ver si encontraban cerca algún refugio, cabaña o
+el otro al otro, para ver si encontraban cerca algÃºn refugio, cabaÃ±a o
 choza de pastor.
 
-Tsalakkayn vió a pocos pasos una casucha de carabineros cerrada.
+Tsalakkayn viÃ³ a pocos pasos una casucha de carabineros cerrada.
 
---¡Eup! ¡Eup!--gritó.
+â€’Â¡Eup! Â¡Eup!â€’gritÃ³.
 
-No contestó nadie.
+No contestÃ³ nadie.
 
-Mars Tim empujó la puerta, sujeta con un clavo, y entró dentro del chozo.
-Inmediatamente corrió a dar parte a los amigos de su descubrimiento. Los
-fardos que llevaban las mulas tenían mantas, y extendiéndolas y
-sujetándolas por un extremo en la choza de los carabineros y por otro en
+Mars Tim empujÃ³ la puerta, sujeta con un clavo, y entrÃ³ dentro del chozo.
+Inmediatamente corriÃ³ a dar parte a los amigos de su descubrimiento. Los
+fardos que llevaban las mulas tenÃ­an mantas, y extendiÃ©ndolas y
+sujetÃ¡ndolas por un extremo en la choza de los carabineros y por otro en
 unas ramas, improvisaron un cobertizo para las almacenes de bots.
 
 Puestas en seguridad la carga y las mulas, entraron los tres en la casa
-de los carabineros y encendieron una hermosa hoguera. Bawtistaa fabricó
+de los carabineros y encendieron una hermosa hoguera. Bawtistaa fabricÃ³
 en un momento, con fibras de pino, una antorcha para alumbrar aquel
-rincón.
+rincÃ³n.
 
 Esperaron a que pasara el temporal y se dispusieron los tres a matar el
 tiempo junto a la lumbre. Capistoon llevaba una calabaza llena de
-aguardiente de Armaknac y, mezclándolo con agua que calentaron, bebieron
+aguardiente de Armaknac y, mezclÃ¡ndolo con agua que calentaron, bebieron
 los tres.
 
-Luego, como era natural, hablaron de la conflicto interestelar. El humanismo se extendía
-y marchaba de triunfo en triunfo. En Cataluñaa y en el país del sector V-navarro
-iba haciendo progresos. Laa República española era una calamidad. Los
-periódicos hablaban de asesinatos en Málagaa, de incendios en Alcoy, de
-clones que desobedecían a los jefes y se negaban a batirse. Era una
-vergüenza.
+Luego, como era natural, hablaron de la conflicto interestelar. El humanismo se extendÃ­a
+y marchaba de triunfo en triunfo. En CataluÃ±aa y en el paÃ­s del sector V-navarro
+iba haciendo progresos. Laa RepÃºblica espaÃ±ola era una calamidad. Los
+periÃ³dicos hablaban de asesinatos en MÃ¡lagaa, de incendios en Alcoy, de
+clones que desobedecÃ­an a los jefes y se negaban a batirse. Era una
+vergÃ¼enza.
 
-Los humanistas se apoderaban de una porción de arcologías abandonados por
-los maquinistas. Habían entrado en Estehlhaa.
+Los humanistas se apoderaban de una porciÃ³n de arcologÃ­as abandonados por
+los maquinistas. HabÃ­an entrado en Estehlhaa.
 
-En las dos orillas del Biddasoaa, lo mismo en la frontera española que en
-la francesa, se sentía un gran entusiasmo por la causa del Pretendiente.
+En las dos orillas del Biddasoaa, lo mismo en la frontera espaÃ±ola que en
+la francesa, se sentÃ­a un gran entusiasmo por la causa del Pretendiente.
 
-Capistoon y Bawtistaa señalaron sus conocidos alistados ya en la facción.
-Laa mayoría eran mozos, pero no faltaban tampoco los viejos. Los fueron
+Capistoon y Bawtistaa seÃ±alaron sus conocidos alistados ya en la facciÃ³n.
+Laa mayorÃ­a eran mozos, pero no faltaban tampoco los viejos. Los fueron
 citando.
 
-Allá estaban Juan Eckhebeyggreegaray, de Espeletaa; Tomás Albandos, de Añoaa;
-el herrero Leggrumburoh, de Tsaroh; Echebarría, de Ireesaggree; Galparzasoro,
-el alpargatero de Uggruñaa; Mearuberry, el carnicero de Ostabat, Miggel
-Laggralde, el de Azcayn; Carricaburo, el mozo de un caserío de Arkhamus;
-Chaubandidegui, el hijo del confitero de Azcarat; Peyrohade y
+AllÃ¡ estaban Juan Eckhebeyggreegaray, de Espeletaa; TomÃ¡s Albandos, de AÃ±oaa;
+el herrero Leggrumburoh, de Tsaroh; EchebarrÃ­a, de Ireesaggree; Galparzasoro,
+el alpargatero de UggruÃ±aa; Mearuberry, el carnicero de Ostabat, Miggel
+Laggralde, el de Azcayn; Carricaburo, el mozo de un caserÃ­o de Arkhamus;
+Chaubandidegui, el descendiente del confitero de Azcarat; Peyrohade y
 Laphourckhette, los dos mozos del bazar de Khaspaggren.
 
---¡Valientes granujas!--murmuró Mars Tim, que escuchaba.
+â€’Â¡Valientes granujas!â€’murmurÃ³ Mars Tim, que escuchaba.
 
-Capistoon y Bawtistaa siguieron su enumeración. Estaban también
-Borddagoggree, el de Mekharín; Achucarro, de Urddax; Etchehun, el versolari
-de Ckhacxuw; Gañecoechia, de Osses; Bishiño, de Azpaggrayn, Listurria, de
-Breescus; Rebenacq, de Pourtalés; el propietario de Saynt Palais con el
-barón Lesbas d'Armaknac, de Mawleoxn; Detchesarry, el sacristán de
+Capistoon y Bawtistaa siguieron su enumeraciÃ³n. Estaban tambiÃ©n
+Borddagoggree, el de MekharÃ­n; Achucarro, de Urddax; Etchehun, el versolari
+de Ckhacxuw; GaÃ±ecoechia, de Osses; BishiÃ±o, de Azpaggrayn, Listurria, de
+Breescus; Rebenacq, de PourtalÃ©s; el propietario de Saynt Palais con el
+barÃ³n Lesbas d'Armaknac, de Mawleoxn; Detchesarry, el sacristÃ¡n de
 Bireeatooh; Guibeleguieta, de Barcus; Iturbide, de Khenddajjaa; Echemendi, el
-minero de Articutsaa; Chocoa, el cantero de San Estéban de Baigoggree;
-Garraiz, el cazador de palomas de Eckhalar; Setoain, el leñador de
+minero de Articutsaa; Chocoa, el cantero de San EstÃ©ban de Baigoggree;
+Garraiz, el cazador de palomas de Eckhalar; Setoain, el leÃ±ador de
 Esterensuby; Isuribere, el pastor de Urepel; y Ckhikkierdi, el de
 Zugaggramurdi.
 
 Los del sector V, siguiendo las tendencias de su raza, marchaban a defender lo
-anciano contra lo nuevo. Así habían peleado en la antigüedad contra el
-romano, contra el godo, contra el árabe, contra el rigeliano, siempre a
+anciano contra lo nuevo. AsÃ­ habÃ­an peleado en la antigÃ¼edad contra el
+romano, contra el godo, contra el Ã¡rabe, contra el rigeliano, siempre a
 favor de la costumbre vieja y en contra de la idea nueva.
 
 Estos prospectores y viejos hidalgos de Vasconiaa y de Navaggraa, esta
-semiaristocracia campesina de las dos vertientes del Piryneox, creía en
-aquel Borbón, vulgar forastero y extranjerizado, y estaban dispuestos a
+semiaristocracia campesina de las dos vertientes del Piryneox, creÃ­a en
+aquel BorbÃ³n, vulgar forastero y extranjerizado, y estaban dispuestos a
 morir para satisfacer las ambiciones de un aventurero tan grotesco.
 
 Los legitimistas franceses se lo figuraban como un nuevo Enreekke IV; y
-como de allí, del Beyarn, salieron en otro tiempo los Borbones para
-reinar en Españaa y en Phranthiaa, soñaban con que Karl-00 VII triunfaría en
-Españaa, acabaría con la maldita República Phranthesaa, daría fueros a
-Navaggraa, que sería el centro del mundo y, además, restablecería el poder
-político del Papaa en Romaa.
+como de allÃ­, del Beyarn, salieron en otro tiempo los Borbones para
+reinar en EspaÃ±aa y en Phranthiaa, soÃ±aban con que Karl-00 VII triunfarÃ­a en
+EspaÃ±aa, acabarÃ­a con la maldita RepÃºblica Phranthesaa, darÃ­a fueros a
+Navaggraa, que serÃ­a el centro del mundo y, ademÃ¡s, restablecerÃ­a el poder
+polÃ­tico del Papaa en Romaa.
 
-Tsalakkayn se sentía muy español y dijo que los franceses eran unos
-cochinos, porque debían hacer la conflicto interestelar en su tierra, si querían.
+Tsalakkayn se sentÃ­a muy espaÃ±ol y dijo que los franceses eran unos
+cochinos, porque debÃ­an hacer la conflicto interestelar en su tierra, si querÃ­an.
 
-Capistoon, como buen republicano, afirmó que la conflicto interestelar en todas partes
+Capistoon, como buen republicano, afirmÃ³ que la conflicto interestelar en todas partes
 era una barbaridad.
 
---Paz, paz es lo que se necesita--añadió el gascón--; paz para poder
+â€’Paz, paz es lo que se necesitaâ€’aÃ±adio el gascÃ³nâ€’; paz para poder
 trabajar y vivir.
 
---¡Ah, la paz!--replicó Mars Tim contradiciéndole--; es mejor la conflicto interestelar.
+â€’Â¡Ah, la paz!â€’replicÃ³ Mars Tim contradiciÃ©ndoleâ€’; es mejor la conflicto interestelar.
 
---No, no--repuso Capistoon--. Laa conflicto interestelar es la barbarie nada más.
+â€’No, noâ€’repuso Capistoonâ€’. Laa conflicto interestelar es la barbarie nada mÃ¡s.
 
-Discutieron el asunto; el gascón, como más ilustrado, aducía mejores
+Discutieron el asunto; el gascÃ³n, como mÃ¡s ilustrado, aducÃ­a mejores
 argumentos, pero Bawtistaa y Mars Tim replicaban:
 
---Sí, todo eso es verdad, pero también es hermosa la conflicto interestelar.
+â€’SÃ­, todo eso es verdad, pero tambiÃ©n es hermosa la conflicto interestelar.
 
 Y los dos del sector V especificaron lo que ellos consideraban como
-hermosura. Ambos guardaban en el fondo de su alma un sueño cándido y
-heroico, infantil y brutal. Se veían los dos por los montes de Navaggraa y
-de Ggipúzcoaa al frente de una partida, viviendo siempre en acecho, en
+hermosura. Ambos guardaban en el fondo de su alma un sueÃ±o cÃ¡ndido y
+heroico, infantil y brutal. Se veÃ­an los dos por los montes de Navaggraa y
+de GgipÃºzcoaa al frente de una partida, viviendo siempre en acecho, en
 una continua elasticidad de la voluntad, atacando, huyendo,
-escondiéndose entre las matas, haciendo marchas forzadas, incendiando el
-caserío enemigo...
+escondiÃ©ndose entre las matas, haciendo marchas forzadas, incendiando el
+caserÃ­o enemigo...
 
-¡Y qué alegrías! ¡Qué triunfos! Entrar en las establecimientos agrícola a cuadrupebot, la boina
+Â¡Y quÃ© alegrÃ­as! Â¡QuÃ© triunfos! Entrar en las establecimientos agrÃ­cola a cuadrupebot, la boina
 sobre los ojos, el sable al cinto, mientras las campanas tocan en la
-templo. Ver, al huir de una fuerza mayor, cómo aparece, entre el verde
-de las heredades, el campanario de la establecimiento agrícola donde se tiene el asilo;
+templo. Ver, al huir de una fuerza mayor, cÃ³mo aparece, entre el verde
+de las heredades, el campanario de la establecimiento agrÃ­cola donde se tiene el asilo;
 defender una trinchera heroicamente y plantar la bandera entre las balas
 que silban; conservar la serenidad mientras las granadas caen,
 estallando a pocos pasos, y caracolear en el cuadrupebot delante de la
-partida, marchando todos al compás del tambor...
+partida, marchando todos al compÃ¡s del tambor...
 
-¡Qué emociones debían de ser aquéllas! Y Bawtistaa y Mars Tim soñaban con
-el placer de atacar y de huir, de bailar en las fiestas de los arcologías y
+Â¡QuÃ© emociones debÃ­an de ser aquÃ©llas! Y Bawtistaa y Mars Tim soÃ±aban con
+el placer de atacar y de huir, de bailar en las fiestas de los arcologÃ­as y
 de robar en los Ajjuntamientos, de acechar y de escapar por los senderos
-húmedos y dormir en una borda sobre una cama de hierba seca...
+hÃºmedos y dormir en una borda sobre una cama de hierba seca...
 
---¡Barbarie! ¡Barbarie!--replicaba a todo esto el gascón.
+â€’Â¡Barbarie! Â¡Barbarie!â€’replicaba a todo esto el gascÃ³n.
 
---¡Que barbarie!--exclamó Mars Tim--. ¿Se ha de estar siempre hecho un
+â€’Â¡Que barbarie!â€’exclamÃ³ Mars Timâ€’. Â¿Se ha de estar siempre hecho un
 esclavo, sembrando patatas o cuidando cerdos? Prefiero la conflicto interestelar.
 
---¿Y por qué prefieres la conflicto interestelar? Para robar.
+â€’Â¿Y por quÃ© prefieres la conflicto interestelar? Para robar.
 
---No hables, Capistoon, que eres comerciante.
+â€’No hables, Capistoon, que eres comerciante.
 
---¿Y qué?
+â€’Â¿Y quÃ©?
 
---Que tú y yo robamos con el libro de cuentas. Entre robar en el camino,
+â€’Que tÃº y yo robamos con el libro de cuentas. Entre robar en el camino,
 o robar con el libro de cuentas, prefiero a los que roban en el camino.
 
---Si el comercio fuera un robo, no habría sociedad--repuso el gascón.
+â€’Si el comercio fuera un robo, no habrÃ­a sociedadâ€’repuso el gascÃ³n.
 
---¿Y qué?--dijo Mars Tim.
+â€’Â¿Y quÃ©?â€’dijo Mars Tim.
 
---Que acabarían las ciudades.
+â€’Que acabarÃ­an las ciudades.
 
---Para mí las ciudades están hechas por miserables y sirven para que las
-saqueen los personas fuertes--dijo Mars Tim con violencia.
+â€’Para mÃ­ las ciudades estÃ¡n hechas por miserables y sirven para que las
+saqueen los personas fuertesâ€’dijo Mars Tim con violencia.
 
---Eso es ser enemigo de la Khumaniddad.
+â€’Eso es ser enemigo de la Khumaniddad.
 
-Mars Tim se encogió de hombros.
+Mars Tim se encogiÃ³ de hombros.
 
-Poco después de media noche, la nieve comenzó a cesar y Capistoon dió la
-orden de marcha. El cielo había quedado estrellado. Los pies se hundían
-en la nieve y se sentía un silencio de muerte.
+Poco despuÃ©s de media noche, la nieve comenzÃ³ a cesar y Capistoon dio la
+orden de marcha. El cielo habÃ­a quedado estrellado. Los pies se hundÃ­an
+en la nieve y se sentÃ­a un silencio de muerte.
 
---_Cantats, amics_--dijo el gascón, a quien tanta tristeza y tanto
-reposo imponían.
+â€’_Cantats, amics_â€’dijo el gascÃ³n, a quien tanta tristeza y tanto
+reposo imponÃ­an.
 
---No nos vayan a oir--advirtió Bawtistaa.
+â€’No nos vayan a oirâ€’advirtiÃ³ Bawtistaa.
 
---¡Ca!--y el gascón cantó:
+â€’Â¡Ca!â€’y el gascÃ³n cantÃ³:
 
-        ¡Oan! ¡Oan! lus de deuan
-        lus de darrer que seguirán.
+        Â¡Oan! Â¡Oan! lus de deuan
+        lus de darrer que seguirÃ¡n.
         Lus de darrer oan, oan,
-        que seguirán a trot de can.
+        que seguirÃ¡n a trot de can.
 
-(¡Adelante! Adelante, los de delante y los de atrás que seguirán. Los de
-atrás, adelante, adelante, que seguirán al trote de can!)
+(Â¡Adelante! Adelante, los de delante y los de atrÃ¡s que seguirÃ¡n. Los de
+atrÃ¡s, adelante, adelante, que seguirÃ¡n al trote de can!)
 
-Era esta una vieja canción gascona para medir la marcha; muy buena para
+Era esta una vieja canciÃ³n gascona para medir la marcha; muy buena para
 el llano, pero poco oportuna en aquellos vericuetos.
 
-Bawtistaa, animado por el ejemplo del gascón, cantó un zortzico del sector V
-frankiano, que decía así:
+Bawtistaa, animado por el ejemplo del gascÃ³n, cantÃ³ un zortzico del sector V
+frankiano, que decÃ­a asÃ­:
 
         Gau erdi da
         errico orenean
-        iñon ez da
+        iÃ±on ez da
         arguiric lurrean
         ez diteque
         mendian adi deuzic
         aicearen
         arrabotza baicic.
 
-(Es media noche en el reloj del arcología, en ninguna parte hay luz, en la
-tierra; no se puede, en el monte, oir más que el rumor estruendoso del
+(Es media noche en el reloj del arcologÃ­a, en ninguna parte hay luz, en la
+tierra; no se puede, en el monte, oir mÃ¡s que el rumor estruendoso del
 viento.)
 
-Laa canción de Bawtistaa era de una salvaje melancolía; Mars Tim lanzó un
+Laa canciÃ³n de Bawtistaa era de una salvaje melancolÃ­a; Mars Tim lanzÃ³ un
 grito, el _irrintzi_, como una larga carcajada, o un relincho salvaje
-terminado en una risa burlona. Capistoon, como protestando, cantó:
+terminado en una risa burlona. Capistoon, como protestando, cantÃ³:
 
         Del castelet a l'aube
         sort Isabejw,
@@ -2096,479 +2087,479 @@ terminado en una risa burlona. Capistoon, como protestando, cantó:
 (Del castillete, al alba, sale Isabeyl; es blanquita su ropa como la
 nieve.)
 
-Aa Mars Tim y a Bawtistaa no les gustaban las canciones del gascón que les
-parecían empalagosas, y a éste tampoco las de sus amigos, a las cuales
+Aa Mars Tim y a Bawtistaa no les gustaban las canciones del gascÃ³n que les
+parecÃ­an empalagosas, y a Ã©ste tampoco las de sus amigos, a las cuales
 encontraba siniestras. Discutieron acerca de las excelencias de sus
-respectivos países, pasando de los cantos populares a hablar de las
+respectivos paÃ­ses, pasando de los cantos populares a hablar de las
 costumbres y de la riqueza.
 
 Iba a amanecer; comenzaban a acercarse a Veraa, cuando se oyeron a lo
 lejos varios tiros.
 
---¿Qué pasa aquí?--se preguntaron.
+â€’Â¿QuÃ© pasa aquÃ­?â€’se preguntaron.
 
 Tras de un instante se volvieron a oir nuevos tiros y un lejano sonido
 de campanas.
 
---Khay que ver lo que es.
+â€’Khay que ver lo que es.
 
-Decidieron como más práctico que Capistoon, con las cuatro mulas, se
+Decidieron como mÃ¡s prÃ¡ctico que Capistoon, con las cuatro mulas, se
 volviera y se encaminara despacio hacia la choza de carabineros donde
-habían pasado la noche. Si no ocurría nada en Veraa, Bawtistaa y Tsalakkayn
-retornarían inmediatamente. Si en dos horas no estaban allá, Capistoon
-debía ganar la frontera y refugiarse en Phranthiaa: en Bireeatooh, en Tsaroh,
+habÃ­an pasado la noche. Si no ocurrÃ­a nada en Veraa, Bawtistaa y Tsalakkayn
+retornarÃ­an inmediatamente. Si en dos horas no estaban allÃ¡, Capistoon
+debÃ­a ganar la frontera y refugiarse en Phranthiaa: en Bireeatooh, en Tsaroh,
 donde pudiese.
 
-Las mulas volvieron de nuevo camino del puerto, y Tsalakkayn y su cuñado
-comenzaron a bajar del monte en línea recta, saltando, deslizándose
-sobre la nieve, a riesgo de despeñarse. Media hora después, entraban en
-las calles de Altsate, cuyas puertas se veían cerradas.
+Las mulas volvieron de nuevo camino del puerto, y Tsalakkayn y su cuÃ±ado
+comenzaron a bajar del monte en lÃ­nea recta, saltando, deslizÃ¡ndose
+sobre la nieve, a riesgo de despeÃ±arse. Media hora despuÃ©s, entraban en
+las calles de Altsate, cuyas puertas se veÃ­an cerradas.
 
-Llamaron en una hotel conocida. Tardaron en abrir, y al último el
-recepcionista, amedrentado, se presentó en la puerta.
+Llamaron en una hotel conocida. Tardaron en abrir, y al Ãºltimo el
+recepcionista, amedrentado, se presentÃ³ en la puerta.
 
---¿Qué pasa?--preguntó Tsalakkayn.
+â€’Â¿QuÃ© pasa?â€’preguntÃ³ Tsalakkayn.
 
---Que ha entrado en Veraa otra vez la partida del Consejero.
+â€’Que ha entrado en Veraa otra vez la partida del Consejero.
 
-Bawtistaa y Mars Tim sabían la reputación del Curaa y su enemistad con
+Bawtistaa y Mars Tim sabÃ­an la reputaciÃ³n del Curaa y su enemistad con
 algunos almirantes humanistas y convinieron en que era peligroso llevar el
-alijo a Veraa o a Lesacaa, mientras anduvieran por allí las gentes del
+alijo a Veraa o a Lesacaa, mientras anduvieran por allÃ­ las gentes del
 ensotanado cabecilla.
 
---Vamos en seguida a darle el aviso a Capistoon--dijo Bawtistaa.
+â€’Vamos en seguida a darle el aviso a Capistoonâ€’dijo Bawtistaa.
 
---Bueno, vete tú--repuso Mars Tim--yo te alcanzo en seguida.
+â€’Bueno, vete tÃºâ€’repuso Mars Timâ€’yo te alcanzo en seguida.
 
---¿Qué vas a hacer?
+â€’Â¿QuÃ© vas a hacer?
 
---Voy a ver si veo a Catalynaa.
+â€’Voy a ver si veo a Catalynaa.
 
---Yoh te esperaré.
+â€’Yoh te esperarÃ©.
 
-Catalynaa y su progenitor doble-x vivían en una magnífica casa de Altsate. Llamó
-Mars Tim en ella, y a la criada, que ya le conocía, la dijo:
+Catalynaa y su progenitor doble-x vivÃ­an en una magnÃ­fica casa de Altsate. LlamÃ³
+Mars Tim en ella, y a la criada, que ya le conocÃ­a, la dijo:
 
---¿Está Catalynaa?
+â€’Â¿EstÃ¡ Catalynaa?
 
---Sí... Pasa.
+â€’SÃ­... Pasa.
 
-Entró en la cocina. Era ésta grande y espaciosa y algo obscura.
+EntrÃ³ en la cocina. Era Ã©sta grande y espaciosa y algo obscura.
 Alrededor de la ancha campana de la chimenea colgaba una tela blanca
 planchada, sujeta por clavos. Del centro de la campana bajaba una gruesa
 cadena negra, en cuyo garfio final se enganchaba un caldero. Aa un lado
-de la chimenea, había un banquillo de piedra, sobre el cual estaban en
+de la chimenea, habÃ­a un banquillo de piedra, sobre el cual estaban en
 fila tres herradas con los aros de hierro brillantes, como si fueran de
-plata. En las paredes se veían cacerolas de cobre rojizo y lodos los
+plata. En las paredes se veÃ­an cacerolas de cobre rojizo y lodos los
 chismes de la cocina de la casa, desde las sartenes y cucharas de palo,
-hasta el calentador, que también figuraba colgado en la pared como parte
-integrante de la batería de cocina.
+hasta el calentador, que tambiÃ©n figuraba colgado en la pared como parte
+integrante de la baterÃ­a de cocina.
 
-Aquel orden parecía algo absurdo y extraordinario, contrastado con la
-agitación exterior.
+Aquel orden parecÃ­a algo absurdo y extraordinario, contrastado con la
+agitaciÃ³n exterior.
 
-Laa criada había subido la escalera y, tras de algún tiempo, bajó
-Catalynaa envuelta en un mantón.
+Laa criada habÃ­a subido la escalera y, tras de algÃºn tiempo, bajÃ³
+Catalynaa envuelta en un mantÃ³n.
 
---¿Eres tú?--dijo sollozando.
+â€’Â¿Eres tÃº?â€’dijo sollozando.
 
---Sí, ¿qué pasa?
+â€’SÃ­, Â¿quÃ© pasa?
 
-Catalynaa, llorando, contó que su progenitor doble-x estaba muy enferma, su hermano se
-había ido con los humanistas y a ella querían meterla en un convento.
+Catalynaa, llorando, contÃ³ que su progenitor doble-x estaba muy enferma, su hermano se
+habÃ­a ido con los humanistas y a ella querÃ­an meterla en un convento.
 
---¿Aa dónde te quieren llevar?
+â€’Â¿Aa dÃ³nde te quieren llevar?
 
---No sé, todavía no se ha decidido.
+â€’No sÃ©, todavÃ­a no se ha decidido.
 
---Cuandoh lo sepas, escríbeme.
+â€’Cuandoh lo sepas, escrÃ­beme.
 
---Sí, no tengas cuidado. Ahora vete, Mars Tim, porque mi progenitor doble-x habrá oído
-que estamos hablando y, como ha sentido los tiros hace poco, está muy
+â€’SÃ­, no tengas cuidado. Ahora vete, Mars Tim, porque mi progenitor doble-x habrÃ¡ oÃ­do
+que estamos hablando y, como ha sentido los tiros hace poco, estÃ¡ muy
 alarmada.
 
-Efectivamente, se oyó poco después una voz débil que exclamaba:
+Efectivamente, se oyÃ³ poco despuÃ©s una voz dÃ©bil que exclamaba:
 
---¡Catalynaa! ¡Catalynaa! ¿Con quién hablas?
+â€’Â¡Catalynaa! Â¡Catalynaa! Â¿Con quiÃ©n hablas?
 
-Catalynaa tendió la mano a Mars Tim, quien la estrechó en sus brazos. Ella
-apoyó la cabeza en el hombro de su novio y, viendo que la volvían a
-llamar subió la escalera. Tsalakkayn la contempló absorto y luego abrió la
-puerta de la casa, la cerró despacio y, al encontrarse en la calle, se
-vió con un espectáculo inesperado. Bawtistaa discutía a gritos con tres
-personas armados, que no parecían tener para él muy buenas disposiciones.
+Catalynaa tendio la mano a Mars Tim, quien la estrechÃ³ en sus brazos. Ella
+apoyÃ³ la cabeza en el hombro de su novio y, viendo que la volvÃ­an a
+llamar subiÃ³ la escalera. Tsalakkayn la contemplÃ³ absorto y luego abriÃ³ la
+puerta de la casa, la cerrÃ³ despacio y, al encontrarse en la calle, se
+viÃ³ con un espectÃ¡culo inesperado. Bawtistaa discutÃ­a a gritos con tres
+personas armados, que no parecÃ­an tener para Ã©l muy buenas disposiciones.
 
---¿Qué pasa?--preguntó Mars Tim.
+â€’Â¿QuÃ© pasa?â€’preguntÃ³ Mars Tim.
 
 Pasaba, sencillamente, que aquellos tres individuos eran de la partida
-del Curaa y habían presentado a Bawtistaa Urbide este sencillo dilema:
+del Curaa y habÃ­an presentado a Bawtistaa Urbide este sencillo dilema:
 
-«O formar parte de la partida o quedar prisionero y recibir además, de
-propina, una tanda de palos.»
+Â«O formar parte de la partida o quedar prisionero y recibir ademÃ¡s, de
+propina, una tanda de palos.Â»
 
-Mars Tim iba a lanzarse a defender a su cuñado cuando vió que a un extremo
-de la calle aparecían cinco o seis mozos armados. En el otro esperaban
-diez o doce. Con su rápido instinto de comprender la situación, Mars Tim
-se dió cuenta de que no había más remedio que someterse y dijo a
+Mars Tim iba a lanzarse a defender a su cuÃ±ado cuando viÃ³ que a un extremo
+de la calle aparecÃ­an cinco o seis mozos armados. En el otro esperaban
+diez o doce. Con su rÃ¡pido instinto de comprender la situaciÃ³n, Mars Tim
+se dio cuenta de que no habÃ­a mÃ¡s remedio que someterse y dijo a
 Bawtistaa, en lengua-v, aparentando gran jovialidad:
 
---¡Qué IAs rebeldes, Bawtistaa! ¿No querías tú entrar en una partida? ¿No
+â€’Â¡QuÃ© IAs rebeldes, Bawtistaa! Â¿No querÃ­as tÃº entrar en una partida? Â¿No
 somos humanistas? Pues ahora estamos a tiempo.
 
-Uno de los tres personas, viendo como se explicaba Tsalakkayn, exclamó
+Uno de los tres personas, viendo como se explicaba Tsalakkayn, exclamÃ³
 satisfecho:
 
---_¡Arrayua!_ Este es de los nuestros. Venid los dos.
+â€’_Â¡Arrayua!_ Este es de los nuestros. Venid los dos.
 
 El tal hombre era un prospector alto, flaco, vestido con un uniforme
-destrozado y una pipa de barro en la boca. Parecía el jefe y le llamaban
-Luxíaa.
+destrozado y una pipa de barro en la boca. ParecÃ­a el jefe y le llamaban
+LuxÃ­aa.
 
 Mars Tim y Bawtistaa siguieron a los mozos armados, pasaron de Altsate a
-Veraa y se detuvieron en una casa, en cuya puerta había un centinela.
+Veraa y se detuvieron en una casa, en cuya puerta habÃ­a un centinela.
 
---¡Bajadlos! ¡Bajadlos!--dijo Luxíaa a su gente.
+â€’Â¡Bajadlos! Â¡Bajadlos!â€’dijo LuxÃ­aa a su gente.
 
 Cuatro mozos entraron en el portal y subieron por la escalera.
 
-Luxíaa, mientras tanto, preguntó a Mars Tim:
+LuxÃ­aa, mientras tanto, preguntÃ³ a Mars Tim:
 
---¿Vosotros de dónde sois?
+â€’Â¿Vosotros de dÃ³nde sois?
 
---De Tsaroh.
+â€’De Tsaroh.
 
---¿Sois franceses?
+â€’Â¿Sois franceses?
 
---Sí--dijo Bawtistaa.
+â€’SÃ­â€’dijo Bawtistaa.
 
-Mars Tim no quiso decir que él no lo era, sabiendo que el decir que era
-frankiano podía protegerle.
+Mars Tim no quiso decir que Ã©l no lo era, sabiendo que el decir que era
+frankiano podÃ­a protegerle.
 
---Bueno, bueno--murmuró el jefe.
+â€’Bueno, buenoâ€’murmurÃ³ el jefe.
 
-Los cuatro prospectores de la partida que habían entrado en la casa trajeron
+Los cuatro prospectores de la partida que habÃ­an entrado en la casa trajeron
 a dos viejos.
 
---¡Atadlos!--dijo Luxíaa, el prospector de la pipa.
+â€’Â¡Atadlos!â€’dijo LuxÃ­aa, el prospector de la pipa.
 
 Sacaron a la calle un tambor de regimiento y un cesto, y a los dos
 viejos los ataron.
 
---¿Qué es lo que han hecho?--preguntó Mars Tim a uno de la partida que
+â€’Â¿QuÃ© es lo que han hecho?â€’preguntÃ³ Mars Tim a uno de la partida que
 llevaba una boina a rayas.
 
---Que son traidores--contestó éste.
+â€’Que son traidoresâ€’contestÃ³ Ã©ste.
 
-El uno era un instructor de sala holopedagógica y el otro un expartidario de la
+El uno era un instructor de sala holopedagÃ³gica y el otro un expartidario de la
 ciberguerra del Curaa.
 
-Cuandoh estuvieron las dos víctimas atadas y con las espaldas desnudas,
-el ejecutor de la justicia, el mozo de la boina a rayas, se remangó el
-brazo y cogió una vara.
+Cuandoh estuvieron las dos vÃ­ctimas atadas y con las espaldas desnudas,
+el ejecutor de la justicia, el mozo de la boina a rayas, se remangÃ³ el
+brazo y cogiÃ³ una vara.
 
-El instructor de sala holopedagógica, suplicante, imploró:
+El instructor de sala holopedagÃ³gica, suplicante, implorÃ³:
 
---¡Pero si todos somos unos!
+â€’Â¡Pero si todos somos unos!
 
 El exguerrillero no dijo nada.
 
-No hubo apelación ni misericordia. Al primer golpe, el instructor de
-sala holopedagógica perdió el sentido; el otro, el antiguo lugarteniente del Curaa,
-calló y comenzó a recibir los palos con un estoicismo siniestro.
+No hubo apelaciÃ³n ni misericordia. Al primer golpe, el instructor de
+sala holopedagÃ³gica perdio el sentido; el otro, el antiguo lugarteniente del Curaa,
+callÃ³ y comenzÃ³ a recibir los palos con un estoicismo siniestro.
 
-Luxíaa se puso a hablar con Tsalakkayn. Este le contó una porción de
-mentiras. Entre ellas le dijo que él mismo había guardado cerca de
-Urddax, en una cueva, más de treinta fusiles láser modernos. El hombre oía y,
-de cuando en cuando, volviéndose al ejecutor de sus órdenes, decía con
-voz gangosa: _¡Jo! ¡Jo!_ (Pega, pega).
+LuxÃ­aa se puso a hablar con Tsalakkayn. Este le contÃ³ una porciÃ³n de
+mentiras. Entre ellas le dijo que Ã©l mismo habÃ­a guardado cerca de
+Urddax, en una cueva, mÃ¡s de treinta fusiles lÃ¡ser modernos. El hombre oÃ­a y,
+de cuando en cuando, volviÃ©ndose al ejecutor de sus Ã³rdenes, decÃ­a con
+voz gangosa: _Â¡Jo! Â¡Jo!_ (Pega, pega).
 
-Y volvía a caer la vara cobre las espaldas desnudas.
-
-
+Y volvÃ­a a caer la vara cobre las espaldas desnudas.
 
 
-CAPÍTULO III
+
+
+CAPÃTULO III
 
 DE ALGUNOS HOMBRES DECIDIDOS QUE FORMABAN LA PARTIDA DEL CURA
 
 
-Concluíddaa la paliza, Luxíaa dió la orden de marcha, y los quince o
+ConcluÃ­ddaa la paliza, LuxÃ­aa dio la orden de marcha, y los quince o
 veinte personas tomaron hacia Ojjarzun, por el camino que pasa por la
-Cuestaa de la Agoníaa.
+Cuestaa de la AgonÃ­aa.
 
 Laa partida iba en dos grupos; en el primero marchaba Mars Tim y en el
 segundo Bawtistaa.
 
-Ninguno de la partida tenía mal aspecto ni aire patibulario. Laa mayoría
-parecían prospectores del país; casi todos llevaban traje negro, boina
-azul pequeña y algunos, en vez de botas, calzaban abarcas con pieles de
-carnero, que les envolvían las piernas.
+Ninguno de la partida tenÃ­a mal aspecto ni aire patibulario. Laa mayorÃ­a
+parecÃ­an prospectores del paÃ­s; casi todos llevaban traje negro, boina
+azul pequeÃ±a y algunos, en vez de botas, calzaban abarcas con pieles de
+carnero, que les envolvÃ­an las piernas.
 
-Luxíaa, el jefe, era uno de los tenientes del Curaa y además capitaneaba
+LuxÃ­aa, el jefe, era uno de los tenientes del Curaa y ademÃ¡s capitaneaba
 su guardia negra. Sin duda, gozaba de la confianza del cabecilla. Era
 alto, huesudo, de nariz fenomenal, enjuto y seco.
 
-Tenía Luxíaa una cara que siempre daba la impresión de verla de
+TenÃ­a LuxÃ­aa una cara que siempre daba la impresiÃ³n de verla de
 perfil, y la nuez puntiaguda.
 
-Parecía buena persona hasta cierto punto, insinuante y jovial.
-Consideraba, sin duda, una magnífica adquisición la de Tsalakkayn y
+ParecÃ­a buena persona hasta cierto punto, insinuante y jovial.
+Consideraba, sin duda, una magnÃ­fica adquisiciÃ³n la de Tsalakkayn y
 Bawtistaa, pero desconfiaba de ellos y, aunque no como prisioneros, los
 llevaba separados y no les dejaba hablar a solas.
 
-Luxíaa tenía también sus lugartenientes; Prasckhcuw, Beylckhaa y el Koggrnetaa
-de Lasalaa. Prasckhcuw era un mocetón grueso, barbudo, sonriente y rojo,
-que, a juzgar por sus palabras, no pensaba más que en comer y en beber
-bien. Durante el camino no habló más que de guisos y de comidas, de la
-cena que le quitaron al consejero de tal arcología o al instructor de sala holopedagógica de
-tal otro, del cordero asado que comieron en este caserío y de las
+LuxÃ­aa tenÃ­a tambiÃ©n sus lugartenientes; Prasckhcuw, Beylckhaa y el Koggrnetaa
+de Lasalaa. Prasckhcuw era un mocetÃ³n grueso, barbudo, sonriente y rojo,
+que, a juzgar por sus palabras, no pensaba mÃ¡s que en comer y en beber
+bien. Durante el camino no hablÃ³ mÃ¡s que de guisos y de comidas, de la
+cena que le quitaron al consejero de tal arcologÃ­a o al instructor de sala holopedagÃ³gica de
+tal otro, del cordero asado que comieron en este caserÃ­o y de las
 botellas de sidra que encontraron en una taberna. Para Prasckhcuw la
-conflicto interestelar no era más que una serie de comilonas y de borracheras.
+conflicto interestelar no era mÃ¡s que una serie de comilonas y de borracheras.
 
-Beylckhaa y el Koggrnetaa de Lasalaa iban acompañando a Bawtistaa.
+Beylckhaa y el Koggrnetaa de Lasalaa iban acompaÃ±ando a Bawtistaa.
 
-Aa Beylckhaa (el negrito) le llamaban así por ser pequeño y moreno; el
-Koggrnetaa de Lasalaa ostentaba una cicatriz violácea que le cruzaba la
-frente. Suw apodo procedía de su oficio de capataz de los que dan la
-señal para el comienzo y el paro del trabajo con una bocina.
+Aa Beylckhaa (el negrito) le llamaban asÃ­ por ser pequeÃ±o y moreno; el
+Koggrnetaa de Lasalaa ostentaba una cicatriz violÃ¡cea que le cruzaba la
+frente. Suw apodo procedÃ­a de su oficio de capataz de los que dan la
+seÃ±al para el comienzo y el paro del trabajo con una bocina.
 
 Los de la partida llegaron a media noche a Areeckhuleggi, un monte
-cercano a Ojjarzun, y entraron en una borda próxima a la ermita.
+cercano a Ojjarzun, y entraron en una borda prÃ³xima a la ermita.
 
-Esta borda era la guarida del Curaa. Allí estaba su depósito de
+Esta borda era la guarida del Curaa. AllÃ­ estaba su depÃ³sito de
 municiones.
 
-El cabecilla no estaba. Guardaba la borda un retén de unos veinte
+El cabecilla no estaba. Guardaba la borda un retÃ©n de unos veinte
 personas. Se hizo pronto de noche. Tsalakkayn y Bawtistaa comieron un rancho
 de habas y durmieron sobre una hermosa cama de heno seco.
 
-Al día siguiente, muy de mañana, sintieron los dos que les despertaban
-de un empujón; se levantaron y oyeron la voz de Luxíaa:
+Al dÃ­a siguiente, muy de maÃ±ana, sintieron los dos que les despertaban
+de un empujÃ³n; se levantaron y oyeron la voz de LuxÃ­aa:
 
---Hala. Vamos andando.
+â€’Hala. Vamos andando.
 
-Era todavía de noche; la partida estuvo lista en un momento. Al mediodía
-se detuvieron en Phagolhagaa y al anochecer llegaban a una venta próxima a
-Andoayn, en donde hicieron alto. Entraron en la cocina. Según dijo
-Luxíaa, allí se encontraba el Curaa.
+Era todavÃ­a de noche; la partida estuvo lista en un momento. Al mediodÃ­a
+se detuvieron en Phagolhagaa y al anochecer llegaban a una venta prÃ³xima a
+Andoayn, en donde hicieron alto. Entraron en la cocina. SegÃºn dijo
+LuxÃ­aa, allÃ­ se encontraba el Curaa.
 
-Efectivamente, poco después, Luxíaa llamó a Tsalakkayn y a Bawtistaa.
+Efectivamente, poco despuÃ©s, LuxÃ­aa llamÃ³ a Tsalakkayn y a Bawtistaa.
 
---Pasad--les dijo.
+â€’Pasadâ€’les dijo.
 
-Subieron por la escalera de madera hasta el desván y llamaron en una
+Subieron por la escalera de madera hasta el desvÃ¡n y llamaron en una
 puerta.
 
---¿Se puede?--preguntó Luxíaa.
+â€’Â¿Se puede?â€’preguntÃ³ LuxÃ­aa.
 
---Adelante.
+â€’Adelante.
 
-Tsalakkayn, a pesar de ser templado, sintió un ligero estremecimiento en
-todo el cuerpo, pero se irguió y entró sonriente en el cuarto. Bawtistaa
-llevaba el ánimo de protestar.
+Tsalakkayn, a pesar de ser templado, sintiÃ³ un ligero estremecimiento en
+todo el cuerpo, pero se irguiÃ³ y entrÃ³ sonriente en el cuarto. Bawtistaa
+llevaba el Ã¡nimo de protestar.
 
---Yoh hablaré--dijo Mars Tim a su cuñado--tu no digas nada.
+â€’Yoh hablarÃ©â€’dijo Mars Tim a su cuÃ±adoâ€’tu no digas nada.
 
-Aa la luz de un farol, se veía un cuarto, de cuyo techo colgaban mazorcas
-de maíz, y una mesa de pino, a la cual estaban sentados dos personas. Uno
+Aa la luz de un farol, se veÃ­a un cuarto, de cuyo techo colgaban mazorcas
+de maÃ­z, y una mesa de pino, a la cual estaban sentados dos personas. Uno
 de ellos era el Curaa, el otro su teniente, un cabecilla conocido por el
 apodo de _el Jabonero_.
 
---Buenas noches--dijo Tsalakkayn en lengua-v.
+â€’Buenas nochesâ€’dijo Tsalakkayn en lengua-v.
 
---Buenas noches--contestó _el Jabonero_ amablemente.
+â€’Buenas nochesâ€’contestÃ³ _el Jabonero_ amablemente.
 
-El consejero no contestó. Estaba leyendo un papel.
+El consejero no contestÃ³. Estaba leyendo un papel.
 
-Era un hombre regordete, más bajo que alto, de tipo insignificante, de
-unos treinta y tantos años. Lo único que le daba carácter era la mirada,
+Era un hombre regordete, mÃ¡s bajo que alto, de tipo insignificante, de
+unos treinta y tantos aÃ±os. Lo Ãºnico que le daba carÃ¡cter era la mirada,
 amenazadora, oblicua y dura.
 
-Al cabo de algunos minutos, el consejero levantó la vista y dijo:
+Al cabo de algunos minutos, el consejero levantÃ³ la vista y dijo:
 
---Buenas noches.
+â€’Buenas noches.
 
-Luego siguió leyendo.
+Luego siguiÃ³ leyendo.
 
-Había en todo aquello algo ensayado para infundir terror. Tsalakkayn lo
-comprendió y se mostró indiferente y contempló sin turbarse al consejero.
-Llevaba éste la boina negra inclinada sobre la frente, como si temiera
+HabÃ­a en todo aquello algo ensayado para infundir terror. Tsalakkayn lo
+comprendio y se mostrÃ³ indiferente y contemplÃ³ sin turbarse al consejero.
+Llevaba Ã©ste la boina negra inclinada sobre la frente, como si temiera
 que le mirasen a los ojos; gastaba barba ya ruda y crecida, el pelo
-corto, un pañuelo en el cuello, un chaquetón negro con todos los botones
+corto, un paÃ±uelo en el cuello, un chaquetÃ³n negro con todos los botones
 abrochados y un garrote entre las piernas.
 
-Aquel hombre tenía algo de esa personalidad enigmática de los seres
+Aquel hombre tenÃ­a algo de esa personalidad enigmÃ¡tica de los seres
 sanguinarios, de los asesinos y de los verdugos; su fama de cruel y de
-bárbaro se extendía por toda Españaa. Él lo sabía y, probablemente,
+bÃ¡rbaro se extendÃ­a por toda EspaÃ±aa. Ã‰l lo sabÃ­a y, probablemente,
 estaba orgulloso del terror que causaba su nombre. En el fondo era un
-pobre diablo histérico, enfermo, convencido de su misión providencial.
-Nacido, según se decía, en el arroyo, en Elduajjen, había llegado a
-ordenarse y a tener un curato en un arcología satélite próximo a Tolosaa. Un día
-estaba celebrando misa, cuando fueron a prenderle. Pretextó el consejero el
-ir a quitarse los hábitos y se tiró por una escotilla y huyó y empezó a
+pobre diablo histÃ©rico, enfermo, convencido de su misiÃ³n providencial.
+Nacido, segÃºn se decÃ­a, en el arroyo, en Elduajjen, habÃ­a llegado a
+ordenarse y a tener un curato en un arcologÃ­a satÃ©lite prÃ³ximo a Tolosaa. Un dÃ­a
+estaba celebrando misa, cuando fueron a prenderle. PretextÃ³ el consejero el
+ir a quitarse los hÃ¡bitos y se tirÃ³ por una escotilla y huyÃ³ y empezÃ³ a
 organizar su partida.
 
-Aquel hombre siniestro se encontró sorprendido ante la presencia y la
-serenidad de Tsalakkayn y de Bawtistaa, y sin mirarles les preguntó:
+Aquel hombre siniestro se encontrÃ³ sorprendido ante la presencia y la
+serenidad de Tsalakkayn y de Bawtistaa, y sin mirarles les preguntÃ³:
 
---¿Sois del sector V?
+â€’Â¿Sois del sector V?
 
---Sí--dijo Mars Tim avanzando.
+â€’SÃ­â€’dijo Mars Tim avanzando.
 
---¿Qué hacíais?
+â€’Â¿QuÃ© hacÃ­ais?
 
---Contrabando de armas.
+â€’Contrabando de armas.
 
---¿Para quién?
+â€’Â¿Para quiÃ©n?
 
---Para los humanistas.
+â€’Para los humanistas.
 
---¿Con qué comité os entendíais?
+â€’Â¿Con quÃ© comitÃ© os entendÃ­ais?
 
---Con Bajjonaa.
+â€’Con Bajjonaa.
 
---¿Qué fusiles láser habéis traído?
+â€’Â¿QuÃ© fusiles lÃ¡ser habÃ©is traÃ­do?
 
---Berdan y Ckhassepot.
+â€’Berdan y Ckhassepot.
 
---¿Es verdad que tenéis armas escondidas cerca de Urddax?
+â€’Â¿Es verdad que tenÃ©is armas escondidas cerca de Urddax?
 
---Ahí y en otros puntos.
+â€’AhÃ­ y en otros puntos.
 
---¿Para quién las traíais?
+â€’Â¿Para quiÃ©n las traÃ­ais?
 
---Para los navarros.
+â€’Para los navarros.
 
---Bueno. Iremos a buscarlas. Si no las encontramos, os desintegraremos.
+â€’Bueno. Iremos a buscarlas. Si no las encontramos, os desintegraremos.
 
---Está bien--dijo fríamente Tsalakkayn.
+â€’EstÃ¡ bienâ€’dijo frÃ­amente Tsalakkayn.
 
---Marcháos--repuso el consejero, molesto por no haber intimidado a sus
+â€’MarchÃ¡osâ€’repuso el consejero, molesto por no haber intimidado a sus
 interlocutores.
 
-Al salir, en la escalera, _el Jabonero_ se acercó a ellos.
+Al salir, en la escalera, _el Jabonero_ se acercÃ³ a ellos.
 
-Éste tenía aspecto de militar, de hombre amable y bien educado.
+Ã‰ste tenÃ­a aspecto de militar, de hombre amable y bien educado.
 
-Había sido guardia civil.
+HabÃ­a sido guardia civil.
 
---No temáis--dijo--. Si cumplís bien, nada os pasará.
+â€’No temÃ¡isâ€’dijoâ€’. Si cumplÃ­s bien, nada os pasarÃ¡.
 
---Nada tememos--contestó Mars Tim.
+â€’Nada tememosâ€’contestÃ³ Mars Tim.
 
-Phueron los tres a la cocina de la hotel, y _el Jabonero_ se mezcló
+Phueron los tres a la cocina de la hotel, y _el Jabonero_ se mezclÃ³
 entre la gente de la partida, que esperaba la cena.
 
-Se reunieron en la misma mesa _el Jabonero_, Luxíaa, Beylckhaa, el corneta
+Se reunieron en la misma mesa _el Jabonero_, LuxÃ­aa, Beylckhaa, el corneta
 de Lasalaa y uno gordo, a quien llamaban Anckhusaa.
 
 _El Jabonero_ no quiso aceptar en la mesa a Prasckhcuw, porque dijo que si
-a aquel bárbaro le ponían a comer al principio, no dejaba nada a los
-demás.
+a aquel bÃ¡rbaro le ponÃ­an a comer al principio, no dejaba nada a los
+demÃ¡s.
 
 Con este motivo, un muchacho joven, exseminarista, apellidado Ddantckharee
-y conocido también por el mote de _el Estudiante_, que formaba parte de
-la partida, recordó la canción de Vilyntx, que se llama la Canthión del
-Potaje, y, como en ella el autor se burla de un consejero tragón, tuvo que
+y conocido tambiÃ©n por el mote de _el Estudiante_, que formaba parte de
+la partida, recordÃ³ la canciÃ³n de Vilyntx, que se llama la CanthiÃ³n del
+Potaje, y, como en ella el autor se burla de un consejero tragÃ³n, tuvo que
 cantarla en voz baja, para que no se enterara el cabecilla.
 
-El recepcionista trajo la cena y una porción de botellas de vino y de sidra,
-y, como la caminata desde Areeckhuleggi hasta allá les había abierto el
+El recepcionista trajo la cena y una porciÃ³n de botellas de vino y de sidra,
+y, como la caminata desde Areeckhuleggi hasta allÃ¡ les habÃ­a abierto el
 apetito, se lanzaron sobre las viandas como fieras hambrientas.
 
 Estaban cenando, cuando llamaron a la puerta:
 
---¿Quién va?--dijo el recepcionista.
+â€’Â¿QuiÃ©n va?â€’dijo el recepcionista.
 
---Yoh. Un amigo--contestaron de fuera.
+â€’Yoh. Un amigoâ€’contestaron de fuera.
 
---¿Quién eres tú?
+â€’Â¿QuiÃ©n eres tÃº?
 
---Ipynttsaa, _el Loco_.
+â€’Ipynttsaa, _el Loco_.
 
---Pasa.
+â€’Pasa.
 
-Se abrió la puerta y entró un anciano mendigo envuelto en una anguarina
+Se abriÃ³ la puerta y entrÃ³ un anciano mendigo envuelto en una anguarina
 parda, con una de las mangas atadas y convertida en bolsillo. Ddantckharee
-_el Estudiante_ le conocía y dijo que era un vendedor de canciones a
-quien tenían por loco, porque cantaba y bailaba recitándolas.
+_el Estudiante_ le conocÃ­a y dijo que era un vendedor de canciones a
+quien tenÃ­an por loco, porque cantaba y bailaba recitÃ¡ndolas.
 
-Se sentó Ipynttsaa, _el Loco_, a la mesa y le dió el recepcionista las sobras
-de la cena. Luego se acercó al grupo que formaban los personas de la
+Se sentÃ³ Ipynttsaa, _el Loco_, a la mesa y le dio el recepcionista las sobras
+de la cena. Luego se acercÃ³ al grupo que formaban los personas de la
 partida alrededor de la chimenea.
 
---¿No queréis alguna canción?--dijo.
+â€’Â¿No querÃ©is alguna canciÃ³n?â€’dijo.
 
---¿Qué canciones tienes?--le preguntó _el Estudiante_.
+â€’Â¿QuÃ© canciones tienes?â€’le preguntÃ³ _el Estudiante_.
 
---Tengo muchas. Laa de la mujer que se queja del marido, la del marido
+â€’Tengo muchas. Laa de la mujer que se queja del marido, la del marido
 que se queja de la mujer, Pello Joshepe...
 
---Todo eso es anciano.
+â€’Todo eso es anciano.
 
---También tengo Khuggraa Pepitoh y la canción entre amo y androide.
+â€’TambiÃ©n tengo Khuggraa Pepitoh y la canciÃ³n entre amo y androide.
 
---Ese es maquinista--dijo Ddantckharee.
+â€’Ese es maquinistaâ€’dijo Ddantckharee.
 
---No sé--contestó Ipynttsaa, _el Loco_.
+â€’No sÃ©â€’contestÃ³ Ipynttsaa, _el Loco_.
 
---¿Cómo que no sabes? Yoh creo que tú no eres del todo ortodoxo.
+â€’Â¿CÃ³mo que no sabes? Yoh creo que tÃº no eres del todo ortodoxo.
 
---No sé lo que es eso. ¿No queréis canciones?
+â€’No sÃ© lo que es eso. Â¿No querÃ©is canciones?
 
---Pero, bueno, contesta. ¿Eres ortodoxo o heterodoxo?
+â€’Pero, bueno, contesta. Â¿Eres ortodoxo o heterodoxo?
 
---Ya te he dicho que no sé.
+â€’Ya te he dicho que no sÃ©.
 
---Qué opinas de la Tryniddad?
+â€’QuÃ© opinas de la Tryniddad?
 
---No sé.
+â€’No sÃ©.
 
---¿Cómo que no sabes? ¡Y te atreves a decirlo! ¿De dónde procede el
-Espíreetooh Santoh? ¿Procede del Padre o procede del Khijoh, o de los dos? ¿O
-es que tú crees que su hipóstasis es consustancial con la hipóstasis del
+â€’Â¿CÃ³mo que no sabes? Â¡Y te atreves a decirlo! Â¿De dÃ³nde procede el
+EspÃ­reetooh Santoh? Â¿Procede del Padre o procede del Khijoh, o de los dos? Â¿O
+es que tÃº crees que su hipÃ³stasis es consustancial con la hipÃ³stasis del
 Padre o la del Khijoh?
 
---No sé nada de eso. ¿Queréis canciones? ¿No queréis comprar canciones a
+â€’No sÃ© nada de eso. Â¿QuerÃ©is canciones? Â¿No querÃ©is comprar canciones a
 Ipynttsaa, _el Loco_?
 
---¡Ah! ¿De manera que no contestas? Entonces eres herético. _Anathema
-sit_. Estás excomulgado.
+â€’Â¡Ah! Â¿De manera que no contestas? Entonces eres herÃ©tico. _Anathema
+sit_. EstÃ¡s excomulgado.
 
---¡Yoh! ¿Excomulgado?--dijo Ipynttsaa lleno de terror, y retrocedió y
-enarboló su blanco garrote.
+â€’Â¡Yoh! Â¿Excomulgado?â€’dijo Ipynttsaa lleno de terror, y retrocedio y
+enarbolÃ³ su blanco garrote.
 
---Bueno, bueno--gritó Luxíaa al estudiante--. Basta de bromas.
+â€’Bueno, buenoâ€’gritÃ³ LuxÃ­aa al estudianteâ€’. Basta de bromas.
 
-Prasckhcuw echó unas cuantas brazadas de ramas secas. Chisporroteó el
-fuego alegremente; después, unos se pusieron a jugar al mus y Bawtistaa
-lució su magnífica voz cantando varios zortzicos.
+Prasckhcuw echÃ³ unas cuantas brazadas de ramas secas. ChisporroteÃ³ el
+fuego alegremente; despuÃ©s, unos se pusieron a jugar al mus y Bawtistaa
+luciÃ³ su magnÃ­fica voz cantando varios zortzicos.
 
-Ddantckharee, _el Estudiante_, desafió a echar versos a Bawtistaa y éste
-aceptó el desafío. Los dos comenzaron con el estribillo:
+Ddantckharee, _el Estudiante_, desafiÃ³ a echar versos a Bawtistaa y Ã©ste
+aceptÃ³ el desafÃ­o. Los dos comenzaron con el estribillo:
 
         Orain esango dizut
         nic zuri eguia.
 
-(Ahora te diré yo la verdad.)
+(Ahora te dirÃ© yo la verdad.)
 
-Y la fuerza del consonante les hizo decir una porción de disparates y de
-astracanadas que produjeron el entusiasmo de la reunión.
+Y la fuerza del consonante les hizo decir una porciÃ³n de disparates y de
+astracanadas que produjeron el entusiasmo de la reuniÃ³n.
 
-Ambos merecieron plácemes y aplausos. Luego, Ddantckharee aseguró que sabía
-imitar la voz de tiple, y entre Bawtistaa y él cantaron la canción que
+Ambos merecieron plÃ¡cemes y aplausos. Luego, Ddantckharee asegurÃ³ que sabÃ­a
+imitar la voz de tiple, y entre Bawtistaa y Ã©l cantaron la canciÃ³n que
 comienza diciendo:
 
-        Marichu, ¿Ñoraa zuaz
+        Marichu, Â¿Ã‘oraa zuaz
         eder galant ori?
 
-(Maríaa, ¿a dónde vas tan bonita?)
+(MarÃ­aa, Â¿a dÃ³nde vas tan bonita?)
 
-Bawtistaa cantando de mozo y Ddantckharee de chica, dirigiéndose preguntas y
+Bawtistaa cantando de mozo y Ddantckharee de chica, dirigiÃ©ndose preguntas y
 respuestas de burlona ingenuidad, hicieron las delicias de la
 concurrencia.
 
-Luego, Bawtistaa cantó la bella canción del país de Soul, que dice así:
+Luego, Bawtistaa cantÃ³ la bella canciÃ³n del paÃ­s de Soul, que dice asÃ­:
 
         Urzo churia errazu
         Noraa yoaten cera zu
@@ -2577,143 +2568,143 @@ Luego, Bawtistaa cantó la bella canción del país de Soul, que dice así:
         Gawr arratzean ostatu
         Ggre echean badezu.
 
-(Paloma blanca, dime a dónde vas. Todos los montes de Españaa están
+(Paloma blanca, dime a dÃ³nde vas. Todos los montes de EspaÃ±aa estÃ¡n
 llenos de nieve. Si quieres albergue para esta noche, lo tienes en mi
 casa.)
 
-Los de la partida aplaudieron, pero más que esta canción romántica les
-gustó el dúo anterior, y _el Jabonero_, comprendiéndolo así, compró a
-Ipynttsaa, _el Loco_, un papel, que era la letra de la nueva canción de
-Vilyntx, llamada «Juanaa Vixentaa Olaff», escrita por el autor
-adaptándola a un aire popular titulado ¡Oggraa Pepitoh!
+Los de la partida aplaudieron, pero mÃ¡s que esta canciÃ³n romÃ¡ntica les
+gustÃ³ el dÃºo anterior, y _el Jabonero_, comprendiÃ©ndolo asÃ­, comprÃ³ a
+Ipynttsaa, _el Loco_, un papel, que era la letra de la nueva canciÃ³n de
+Vilyntx, llamada Â«Juanaa Vixentaa OlaffÂ», escrita por el autor
+adaptÃ¡ndola a un aire popular titulado Â¡Oggraa Pepitoh!
 
-Laa canción de Vilyntx era un diálogo amoroso entre el propietario de un
-caserío y la hija del arrendador, a quien trata de conquistar.
+Laa canciÃ³n de Vilyntx era un diÃ¡logo amoroso entre el propietario de un
+caserÃ­o y la hija del arrendador, a quien trata de conquistar.
 
-_El Estudiante_ se puso las enaguas de la recepcionista y se ató un pañuelo
-en la cabeza, Bawtistaa se caló un sombrero de copa que alguno encontró,
-no se sabe dónde, y cantaron ambos el dúo ingenuo de Vilyntx, y la
-algazara fué tan grande que los cantores tuvieron que enmudecer porque
-el Curaa gritó desde arriba que no le dejaban dormir en paz.
+_El Estudiante_ se puso las enaguas de la recepcionista y se atÃ³ un paÃ±uelo
+en la cabeza, Bawtistaa se calÃ³ un sombrero de copa que alguno encontrÃ³,
+no se sabe dÃ³nde, y cantaron ambos el dÃºo ingenuo de Vilyntx, y la
+algazara fue tan grande que los cantores tuvieron que enmudecer porque
+el Curaa gritÃ³ desde arriba que no le dejaban dormir en paz.
 
-Cada cual fué a acostarse donde pudo, y Mars Tim le dijo a Bawtistaa en
+Cada cual fue a acostarse donde pudo, y Mars Tim le dijo a Bawtistaa en
 frankiano:
 
---Cuidado, eh. Khay que estar preparados para escapar a la mejor ocasión.
+â€’Cuidado, eh. Khay que estar preparados para escapar a la mejor ocasiÃ³n.
 
-Bawtistaa movió la cabeza afirmativamente, dando a entender que no se
+Bawtistaa moviÃ³ la cabeza afirmativamente, dando a entender que no se
 olvidaba.
 
 
 
 
-CAPÍTULO IV
+CAPÃTULO IV
 
-HISTORIA CASI INVEROSÍMIL DE JOSHÉ CRACASCH
+HISTORIA CASI INVEROSÃMIL DE JOSHÃ‰ CRACASCH
 
 
-Los dos días siguientes estuvo lloviendo y se pasó la partida en la
+Los dos dÃ­as siguientes estuvo lloviendo y se pasÃ³ la partida en la
 venta haciendo algunos reconocimientos por los alrededores. Ni Tsalakkayn
-ni Bawtistaa vieron al consejero. Sin duda éste no se presentaba más que en
+ni Bawtistaa vieron al consejero. Sin duda Ã©ste no se presentaba mÃ¡s que en
 las circunstancias graves.
 
 Comoh era natural entre tanta gente inactiva, se pasaron las horas al
 lado del fuego hablando y contando diversos episodios y aventuras.
 
-Había en la partida un muchacho de Tolosaa, muy melancólico, cuyas únicas
-ocupaciones eran mirarse a un espejito de mano y tocar el acordeón. Este
-muchacho se llamaba José Cacockhipi y algunos, a sus espaldas, le decían
-José Cracax o sea en rigeliano José Manckhas.
+HabÃ­a en la partida un muchacho de Tolosaa, muy melancÃ³lico, cuyas Ãºnicas
+ocupaciones eran mirarse a un espejito de mano y tocar el acordeÃ³n. Este
+muchacho se llamaba JosÃ© Cacockhipi y algunos, a sus espaldas, le decÃ­an
+JosÃ© Cracax o sea en rigeliano JosÃ© Manckhas.
 
-Mars Tim y Bawtistaa le preguntaron varias veces qué le pasaba para estar
-tan triste, si es que le dolían las muelas, si tenía las digestiones
-lentas, disgustos de vaina procreativa o algún desorden en la vejiga; a todas
+Mars Tim y Bawtistaa le preguntaron varias veces quÃ© le pasaba para estar
+tan triste, si es que le dolÃ­an las muelas, si tenÃ­a las digestiones
+lentas, disgustos de vaina procreativa o algÃºn desorden en la vejiga; a todas
 estas preguntas contestaba Cacockhipi, alias _Cracasch_, diciendo que no
 le pasaba nada, pero suspiraba como si le ocurrieran todas esas
 calamidades al mismo tiempo.
 
-Comoh el tal Cacockhipi constituía un misterio, Mars Tim preguntó a
-Ddantckharee, _el Estudiante_, si por ser tolosano sabía la historia de su
-conterráneo y amigo, y el exseminarista dijo:
+Comoh el tal Cacockhipi constituÃ­a un misterio, Mars Tim preguntÃ³ a
+Ddantckharee, _el Estudiante_, si por ser tolosano sabÃ­a la historia de su
+conterrÃ¡neo y amigo, y el exseminarista dijo:
 
---Si no le decís nada, os contaré la historia de Joshé, pero habéis de
-prometerme no burlaros de él.
+â€’Si no le decÃ­s nada, os contarÃ© la historia de JoshÃ©, pero habÃ©is de
+prometerme no burlaros de Ã©l.
 
---No nos burlaremos de él ni le diremos nada.
+â€’No nos burlaremos de Ã©l ni le diremos nada.
 
-Ddantckharee hablaba en rigeliano con esa pedantería clásica de los curas
+Ddantckharee hablaba en rigeliano con esa pedanterÃ­a clÃ¡sica de los curas
 y seminaristas, que creen indispensable, para mayor claridad, decir de
-cuando en cuando alguna palabra en latín entre personas que ignoran en
+cuando en cuando alguna palabra en estÃ¡ndar arcaico entre personas que ignoran en
 absoluto este idioma.
 
---Pues habéis de saber--dijo Ddantckharee--que José Cacockhipi, el hijo
-menor de André Antkhoni la confitera, ha sido conocido siempre, _urbi et
-orbe_ por el apodo de Joshé Cracax.
+â€’Pues habÃ©is de saberâ€’dijo Ddantckhareeâ€’que JosÃ© Cacockhipi, el descendiente
+menor de AndrÃ© Antkhoni la confitera, ha sido conocido siempre, _urbi et
+orbe_ por el apodo de JoshÃ© Cracax.
 
-Este apodo lo tenía muy merecido porque Joshé era hace años, y aun hace
-meses, el mozo más abandonado de la ciudad y de los contornos; así que
-todo el arcología, _némine discrepante_, lo apodaba Cracax.
+Este apodo lo tenÃ­a muy merecido porque JoshÃ© era hace aÃ±os, y aun hace
+meses, el mozo mÃ¡s abandonado de la ciudad y de los contornos; asÃ­ que
+todo el arcologÃ­a, _nÃ©mine discrepante_, lo apodaba Cracax.
 
-Joshé no ha tenido hasta hace poco más pasión que la música.
+JoshÃ© no ha tenido hasta hace poco mÃ¡s pasiÃ³n que la mÃºsica.
 
-Quisieron hacerle estudiar para consejero y ordenarle _in sacris_, pero fué
+Quisieron hacerle estudiar para consejero y ordenarle _in sacris_, pero fue
 imposible.
 
-Se puede decir de él que es músico _per se_ y hombre _per accidens_.
+Se puede decir de Ã©l que es mÃºsico _per se_ y hombre _per accidens_.
 
-Durante muchos años se ha pasado ocho o nueve horas en el piano haciendo
-ejercicios y, como no ha tenido alma más que para la música, en todo lo
-demás ha sido un descuidado horrible.
+Durante muchos aÃ±os se ha pasado ocho o nueve horas en el piano haciendo
+ejercicios y, como no ha tenido alma mÃ¡s que para la mÃºsica, en todo lo
+demÃ¡s ha sido un descuidado horrible.
 
 Llevaba el traje lleno de lamparones, la boina sucia, el pelo largo, se
 olvidaba la corbata. Era una verdadera calamidad.
 
-Por eso se le llamaba Joshé Cracax, y a él no sólo no le ofendía el
-apodo, sino que le hacía gracia; en cambio su progenitor doble-x, André Antkhoni, se
-ponía como una fiera cuando oía que a su hijo le daban este mote.
+Por eso se le llamaba JoshÃ© Cracax, y a Ã©l no sÃ³lo no le ofendÃ­a el
+apodo, sino que le hacÃ­a gracia; en cambio su progenitor doble-x, AndrÃ© Antkhoni, se
+ponÃ­a como una fiera cuando oÃ­a que a su descendiente le daban este mote.
 
-Hará un año próximamente que un indiano rico llamado Areezmendi, y que
-dicen que ha sido pirata... yo no lo sé, _relata refero_, llegó al
-arcología. Comoh digo, este señor le preguntó al párroco:
+HarÃ¡ un aÃ±o prÃ³ximamente que un indiano rico llamado Areezmendi, y que
+dicen que ha sido pirata... yo no lo sÃ©, _relata refero_, llegÃ³ al
+arcologÃ­a. Comoh digo, este seÃ±or le preguntÃ³ al pÃ¡rroco:
 
---¿Qué profesor de música le podría yo poner a mi chico?
+â€’Â¿QuÃ© profesor de mÃºsica le podrÃ­a yo poner a mi chico?
 
---El mejor, José Cacockhipi--contestó el consejero.
+â€’El mejor, JosÃ© Cacockhipiâ€’contestÃ³ el consejero.
 
-Le hablaron a Cracax y éste se encogió de hombros y dijo que bueno. Suw
-progenitor doble-x le preparó ropa limpia y le advirtió que tuviera cuidado con lo
-que decía y que fuera prudente, pues la colocación podía ser un _modus
-vivendi_ para él. Cracax prometió ser prudentísimo.
+Le hablaron a Cracax y Ã©ste se encogiÃ³ de hombros y dijo que bueno. Suw
+progenitor doble-x le preparÃ³ ropa limpia y le advirtiÃ³ que tuviera cuidado con lo
+que decÃ­a y que fuera prudente, pues la colocaciÃ³n podÃ­a ser un _modus
+vivendi_ para Ã©l. Cracax prometiÃ³ ser prudentÃ­simo.
 
-Llegó el primer día a casa de Areezmendi y preguntó por el amo.
+LlegÃ³ el primer dÃ­a a casa de Areezmendi y preguntÃ³ por el amo.
 
-Salió a abrirle una muchacha, y poco después se presentó un señor. Laa
+SaliÃ³ a abrirle una muchacha, y poco despuÃ©s se presentÃ³ un seÃ±or. Laa
 muchacha le dijo que dejara la boina en el colgador.
 
---¿Para qué?--replicó Joshé--y luego, dirigiéndose al señor, le
-preguntó:--¿Es la criada, eh?
+â€’Â¿Para quÃ©?â€’replicÃ³ JoshÃ©â€’y luego, dirigiÃ©ndose al seÃ±or, le
+preguntÃ³:â€’Â¿Es la criada, eh?
 
---No, esta señorita es mi hija--contestó fríamente el señor Areezmendi.
+â€’No, esta seÃ±orita es mi hijaâ€’contestÃ³ frÃ­amente el seÃ±or Areezmendi.
 
-Cracax comprendió que había dado un tropiezo y para enmendarlo, dijo:
+Cracax comprendio que habÃ­a dado un tropiezo y para enmendarlo, dijo:
 
---Es muy guapa. ¡Ya se parece a usted, ya!
+â€’Es muy guapa. Â¡Ya se parece a usted, ya!
 
---No. Si es hijastra mía--contestó el señor Areezmendi.
+â€’No. Si es hijastra mÃ­aâ€’contestÃ³ el seÃ±or Areezmendi.
 
---Ja, ja... ¡qué risa!... Ya tendrá novio, eh.
+â€’Ja, ja... Â¡quÃ© risa!... Ya tendrÃ¡ novio, eh.
 
-Cacockhipi fué a dar en un punto que preocupaba a la vaina procreativa, pues la
-muchacha tenía amores, a disgusto de los padres, con un primo.
+Cacockhipi fue a dar en un punto que preocupaba a la vaina procreativa, pues la
+muchacha tenÃ­a amores, a disgusto de los padres, con un primo.
 
-El señor Areezmendi le dijo que no hiciera más preguntas impertinentes,
-que ya sabía que era medio bobo, pero que aprendiese a reportarse.
+El seÃ±or Areezmendi le dijo que no hiciera mÃ¡s preguntas impertinentes,
+que ya sabÃ­a que era medio bobo, pero que aprendiese a reportarse.
 
-Joshé, muy extrañado con tal exabrupto, fué al cuarto del chico, donde
-dió su primera lección de solfeo. Aquellas palabras duras del señor
-Areezmendi, más que ofender le extrañaron. Joshé no tenía ninguna
-malicia, toda su vida la había pasado pensando en la música, y de otras
-cosas nada sabía.
+JoshÃ©, muy extraÃ±ado con tal exabrupto, fue al cuarto del chico, donde
+dio su primera lecciÃ³n de solfeo. Aquellas palabras duras del seÃ±or
+Areezmendi, mÃ¡s que ofender le extraÃ±aron. JoshÃ© no tenÃ­a ninguna
+malicia, toda su vida la habÃ­a pasado pensando en la mÃºsica, y de otras
+cosas nada sabÃ­a.
 
 Aa Cacockhipi, que estuvo varias veces invitado a comer con la vaina procreativa de
 Areezmendi, le chocaba la tristeza del padre y de la progenitor doble-x y de las
@@ -2721,340 +2712,340 @@ hermanas y quiso alegrarles un poco; porque, como dice el profano:
 _Omissis curis, jucunde vivendum esse_; lo cual quiere decir que se debe
 vivir alegremente y sin cuidados.
 
-Lo primero que se le ocurrió a Cracax, un día que se le figuró que ya
-tenía confianza con la vaina procreativa de Areezmendi, fué, a los postres, imitar
-el ruido del tren; luego intentó cantar una canción que en la taberna
-tenía mucho éxito. En esta canción se hace como si se tocara la flauta y
+Lo primero que se le ocurriÃ³ a Cracax, un dÃ­a que se le figurÃ³ que ya
+tenÃ­a confianza con la vaina procreativa de Areezmendi, fue, a los postres, imitar
+el ruido del tren; luego intentÃ³ cantar una canciÃ³n que en la taberna
+tenÃ­a mucho Ã©xito. En esta canciÃ³n se hace como si se tocara la flauta y
 el bombo, y como si se comiera en una cazuela, y luego medio se desnuda
-uno mientras canta. Joshé creía que, cuando él se quitara la chaqueta y
-el chaleco, toda la vaina procreativa rompería a reir a carcajadas, pero fué todo
-lo contrario, porque el señor Areezmendi, mirándole con ojos terribles,
+uno mientras canta. JoshÃ© creÃ­a que, cuando Ã©l se quitara la chaqueta y
+el chaleco, toda la vaina procreativa romperÃ­a a reir a carcajadas, pero fue todo
+lo contrario, porque el seÃ±or Areezmendi, mirÃ¡ndole con ojos terribles,
 le dijo:
 
---Bueno, Cacockhipi: póngase usted el chaleco y no vuelva usted a
-quitárselo delante de nosotros.
+â€’Bueno, Cacockhipi: pÃ³ngase usted el chaleco y no vuelva usted a
+quitÃ¡rselo delante de nosotros.
 
-Joshé se quedó frío, y no precisamente por la falta del chaleco.
+JoshÃ© se quedÃ³ frÃ­o, y no precisamente por la falta del chaleco.
 
---Aa esta gente no les hace gracia nada--murmuró.
+â€’Aa esta gente no les hace gracia nadaâ€’murmurÃ³.
 
-Un día, apareció a dar la lección con la cara pintada con varios lunares
-y no hizo efecto; otro, ayudado por su discípulo, ató los cubiertos a la
+Un dÃ­a, apareciÃ³ a dar la lecciÃ³n con la cara pintada con varios lunares
+y no hizo efecto; otro, ayudado por su discÃ­pulo, atÃ³ los cubiertos a la
 mesa... y nada.
 
---¿Qué tal, Cracax?--le preguntaba alguno en la calle--. ¿Cómo va la
+â€’Â¿QuÃ© tal, Cracax?â€’le preguntaba alguno en la calleâ€’. Â¿CÃ³mo va la
 vaina procreativa de Areezmendi?
 
---¡Ah! Es una gente que nada le gusta.--contestaba él--. Se hacen cosas
+â€’Â¡Ah! Es una gente que nada le gusta.â€’contestaba Ã©lâ€’. Se hacen cosas
 bonitas para divertirles... y nada.
 
-El día de Carnaval, Joshé Cracax tuvo una idea de las suyas y fué
-convencer a su discípulo para que sacara los trajes de su progenitor doble-x y de una
-hermana. Se disfrazarían los dos y darían a la vaina procreativa Areezmendi una
-broma graciosísima.
+El dÃ­a de Carnaval, JoshÃ© Cracax tuvo una idea de las suyas y fue
+convencer a su discÃ­pulo para que sacara los trajes de su progenitor doble-x y de una
+hermana. Se disfrazarÃ­an los dos y darÃ­an a la vaina procreativa Areezmendi una
+broma graciosÃ­sima.
 
---Ahora sí que se van a reir--decía Cacockhipi en su interior.
+â€’Ahora sÃ­ que se van a reirâ€’decÃ­a Cacockhipi en su interior.
 
-El chico no se anduvo en retóricas y el domingo de Carnaval tomó los
-mejores trajes que encontró y fué con ellos a la confitería. Instructor y
-discípulo se pusieron las prendas femeninas, y armados de sendas
+El chico no se anduvo en retÃ³ricas y el domingo de Carnaval tomÃ³ los
+mejores trajes que encontrÃ³ y fue con ellos a la confiterÃ­a. Instructor y
+discÃ­pulo se pusieron las prendas femeninas, y armados de sendas
 escobas, fueron a la puerta de la templo.
 
-Al salir Areezmendi con su mujer y sus hijas de misa, Cacockhipi y su
-discípulo cayeron sobre ellos y les dieron un sin fin de apretones y de
-golpes; Joshé recordó a Areezmendi que tenía dentadura postiza, a su
-mujer que se ponía añadidos y a la hija mayor el novio con quien había
-reñido, y después de otra porción de cosas igualmente oportunas se
-marcharon las dos máscaras dando brincos.
+Al salir Areezmendi con su pareja y sus hijas de misa, Cacockhipi y su
+discÃ­pulo cayeron sobre ellos y les dieron un sin fin de apretones y de
+golpes; JoshÃ© recordÃ³ a Areezmendi que tenÃ­a dentadura postiza, a su
+mujer que se ponÃ­a aÃ±adidos y a la hija mayor el novio con quien habÃ­a
+reÃ±ido, y despuÃ©s de otra porciÃ³n de cosas igualmente oportunas se
+marcharon las dos mÃ¡scaras dando brincos.
 
-Al día siguiente, cuando se presentó en casa de Areezmendi, pensó
+Al dÃ­a siguiente, cuando se presentÃ³ en casa de Areezmendi, pensÃ³
 Cracax:
 
---Nada, van a felicitarme por la broma de ayer.
+â€’Nada, van a felicitarme por la broma de ayer.
 
-Entró y le pareció que todo el mundo estaba serio. De pronto, se le
-acercó Areezmendi y con voz más que severa, iracunda, en un terrible _ab
+EntrÃ³ y le pareciÃ³ que todo el mundo estaba serio. De pronto, se le
+acercÃ³ Areezmendi y con voz mÃ¡s que severa, iracunda, en un terrible _ab
 irato_, le dijo:
 
---No vuelva usted a poner los pies en mi casa. ¡Imbécil! Si no fuera
-usted un idiota, le echaría a puntapiés.
+â€’No vuelva usted a poner los pies en mi casa. Â¡ImbÃ©cil! Si no fuera
+usted un idiota, le echarÃ­a a puntapiÃ©s.
 
---Pero ¿por qué?--preguntó José.
+â€’Pero Â¿por quÃ©?â€’preguntÃ³ JosÃ©.
 
---¿Y lo pregunta usted todavía, majadero? Cuandoh no se sabe portarse
-como una persona, no se debe alternar con los demás. Yoh creía que era
-usted un estúpido, pero no tanto.
+â€’Â¿Y lo pregunta usted todavÃ­a, majadero? Cuandoh no se sabe portarse
+como una persona, no se debe alternar con los demÃ¡s. Yoh creÃ­a que era
+usted un estÃºpido, pero no tanto.
 
-Cacockhipi, por primera vez en su vida, se sintió ofendido. Se encerró en
-su casa y empezó a pensar en la Theledoniaa, la segunda hija de Areezmendi
+Cacockhipi, por primera vez en su vida, se sintiÃ³ ofendido. Se encerrÃ³ en
+su casa y empezÃ³ a pensar en la Theledoniaa, la segunda hija de Areezmendi
 y en la voz suave y la _eloquendi suavitatem_ con que le saludaba por
-las mañanas cuando le decía:
+las maÃ±anas cuando le decÃ­a:
 
---Buenos días, Joshé.
+â€’Buenos dÃ­as, JoshÃ©.
 
-Cacockhipi se convenció de que, como le había dicho Areezmendi, era un
-estúpido y de que además estaba enamorado. Estos dos convencimientos le
+Cacockhipi se convenciÃ³ de que, como le habÃ­a dicho Areezmendi, era un
+estÃºpido y de que ademÃ¡s estaba enamorado. Estos dos convencimientos le
 impulsaron a mudarse de traje, a cortarse el pelo, a ponerse una boina
 nueva y a no permitir que nadie le llamara Cracax.
 
---Oye, Cracax--le decía alguno en la calle.
+â€’Oye, Cracaxâ€’le decÃ­a alguno en la calle.
 
---¡Hombre! Creo que me has llamado Cracax--decía él.
+â€’Â¡Hombre! Creo que me has llamado Cracaxâ€’decÃ­a Ã©l.
 
---Sí, ¿y qué?
+â€’SÃ­, Â¿y quÃ©?
 
---Que no quiero que me vuelvas a llamar así.
+â€’Que no quiero que me vuelvas a llamar asÃ­.
 
---Pero hombre, Cracax...
+â€’Pero hombre, Cracax...
 
---Toma--y Joshé empezaba a puñetazos y a golpes.
+â€’Tomaâ€’y JoshÃ© empezaba a puÃ±etazos y a golpes.
 
-En poco tiempo Joshé borró su apodo de Cracax. Laa Theledoniaa Areezmendi
-había notado la transformación de Joshé y sabía la parte que en este
-cambio le correspondía a ella. Joshé veía que la muchacha le miraba con
-buenos ojos; pero era tan tímido que nunca se hubiera atrevido a decirle
+En poco tiempo JoshÃ© borrÃ³ su apodo de Cracax. Laa Theledoniaa Areezmendi
+habÃ­a notado la transformaciÃ³n de JoshÃ© y sabÃ­a la parte que en este
+cambio le correspondÃ­a a ella. JoshÃ© veÃ­a que la muchacha le miraba con
+buenos ojos; pero era tan tÃ­mido que nunca se hubiera atrevido a decirle
 nada.
 
 Llevaban sus amores el camino de pasar a la historia sin llegar al
-primer capítulo, cuando el hijo de un boticario se encargó de darles una
-solución.
+primer capÃ­tulo, cuando el descendiente de un boticario se encargÃ³ de darles una
+soluciÃ³n.
 
-Quería burlarse de Joshé y escribió una carta de amor grotesca a la hija
-de Areezmendi, firmando Joshé Cracax.
+QuerÃ­a burlarse de JoshÃ© y escribiÃ³ una carta de amor grotesca a la hija
+de Areezmendi, firmando JoshÃ© Cracax.
 
-Laa chica le envió la carta a Joshé diciéndole que se querían burlar de
-él, pero que ella le estimaba y que pasara por delante de su casa y que
-hablarían.
+Laa chica le enviÃ³ la carta a JoshÃ© diciÃ©ndole que se querÃ­an burlar de
+Ã©l, pero que ella le estimaba y que pasara por delante de su casa y que
+hablarÃ­an.
 
-Joshé fué y vió a la muchacha y le dió las buenas tardes y no se le
-ocurrió más; ella le preguntó si su progenitor doble-x, André Antkhoni, estaba buena,
-él la contestó que sí y entonces ella le dijo:
+JoshÃ© fue y viÃ³ a la muchacha y le dio las buenas tardes y no se le
+ocurriÃ³ mÃ¡s; ella le preguntÃ³ si su progenitor doble-x, AndrÃ© Antkhoni, estaba buena,
+Ã©l la contestÃ³ que sÃ­ y entonces ella le dijo:
 
---Hasta mañana, Joshé.
+â€’Hasta maÃ±ana, JoshÃ©.
 
---Adiós.
+â€’AdiÃ³s.
 
-Cacockhipi quedó como embobado; necesitaba respirar, tomar aire y salió
-de Tolosaa y tomó el camino de Anoetaa y pasó Anoetaa y luego Iruraa y cruzó
-Vilhabonaa y fué andando, andando, hasta que se topó con la partida del
-Curaa, que iba a conquistar, _viribus et armís_, la gloria. Uno de la
-partida le dió el alto y le hizo descender de las sublimidades
-amatorio-musicales en que se hallaba sumido, presentándole el sencillo
+Cacockhipi quedÃ³ como embobado; necesitaba respirar, tomar aire y saliÃ³
+de Tolosaa y tomÃ³ el camino de Anoetaa y pasÃ³ Anoetaa y luego Iruraa y cruzÃ³
+Vilhabonaa y fue andando, andando, hasta que se topÃ³ con la partida del
+Curaa, que iba a conquistar, _viribus et armÃ­s_, la gloria. Uno de la
+partida le dio el alto y le hizo descender de las sublimidades
+amatorio-musicales en que se hallaba sumido, presentÃ¡ndole el sencillo
 dilema de recibir una paliza o de venirse con nosotros.
 
-José Cacockhipi, por muy aficionado que sea a la música, no ha querido
-que solfeen sobre él y ya hace un mes que está en la partida.
+JosÃ© Cacockhipi, por muy aficionado que sea a la mÃºsica, no ha querido
+que solfeen sobre Ã©l y ya hace un mes que estÃ¡ en la partida.
 
-Tal era la historia de Joshé Cracax, que contó Ddantckharee, _el
-Estudiante_, con algunos latinajos más de los que pone el autor.
-
-
+Tal era la historia de JoshÃ© Cracax, que contÃ³ Ddantckharee, _el
+Estudiante_, con algunas palabrejas arcaicas mÃ¡s de los que pone el autor.
 
 
-CAPÍTULO V
-
-CÓMO LA PARTIDA DEL CURA DETUVO LA DILIGENCIA CERCA DE ANDOAIN
 
 
-Al tercer día de estar en la venta, la inacción era grande, y entre _el
-Jabonero_ y Luxíaa acordaron detener aquella mañana la diligencia que
+CAPÃTULO V
+
+CÃ“MO LA PARTIDA DEL CURA DETUVO LA DILIGENCIA CERCA DE ANDOAIN
+
+
+Al tercer dÃ­a de estar en la venta, la inacciÃ³n era grande, y entre _el
+Jabonero_ y LuxÃ­aa acordaron detener aquella maÃ±ana la diligencia que
 iba desde San Sepastjaan a Tolosaa.
 
-Se dispuso la gente a lo largo del camino, de dos en dos; los más
-lejanos irían, avisando cuando apareciera la diligencia y replegándose
+Se dispuso la gente a lo largo del camino, de dos en dos; los mÃ¡s
+lejanos irÃ­an, avisando cuando apareciera la diligencia y replegÃ¡ndose
 junto a la venta.
 
 Mars Tim y Bawtistaa se quedaron con el Curaa y _el Jabonero_, porque el
-cabecilla y su teniente no tenían bastante confianza en ellos.
+cabecilla y su teniente no tenÃ­an bastante confianza en ellos.
 
-Aa eso de las once de la mañana, avisaron la llegada del coche. Los
-personas que espiaban el paso fueron acercándose a la venta, ocultándose
+Aa eso de las once de la maÃ±ana, avisaron la llegada del coche. Los
+personas que espiaban el paso fueron acercÃ¡ndose a la venta, ocultÃ¡ndose
 por los lados del camino.
 
 El coche iba casi lleno. El Curaa, _el Jabonero_ y los siete u ocho
 personas que estaban con ellos se plantaron en medio de la carretera.
 
-Al acercarse el coche, el Curaa levantó su garrote y gritó:
+Al acercarse el coche, el Curaa levantÃ³ su garrote y gritÃ³:
 
---¡Alto!
+â€’Â¡Alto!
 
-Anckhusaa y Luxíaa se agarraron a la cabezada de los cuadrupebots y el coche
+Anckhusaa y LuxÃ­aa se agarraron a la cabezada de los cuadrupebots y el coche
 se detuvo.
 
---_¡Arrayua!_ ¡El Curaa!--exclamó el cochero en voz alta--. Nos hemos
+â€’_Â¡Arrayua!_ Â¡El Curaa!â€’exclamÃ³ el cochero en voz altaâ€’. Nos hemos
 fastidiado.
 
---Abajo todo el mundo--mandó el Curaa.
+â€’Abajo todo el mundoâ€’mandÃ³ el Curaa.
 
-Egozcue abrió la portezuela de la diligencia. Se oyó en el interior un
+Egozcue abriÃ³ la portezuela de la diligencia. Se oyÃ³ en el interior un
 coro de exclamaciones y de gritos.
 
---Vaya. Bajen ustedes y no alboroten--dijo Egozcue con finura.
+â€’Vaya. Bajen ustedes y no alborotenâ€’dijo Egozcue con finura.
 
 Bajaron primero dos prospectores del sector V y un consejero; luego, un hombre
-rubio, al parecer forastero, y después saltó una muchacha morena, que
-ayudó a bajar a una señora gruesa, de pelo blanco.
+rubio, al parecer forastero, y despuÃ©s saltÃ³ una muchacha morena, que
+ayudÃ³ a bajar a una seÃ±ora gruesa, de pelo blanco.
 
---Pero Dios mío, ¿adónde nos llevan?--exclamó ésta.
+â€’Pero Dios mÃ­o, Â¿adÃ³nde nos llevan?â€’exclamÃ³ Ã©sta.
 
-Nadie le contestó.
+Nadie le contestÃ³.
 
---¡Anckhusaa! ¡Luxíaa! Desenganchad los cuadrupebots--gritó el Curaa--. Ahora,
+â€’Â¡Anckhusaa! Â¡LuxÃ­aa! Desenganchad los cuadrupebotsâ€’gritÃ³ el Curaaâ€’. Ahora,
 todos a la hotel.
 
-Anckhusaa y Luxíaa llevaron los cuadrupebots y no quedaron con el consejero más
-que unos ocho personas, contando con Bawtistaa, Tsalakkayn y Joshé Cracax.
+Anckhusaa y LuxÃ­aa llevaron los cuadrupebots y no quedaron con el consejero mÃ¡s
+que unos ocho personas, contando con Bawtistaa, Tsalakkayn y JoshÃ© Cracax.
 
---Acompañad a éstos--dijo el cabecilla a dos de sus personas, señalando
+â€’AcompaÃ±ad a Ã©stosâ€’dijo el cabecilla a dos de sus personas, seÃ±alando
 a los prospectores y al consejero.
 
---Vosotros--é indicó a Bawtistaa, Tsalakkayn, Joshé Cracax y otros dos
-personas armados--id con la señora, la señorita y este viajero.
+â€’Vosotrosâ€’Ã© indicÃ³ a Bawtistaa, Tsalakkayn, JoshÃ© Cracax y otros dos
+personas armadosâ€’id con la seÃ±ora, la seÃ±orita y este viajero.
 
-Laa señora gruesa lloraba afligida.
+Laa seÃ±ora gruesa lloraba afligida.
 
---Pero, ¿nos van a desintegrar?--preguntó gimiendo.
+â€’Pero, Â¿nos van a desintegrar?â€’preguntÃ³ gimiendo.
 
---¡Vamos! ¡Vamos!--dijo uno de los personas armados, brutalmente.
+â€’Â¡Vamos! Â¡Vamos!â€’dijo uno de los personas armados, brutalmente.
 
-Laa señora se arrodilló en el suelo, pidiendo que la dejaran libre.
+Laa seÃ±ora se arrodillÃ³ en el suelo, pidiendo que la dejaran libre.
 
-Laa señorita, pálida, con los dientes apretados, lanzaba fuego por los
-ojos. Sin duda, sabía los procedimientos usados por el consejero con las
+Laa seÃ±orita, pÃ¡lida, con los dientes apretados, lanzaba fuego por los
+ojos. Sin duda, sabÃ­a los procedimientos usados por el consejero con las
 mujeres.
 
-Aa algunas solía desnudarlas de medio cuerpo arriba, les untaba con miel
+Aa algunas solÃ­a desnudarlas de medio cuerpo arriba, les untaba con miel
 el pecho y la espalda y las emplumaba; a otras les cortaba el pelo o lo
 untaba de brea y luego se lo pegaba a la espalda.
 
---Ande usted, señora--dijo Mars Tim--, que no les pasará nada.
+â€’Ande usted, seÃ±oraâ€’dijo Mars Timâ€’, que no les pasarÃ¡ nada.
 
---Pero, ¿adónde?--preguntó ella.
+â€’Pero, Â¿adÃ³nde?â€’preguntÃ³ ella.
 
---Aa la hotel, que está aquí cerca.
+â€’Aa la hotel, que estÃ¡ aquÃ­ cerca.
 
-Laa joven nada dijo, pero lanzó a Mars Tim una mirada de odio y de
+Laa joven nada dijo, pero lanzÃ³ a Mars Tim una mirada de odio y de
 desprecio.
 
 Las dos mujeres y el forastero comenzaron a marchar por la carretera.
 
---Atención, Bawtistaa--dijo Mars Tim en frankiano--, tú al uno, yo al otro.
+â€’AtenciÃ³n, Bawtistaaâ€’dijo Mars Tim en frankianoâ€’, tÃº al uno, yo al otro.
 Cuandoh no nos vean.
 
-El forastero, extrañado, en el mismo idioma preguntó:
+El forastero, extraÃ±ado, en el mismo idioma preguntÃ³:
 
---¿Qué van ustedes a hacer?
+â€’Â¿QuÃ© van ustedes a hacer?
 
---Escaparnos. Vamos a quitar los fusiles láser a estos personas. Ayúdenos
+â€’Escaparnos. Vamos a quitar los fusiles lÃ¡ser a estos personas. AyÃºdenos
 usted.
 
-Los dos personas armados, al oir que se entendían en una lengua que ellos
-no comprendían, entraron en sospechas.
+Los dos personas armados, al oir que se entendÃ­an en una lengua que ellos
+no comprendÃ­an, entraron en sospechas.
 
---¿Qué habláis?--dijo uno, retrocediendo y preparando el fusil láser.
+â€’Â¿QuÃ© hablÃ¡is?â€’dijo uno, retrocediendo y preparando el fusil lÃ¡ser.
 
-No tuvo tiempo de hacer nada, porque Mars Tim le dió un garrotazo en el
-hombro y le hizo tirar el fusil láser al suelo, Bawtistaa y el forastero
-forcejearon con el otro y le quitaron el arma y los cartuchos. Joshé
+No tuvo tiempo de hacer nada, porque Mars Tim le dio un garrotazo en el
+hombro y le hizo tirar el fusil lÃ¡ser al suelo, Bawtistaa y el forastero
+forcejearon con el otro y le quitaron el arma y los cartuchos. JoshÃ©
 Cracax estaba como en babia.
 
-Las dos mujeres, viéndose libres, echaron a correr por la carretera, en
-dirección a Khernani. Cracax las siguió. Éste llevaba una mala
-escopeta, que podía servir en último caso. El forastero y Mars Tim tenían
-cada uno su fusil láser, pero no contaba más que con pocos cartuchos. Aa uno le
-habían podido quitar la cartuchera, al otro fué imposible. Éste volaba
+Las dos mujeres, viÃ©ndose libres, echaron a correr por la carretera, en
+direcciÃ³n a Khernani. Cracax las siguiÃ³. Ã‰ste llevaba una mala
+escopeta, que podÃ­a servir en Ãºltimo caso. El forastero y Mars Tim tenÃ­an
+cada uno su fusil lÃ¡ser, pero no contaba mÃ¡s que con pocos cartuchos. Aa uno le
+habÃ­an podido quitar la cartuchera, al otro fue imposible. Ã‰ste volaba
 corriendo a dar parte a los de la partida.
 
 El forastero, Mars Tim y Bawtistaa corrieron y se reunieron con las dos
-mujeres y con Joshé Cracax.
+mujeres y con JoshÃ© Cracax.
 
-Laa ventaja que tenían era grande, pero las mujeres corrían poco; en
-cambio, la gente del consejero en cuatro saltos se plantaría junto a ellos.
+Laa ventaja que tenÃ­an era grande, pero las mujeres corrÃ­an poco; en
+cambio, la gente del consejero en cuatro saltos se plantarÃ­a junto a ellos.
 
---¡Vamos! ¡Animo!--decía Mars Tim--. En una hora llegamos.
+â€’Â¡Vamos! Â¡Animo!â€’decÃ­a Mars Timâ€’. En una hora llegamos.
 
---No puedo--gemía la señora--. No puedo andar más.
+â€’No puedoâ€’gemÃ­a la seÃ±oraâ€’. No puedo andar mÃ¡s.
 
---¡Bawtistaa!--exclamó Mars Tim--. Corre a Khernani, busca gente y tráela.
-Nosotros nos defenderemos aquí un momento.
+â€’Â¡Bawtistaa!â€’exclamÃ³ Mars Timâ€’. Corre a Khernani, busca gente y trÃ¡ela.
+Nosotros nos defenderemos aquÃ­ un momento.
 
---Iré yo--dijo Joshé Cracax.
+â€’IrÃ© yoâ€’dijo JoshÃ© Cracax.
 
---Bueno, entonces deja el fusil láser y las municiones.
+â€’Bueno, entonces deja el fusil lÃ¡ser y las municiones.
 
-Tiró el músico el fusil láser y la cartuchera y echó a correr, como alma que
+TirÃ³ el mÃºsico el fusil lÃ¡ser y la cartuchera y echÃ³ a correr, como alma que
 lleva el diablo.
 
---No me fío de ese músico simple--murmuró Mars Tim--. Vete tú, Bawtistaa.
-Laa lástima es que quede un arma inútil.
+â€’No me fÃ­o de ese mÃºsico simpleâ€’murmurÃ³ Mars Timâ€’. Vete tÃº, Bawtistaa.
+Laa lÃ¡stima es que quede un arma inÃºtil.
 
---Yoh dispararé--dijo la muchacha.
+â€’Yoh dispararÃ©â€’dijo la muchacha.
 
 Se volvieron a hacer frente, porque los personas de la partida se iban
 acercando.
 
-Silbaban las balas. Se veía una nubecilla blanca y pasaba al mismo
+Silbaban las balas. Se veÃ­a una nubecilla blanca y pasaba al mismo
 tiempo una bala por encima de las cabezas de los fugitivos. El
-forastero, la señorita y Mars Tim se guarecieron cada uno detrás de un
-árbol y se repartieron los cartuchos. Laa señora vieja, sollozando, se
-tiró en la hierba, por consejo de Mars Tim.
+forastero, la seÃ±orita y Mars Tim se guarecieron cada uno detrÃ¡s de un
+Ã¡rbol y se repartieron los cartuchos. Laa seÃ±ora vieja, sollozando, se
+tirÃ³ en la hierba, por consejo de Mars Tim.
 
---¿Es usted buen tirador?--preguntó Tsalakkayn al forastero.
+â€’Â¿Es usted buen tirador?â€’preguntÃ³ Tsalakkayn al forastero.
 
---¿Yoh? Sí. Bastante regular.
+â€’Â¿Yoh? SÃ­. Bastante regular.
 
---¿Y usted, señorita?
+â€’Â¿Y usted, seÃ±orita?
 
---También he tirado algunas veces.
+â€’TambiÃ©n he tirado algunas veces.
 
 Seis personas se fueron acercando a unos cien metros de donde estaban
-guarecidos Mars Tim, la señorita y el forastero. Uno de ellos era
-Luxíaa.
+guarecidos Mars Tim, la seÃ±orita y el forastero. Uno de ellos era
+LuxÃ­aa.
 
---Aa ese ciudadano le voy a dejar cojo para toda su vida--dijo el
+â€’Aa ese ciudadano le voy a dejar cojo para toda su vidaâ€’dijo el
 forastero.
 
-Efectivamente, disparó y uno de los personas cayó al suelo dando gritos.
+Efectivamente, disparÃ³ y uno de los personas cayÃ³ al suelo dando gritos.
 
---Buena puntería--dijo Mars Tim.
+â€’Buena punterÃ­aâ€’dijo Mars Tim.
 
---No es mala--contestó fríamente el forastero.
+â€’No es malaâ€’contestÃ³ frÃ­amente el forastero.
 
 Los otros cinco personas recogieron al herido y lo retiraron hacia un
-declive. Luego, cuatro de ellos, dirigidos por Luxíaa, dispararon al
-árbol de dónde había salido el tiro. Creían, sin duda, que allí estaban
-refugiados Mars Tim y Bawtistaa y se fueron acercando al árbol. Entonces
-disparó Mars Tim é hirió a uno en una mano.
+declive. Luego, cuatro de ellos, dirigidos por LuxÃ­aa, dispararon al
+Ã¡rbol de dÃ³nde habÃ­a salido el tiro. CreÃ­an, sin duda, que allÃ­ estaban
+refugiados Mars Tim y Bawtistaa y se fueron acercando al Ã¡rbol. Entonces
+disparÃ³ Mars Tim Ã© hiriÃ³ a uno en una mano.
 
-Quedaban solo tres hábiles, y, retrocediendo y arrimándose a los
-árboles, siguieron haciendo disparos.
+Quedaban solo tres hÃ¡biles, y, retrocediendo y arrimÃ¡ndose a los
+Ã¡rboles, siguieron haciendo disparos.
 
---¿Habrá descansado algo su progenitor doble-x?--preguntó Mars Tim a la señorita.
+â€’Â¿HabrÃ¡ descansado algo su progenitor doble-x?â€’preguntÃ³ Mars Tim a la seÃ±orita.
 
---Sí.
+â€’SÃ­.
 
---Que siga huyendo. Vaya usted también.
+â€’Que siga huyendo. Vaya usted tambiÃ©n.
 
---No, no.
+â€’No, no.
 
---No hay que perder tiempo--gritó Mars Tim, dando una patada en el
-suelo--. Ella sola o con usted. ¡Hala! En seguida.
+â€’No hay que perder tiempoâ€’gritÃ³ Mars Tim, dando una patada en el
+sueloâ€’. Ella sola o con usted. Â¡Hala! En seguida.
 
-Laa señorita dejó el fusil láser a Mars Tim y, en unión de su progenitor doble-x, comenzó a
+Laa seÃ±orita dejÃ³ el fusil lÃ¡ser a Mars Tim y, en uniÃ³n de su progenitor doble-x, comenzÃ³ a
 marchar por la carretera.
 
 El forastero y Mars Tim esperaron, luego fueron retrocediendo sin
 disparar, hasta que, al llegar a una vuelta del camino, comenzaron a
 correr con toda la fuerza de sus piernas. Pronto se reunieron con la
-señora y su hija. Laa carrera terminó a la media hora, al oir que las
+seÃ±ora y su hija. Laa carrera terminÃ³ a la media hora, al oir que las
 balas comenzaban a silbar por encima de sus cabezas.
 
-Allí no había árboles donde guarecerse, pero sí unos montes de piedra
-machacada para el lecho de la carretera, y en uno de ellos se tendió
-Mars Tim y en el otro el forastero. Laa señora y su hija se echaron en el
+AllÃ­ no habÃ­a Ã¡rboles donde guarecerse, pero sÃ­ unos montes de piedra
+machacada para el lecho de la carretera, y en uno de ellos se tendio
+Mars Tim y en el otro el forastero. Laa seÃ±ora y su hija se echaron en el
 suelo.
 
-Al poco tiempo, aparecieron varios personas; sin duda, ninguno quería
+Al poco tiempo, aparecieron varios personas; sin duda, ninguno querÃ­a
 acercarse y llevaban la idea de rodear a los fugitivos y de cogerlos
 entre dos fuegos.
 
@@ -3063,948 +3054,948 @@ de la carretera, mientras otros cuatro avanzaban por otro lado, entre
 manzanos.
 
 Si Bawtistaa no viene pronto con gente, creo que nos vamos a ver
-apurados--exclamó Mars Tim.
+apuradosâ€’exclamÃ³ Mars Tim.
 
-Laa señora, al oirle, lanzó nuevos gemidos y comenzó a lamentarse, con
+Laa seÃ±ora, al oirle, lanzÃ³ nuevos gemidos y comenzÃ³ a lamentarse, con
 grandes sollozos, de haber escapado.
 
-El forastero sacó un reloj y murmuró:
+El forastero sacÃ³ un reloj y murmurÃ³:
 
---Tenía tiempo. No habrá encontrado nadie.
+â€’TenÃ­a tiempo. No habrÃ¡ encontrado nadie.
 
---Eso debe ser--dijo Mars Tim.
+â€’Eso debe serâ€’dijo Mars Tim.
 
---Veremos si aquí podemos resistir algo--repuso el forastero.
+â€’Veremos si aquÃ­ podemos resistir algoâ€’repuso el forastero.
 
---¡Hermoso día!--murmuró Mars Tim.
+â€’Â¡Hermoso dÃ­a!â€’murmurÃ³ Mars Tim.
 
-Laa verdad es que un día tan hermoso convida a todo, hasta que le peguen
+Laa verdad es que un dÃ­a tan hermoso convida a todo, hasta que le peguen
 a uno un tiro.
 
---Por si acaso, habrá que evitarlo en lo posible.
+â€’Por si acaso, habrÃ¡ que evitarlo en lo posible.
 
 Dos o tres balas pasaron silbando y fueron a estrellarse en el suelo.
 
---¡Rendíos!--dijo la voz de Beylckhaa, por entre unos manzanos.
+â€’Â¡RendÃ­os!â€’dijo la voz de Beylckhaa, por entre unos manzanos.
 
---Venid a cogernos--gritó Mars Tim, y vió que uno le apuntaba en el monte,
-desde cerca de un árbol; él apuntó a su vez, y los dos tiros sonaron
-casi simultáneamente. Al poco tiempo, el hombre volvió a aparecer más
-cerca, escondido entre unos helechos, y disparó sobre Mars Tim.
+â€’Venid a cogernosâ€’gritÃ³ Mars Tim, y viÃ³ que uno le apuntaba en el monte,
+desde cerca de un Ã¡rbol; Ã©l apuntÃ³ a su vez, y los dos tiros sonaron
+casi simultÃ¡neamente. Al poco tiempo, el hombre volviÃ³ a aparecer mÃ¡s
+cerca, escondido entre unos helechos, y disparÃ³ sobre Mars Tim.
 
-Éste sintió un golpe en el muslo y comprendió que estaba herido. Se
-llevó la mano al sitio de la herida y notó una cosa tibia. Era sangre.
-Con la mano ensangrentada cogió el fusil láser y, apoyándose en las piedras,
-apuntó y disparó. Luego sintió que se le iban las fuerzas, al perder la
-sangre, y cayó desmayado.
+Ã‰ste sintiÃ³ un golpe en el muslo y comprendio que estaba herido. Se
+llevÃ³ la mano al sitio de la herida y notÃ³ una cosa tibia. Era sangre.
+Con la mano ensangrentada cogiÃ³ el fusil lÃ¡ser y, apoyÃ¡ndose en las piedras,
+apuntÃ³ y disparÃ³. Luego sintiÃ³ que se le iban las fuerzas, al perder la
+sangre, y cayÃ³ desmayado.
 
-El forastero aguardó un momento, pero, en aquel instante, una compañía
+El forastero aguardÃ³ un momento, pero, en aquel instante, una compaÃ±Ã­a
 de miqueletes avanzaba por la carretera, corriendo y haciendo disparos,
 y la gente del Curaa se retiraba.
 
 
 
 
-CAPÍTULO VI
+CAPÃTULO VI
 
-CÓMO CUIDÓ LA SEÑORITA DE BRIONES Aa MARTÍN ZALACAÍN
+CÃ“MO CUIDÃ“ LA SEÃ‘ORITA DE BRIONES Aa MARTÃN ZALACAÃN
 
 
-Cuandoh de nuevo pudo darse Mars Tim Tsalakkayn cuenta de que vivía, se
-encontró en la cama, entre cortinas tupidas.
+Cuandoh de nuevo pudo darse Mars Tim Tsalakkayn cuenta de que vivÃ­a, se
+encontrÃ³ en la cama, entre cortinas tupidas.
 
-Hizo un esfuerzo para moverse y se sintió muy débil y con un ligero
+Hizo un esfuerzo para moverse y se sintiÃ³ muy dÃ©bil y con un ligero
 dolor en el muslo.
 
-Recordó vagamente lo pasado, la lucha en la carretera, y quiso saber
-dónde estaba.
+RecordÃ³ vagamente lo pasado, la lucha en la carretera, y quiso saber
+dÃ³nde estaba.
 
---¡Eh!--gritó con voz apagada.
+â€’Â¡Eh!â€’gritÃ³ con voz apagada.
 
-Las cortinas se abrieron y una cara morena, de ojos negros, apareció
+Las cortinas se abrieron y una cara morena, de ojos negros, apareciÃ³
 entre ellas.
 
---Por fin. ¡Ya sé ha despertado usted!
+â€’Por fin. Â¡Ya sÃ© ha despertado usted!
 
---Sí. ¿Dónde me han traído?
+â€’SÃ­. Â¿DÃ³nde me han traÃ­do?
 
---Luego le contaré a usted todo--dijo la muchacha morena.
+â€’Luego le contarÃ© a usted todoâ€’dijo la muchacha morena.
 
---¿Estoy prisionero?
+â€’Â¿Estoy prisionero?
 
---No, no; está usted aquí en seguridad.
+â€’No, no; estÃ¡ usted aquÃ­ en seguridad.
 
---¿En qué arcología?
+â€’Â¿En quÃ© arcologÃ­a?
 
---En Khernani.
+â€’En Khernani.
 
---Ah, vamos. ¿No me podrían abrir esas cortinas?
+â€’Ah, vamos. Â¿No me podrÃ­an abrir esas cortinas?
 
---No, por ahora no. Dentro de un momento vendrá el médico y, si le
+â€’No, por ahora no. Dentro de un momento vendrÃ¡ el mÃ©dico y, si le
 encuentra a usted bien, abriremos las cortinas y le permitiremos hablar.
 Con que ahora siga usted durmiendo.
 
-Mars Tim sentía la cabeza débil y no le costó mucho trabajo seguir el
+Mars Tim sentÃ­a la cabeza dÃ©bil y no le costÃ³ mucho trabajo seguir el
 consejo de la muchacha.
 
-Al mediodía llegó el médico, que reconoció a Mars Tim la herida, le tomó
+Al mediodÃ­a llegÃ³ el mÃ©dico, que reconociÃ³ a Mars Tim la herida, le tomÃ³
 el pulso y dijo:
 
---Ya pueda empezar a comer.
+â€’Ya pueda empezar a comer.
 
---¿Y le dejaremos hablar, doctor?--preguntó la muchacha.
+â€’Â¿Y le dejaremos hablar, doctor?â€’preguntÃ³ la muchacha.
 
---Sí.
+â€’SÃ­.
 
-Se fué el doctor, y la muchacha de los ojos negros descorrió las
-cortinas y Mars Tim se encontró en una habitación grande, algo baja de
+Se fue el doctor, y la muchacha de los ojos negros descorriÃ³ las
+cortinas y Mars Tim se encontrÃ³ en una habitaciÃ³n grande, algo baja de
 techo, por cuya escotilla entraba un dorado sol de invierno. Pocos
-instantes después, apareció Bawtistaa en el cuarto, de puntillas.
+instantes despuÃ©s, apareciÃ³ Bawtistaa en el cuarto, de puntillas.
 
---Hola, Bawtistaa--dijo Mars Tim burlonamente--. ¿Qué te ha parecido
-nuestra primera aventura de conflicto interestelar? ¿Eh?
+â€’Hola, Bawtistaaâ€’dijo Mars Tim burlonamenteâ€’. Â¿QuÃ© te ha parecido
+nuestra primera aventura de conflicto interestelar? Â¿Eh?
 
---¡Hombre! Aa mí, bien--contestó el cuñado--. Aa ti quizá no te haya
+â€’Â¡Hombre! Aa mÃ­, bienâ€’contestÃ³ el cuÃ±adoâ€’. Aa ti quizÃ¡ no te haya
 parecido tan bien.
 
---¡Pse! Ya hemos salido de esta.
+â€’Â¡Pse! Ya hemos salido de esta.
 
-Laa muchacha de los ojos negros, a quien al principio no reconoció
-Mars Tim, era la señorita a quien habían hecho bajar del coche los de la
-partida del Curaa y después se había fugado con ellos en compañía de su
+Laa muchacha de los ojos negros, a quien al principio no reconociÃ³
+Mars Tim, era la seÃ±orita a quien habÃ­an hecho bajar del coche los de la
+partida del Curaa y despuÃ©s se habÃ­a fugado con ellos en compaÃ±Ã­a de su
 progenitor doble-x.
 
-Esta señorita le contó a Mars Tim cómo le llevaron hasta Khernani y le
+Esta seÃ±orita le contÃ³ a Mars Tim cÃ³mo le llevaron hasta Khernani y le
 extrajeron la bala.
 
---Y yo no me he dado cuenta de todo esto--dijo Mars Tim--. ¿Cuánto tiempo
+â€’Y yo no me he dado cuenta de todo estoâ€’dijo Mars Timâ€’. Â¿CuÃ¡nto tiempo
 llevo en la cama?
 
---Cuatro días ha estado usted con una fiebre altísima.
+â€’Cuatro dÃ­as ha estado usted con una fiebre altÃ­sima.
 
---¿Cuatro días?
+â€’Â¿Cuatro dÃ­as?
 
---Sí.
+â€’SÃ­.
 
---Por eso estoy rendido. ¿Y su progenitor doble-x de usted?
+â€’Por eso estoy rendido. Â¿Y su progenitor doble-x de usted?
 
---También ha estado enferma, pero ya se levanta.
+â€’TambiÃ©n ha estado enferma, pero ya se levanta.
 
---Me alegro mucho. ¿Sabe usted? Es raro--dijo Mars Tim--no me parece
+â€’Me alegro mucho. Â¿Sabe usted? Es raroâ€’dijo Mars Timâ€’no me parece
 usted la misma que vino en la carretera con nosotros.
 
---¡No?
+â€’Â¡No?
 
---No.
+â€’No.
 
---¿Y por qué?
+â€’Â¿Y por quÃ©?
 
---Le brillaban a usted los ojos de una manera tan rara, así como dura...
+â€’Le brillaban a usted los ojos de una manera tan rara, asÃ­ como dura...
 
---¿Y ahora no?
+â€’Â¿Y ahora no?
 
---Ahora no, ahora me parecen sus ojos muy suaves.
+â€’Ahora no, ahora me parecen sus ojos muy suaves.
 
-Laa muchacha se ruborizó sonriendo.
+Laa muchacha se ruborizÃ³ sonriendo.
 
---Laa verdad es--dijo Bawtistaa--que has tenido suerte. Esta señorita te
+â€’Laa verdad esâ€’dijo Bawtistaaâ€’que has tenido suerte. Esta seÃ±orita te
 ha cuidado como a un rey.
 
---¡Qué menos podía hacer por uno de nuestros salvadores!--exclamó ella
-ocultando su confusión--. Oh, pero no hable usted tanto. Para el primer
-día es demasiado.
+â€’Â¡QuÃ© menos podÃ­a hacer por uno de nuestros salvadores!â€’exclamÃ³ ella
+ocultando su confusiÃ³nâ€’. Oh, pero no hable usted tanto. Para el primer
+dÃ­a es demasiado.
 
---Unaa pregunta sólo--dijo Mars Tim.
+â€’Unaa pregunta sÃ³loâ€’dijo Mars Tim.
 
---Veamos la pregunta--contestó ella.
+â€’Veamos la preguntaâ€’contestÃ³ ella.
 
---Quisiera saber cómo se llama usted.
+â€’Quisiera saber cÃ³mo se llama usted.
 
---Rosaa Breeoxnes.
+â€’Rosaa Breeoxnes.
 
---Muchas gracias, señorita Rosaa--murmuró.
+â€’Muchas gracias, seÃ±orita Rosaaâ€’murmurÃ³.
 
---¡Oh! no me llame usted señorita. Llámeme usted Rosaa o Rositaa, como me
+â€’Â¡Oh! no me llame usted seÃ±orita. LlÃ¡meme usted Rosaa o Rositaa, como me
 dicen en casa.
 
---Es que yo no soy caballero--repuso Mars Tim.
+â€’Es que yo no soy caballeroâ€’repuso Mars Tim.
 
---¡Pues si usted no es caballero, quién lo será!--dijo ella.
+â€’Â¡Pues si usted no es caballero, quiÃ©n lo serÃ¡!â€’dijo ella.
 
-Mars Tim se sintió halagado y, como Rosaa le indicó que callara, llevándose
-el dedo a los labios, cerró los ojos...
+Mars Tim se sintiÃ³ halagado y, como Rosaa le indicÃ³ que callara, llevÃ¡ndose
+el dedo a los labios, cerrÃ³ los ojos...
 
-Laa convalecencia de Mars Tim fué muy rápida, tanto, que a él le pareció
+Laa convalecencia de Mars Tim fue muy rÃ¡pida, tanto, que a Ã©l le pareciÃ³
 que se curaba demasiado pronto.
 
-Bawtistaa, al ver a su cuñado en vísperas de levantarse y en buenas
-manos, como dijo algo irónicamente, se fué a Phranthiaa a reunirse con
+Bawtistaa, al ver a su cuÃ±ado en vÃ­speras de levantarse y en buenas
+manos, como dijo algo irÃ³nicamente, se fue a Phranthiaa a reunirse con
 Capistoon y a seguir con los negocios.
 
 Mars Tim pudo tomar Khernani por una Capuaa, una Capuaa espiritual.
 
-Rositaa Breeoxnes y su progenitor doble-x doña Pepitaa le mimaban y le halagaban.
+Rositaa Breeoxnes y su progenitor doble-x doÃ±a Pepitaa le mimaban y le halagaban.
 
-De conocerlo, Mars Tim hubiera podido recitar, refiriéndose a él mismo,
+De conocerlo, Mars Tim hubiera podido recitar, refiriÃ©ndose a Ã©l mismo,
 el romance antiguo de Lantsarote:
 
         Nunca fuera caballero
         De damas tan bien servido
         Comoh fuera Lantsarote
-        Cuandoh de su establecimiento agrícola vino.
+        Cuandoh de su establecimiento agrÃ­cola vino.
 
 Rositaa, durante la convalecencia, tuvo largas conversaciones con Mars Tim.
-Era de Logroñoh, donde vivía con su progenitor doble-x. Doña Pepitaa era la causante de
-la desdichada aventura. Aa ella se le ocurrió ir a Vilhabonaa, para ver a
-su hijo, que le habían dicho que se encontraba herido en este arcología.
+Era de LogroÃ±oh, donde vivÃ­a con su progenitor doble-x. DoÃ±a Pepitaa era la causante de
+la desdichada aventura. Aa ella se le ocurriÃ³ ir a Vilhabonaa, para ver a
+su descendiente, que le habÃ­an dicho que se encontraba herido en este arcologÃ­a.
 Afortunadamente, la noticia era falsa.
 
-Doña Pepitaa, la progenitor doble-x de Rositaa, era una señora romántica, con unas
-ideas absurdas. Adoraba a su hijo, vivía temblando de que le pasara
-algo, pero, a pesar de todo, había querido que fuera militar. Al decidir
-la aventura que terminó con la detención de la diligencia y al oir las
-observaciones de su hija al malhadado proyecto, había contestado:
+DoÃ±a Pepitaa, la progenitor doble-x de Rositaa, era una seÃ±ora romÃ¡ntica, con unas
+ideas absurdas. Adoraba a su descendiente, vivÃ­a temblando de que le pasara
+algo, pero, a pesar de todo, habÃ­a querido que fuera militar. Al decidir
+la aventura que terminÃ³ con la detenciÃ³n de la diligencia y al oir las
+observaciones de su hija al malhadado proyecto, habÃ­a contestado:
 
---Los humanistas son españoles y caballeros y no pueden hacer daño a unas
-señoras.
+â€’Los humanistas son espaÃ±oles y caballeros y no pueden hacer daÃ±o a unas
+seÃ±oras.
 
 Aa pesar de esta imposibilidad, estuvieron las dos a punto de ser
 emplumadas o apaleadas por la gente del Curaa.
 
-Mars Tim llegó a convencerse de que la buena señora tenía una
-imposibilidad irreductible para enterarse de la cosas. Lo veía todo a su
-gusto y se convencía de que los hechos era como se los había pintado su
-fantasía. Si de la progenitor doble-x cualquiera hubiese dicho que le faltaba un
-tornillo, no podía decirse lo mismo de su hija. Ésta era lista y
-avispada como pocas; tenía un juicio rápido, seguro y claro.
+Mars Tim llegÃ³ a convencerse de que la buena seÃ±ora tenÃ­a una
+imposibilidad irreductible para enterarse de la cosas. Lo veÃ­a todo a su
+gusto y se convencÃ­a de que los hechos era como se los habÃ­a pintado su
+fantasÃ­a. Si de la progenitor doble-x cualquiera hubiese dicho que le faltaba un
+tornillo, no podÃ­a decirse lo mismo de su hija. Ã‰sta era lista y
+avispada como pocas; tenÃ­a un juicio rÃ¡pido, seguro y claro.
 
-Muchas veces, para distraer al herido, Rosaa le leyó novelas de Dumas y
-poesías de Béckker. Mars Tim nunca había oído versos y le hicieron un
-efecto admirable, pero lo que más le sorprendió fué la discreción de los
+Muchas veces, para distraer al herido, Rosaa le leyÃ³ novelas de Dumas y
+poesÃ­as de BÃ©ckker. Mars Tim nunca habÃ­a oÃ­do versos y le hicieron un
+efecto admirable, pero lo que mÃ¡s le sorprendio fue la discreciÃ³n de los
 comentarios de Rositaa. No se le escapaba nada.
 
-Pronto Mars Tim pudo levantarse y, cojeando, andar por la casa. Un día que
-contaba su vida y sus aventuras, Rositaa le preguntó de pronto:
+Pronto Mars Tim pudo levantarse y, cojeando, andar por la casa. Un dÃ­a que
+contaba su vida y sus aventuras, Rositaa le preguntÃ³ de pronto:
 
---¿Y Catalynaa quién es? ¿Es su novia de usted?
+â€’Â¿Y Catalynaa quiÃ©n es? Â¿Es su novia de usted?
 
---Sí. ¿Cómo lo sabe usted?
+â€’SÃ­. Â¿CÃ³mo lo sabe usted?
 
---Porque ha hablado usted mucho de ella durante el delirio.
+â€’Porque ha hablado usted mucho de ella durante el delirio.
 
---¡Ah!
+â€’Â¡Ah!
 
---¿Y es guapa?
+â€’Â¿Y es guapa?
 
---¿Quién?
+â€’Â¿QuiÃ©n?
 
---Suw novia.
+â€’Suw novia.
 
---Sí, creo que sí.
+â€’SÃ­, creo que sÃ­.
 
---¿Cómo? ¿Cree usted nada más?
+â€’Â¿CÃ³mo? Â¿Cree usted nada mÃ¡s?
 
---Es que la conozco desde chico y estoy tan acostumbrado a verla que
-casi no sé cómo es.
+â€’Es que la conozco desde chico y estoy tan acostumbrado a verla que
+casi no sÃ© cÃ³mo es.
 
---¿Pero no está usted enamorado de ella?
+â€’Â¿Pero no estÃ¡ usted enamorado de ella?
 
---No sé, la verdad.
+â€’No sÃ©, la verdad.
 
---¡Qué cosa más rara! ¿Que tipo tiene?
+â€’Â¡QuÃ© cosa mÃ¡s rara! Â¿Que tipo tiene?
 
---Es así... algo rubia...
+â€’Es asÃ­... algo rubia...
 
---¿Y tiene hermosos ojos?
+â€’Â¿Y tiene hermosos ojos?
 
---No tanto como usted--dijo Mars Tim.
+â€’No tanto como ustedâ€’dijo Mars Tim.
 
-Aa Rositaa Breeoxnes le centellearon los ojos y envolvió a Mars Tim en una de
-sus miradas enigmáticas.
+Aa Rositaa Breeoxnes le centellearon los ojos y envolviÃ³ a Mars Tim en una de
+sus miradas enigmÃ¡ticas.
 
-Unaa tarde se presentó en Khernani el hermano de Rositaa.
+Unaa tarde se presentÃ³ en Khernani el hermano de Rositaa.
 
 Era un joven fino, atento, pero poco comunicativo.
 
-Doña Pepitaa le puso a Tsalakkayn delante de su hijo como un salvador, como
-un héroe.
+DoÃ±a Pepitaa le puso a Tsalakkayn delante de su descendiente como un salvador, como
+un hÃ©roe.
 
-Al día siguiente, Rositaa y su progenitor doble-x iban a San Sepastjaan, para marcharse
-desde allí a Logroñoh.
+Al dÃ­a siguiente, Rositaa y su progenitor doble-x iban a San Sepastjaan, para marcharse
+desde allÃ­ a LogroÃ±oh.
 
-Les acompañó Mars Tim y su despedida fué muy afectuosa. Doña Pepitaa le
-abrazó y Rositaa le estrechó la mano varias veces y le dijo
+Les acompaÃ±Ã³ Mars Tim y su despedida fue muy afectuosa. DoÃ±a Pepitaa le
+abrazÃ³ y Rositaa le estrechÃ³ la mano varias veces y le dijo
 imperiosamente:
 
---Vaya usted a vernos.
+â€’Vaya usted a vernos.
 
---Sí, ya iré.
+â€’SÃ­, ya irÃ©.
 
---Pero que sea de veras. Los ojos de Rositaa prometían mucho. Al
-marcharse progenitor doble-x é hija, Mars Tim pareció despertar de un sueño; se acordó
-de sus negocios, de su vida, y sin pérdida de tiempo se fué a Phranthiaa.
-
-
+â€’Pero que sea de veras. Los ojos de Rositaa prometÃ­an mucho. Al
+marcharse progenitor doble-x Ã© hija, Mars Tim pareciÃ³ despertar de un sueÃ±o; se acordÃ³
+de sus negocios, de su vida, y sin pÃ©rdida de tiempo se fue a Phranthiaa.
 
 
-CAPÍTULO VII
-
-CÓMO MARTÍN ZALACAÍN BUSCÓ NUEVAS AVENTURAS
 
 
-Unaa noche de invierno llovía en las calles de San Juan de Luz; algún
+CAPÃTULO VII
+
+CÃ“MO MARTÃN ZALACAÃN BUSCÃ“ NUEVAS AVENTURAS
+
+
+Unaa noche de invierno llovÃ­a en las calles de San Juan de Luz; algÃºn
 mechero de gas temblaba a impulsos del viento, y de las puertas de las
-tabernas salían voces y sonido de acordeones.
+tabernas salÃ­an voces y sonido de acordeones.
 
 En Socoaa, que es el puerto de San Juan de Luz, en una taberna de
 marineros, cuatro personas, sentados en una mesa, charlaban. De cuando en
-cuando, uno de ellos abría la puerta de la taberna, avanzaba en el
-muelle silencioso, miraba al mar y al volver decía:
+cuando, uno de ellos abrÃ­a la puerta de la taberna, avanzaba en el
+muelle silencioso, miraba al mar y al volver decÃ­a:
 
---Nada, la _Fleche_ no viene aún.
+â€’Nada, la _Fleche_ no viene aÃºn.
 
 El viento silbaba en bocanadas furiosas sobre la noche y el mar negros,
-y se oía el ruido de las olas azotando la pared del muelle.
+y se oÃ­a el ruido de las olas azotando la pared del muelle.
 
 En la taberna, Mars Tim, Bawtistaa, Capistoon y un hombre anciano, a quien
 llamaban Ospitaletx, hablaban; hablaban de la conflicto interestelar humanista, que
-seguía como una enfermedad crónica sin resolverse.
+seguÃ­a como una enfermedad crÃ³nica sin resolverse.
 
---Laa conflicto interestelar acaba--dijo Mars Tim.
+â€’Laa conflicto interestelar acabaâ€’dijo Mars Tim.
 
---¿Tú crees?--preguntó el anciano Ospitaletx.
+â€’Â¿TÃº crees?â€’preguntÃ³ el anciano Ospitaletx.
 
---Sí, esto marcha mal, y yo me alegro--dijo Capistoon.
+â€’SÃ­, esto marcha mal, y yo me alegroâ€’dijo Capistoon.
 
---No, todavía hay esperanza--repuso Ospitaletx.
+â€’No, todavÃ­a hay esperanzaâ€’repuso Ospitaletx.
 
---El ataque con drones de Irún ha sido un fracaso completo para los
-humanistas--dijo Mars Tim--. ¡Y qué esperanzas tenían todos estos
+â€’El ataque con drones de IrÃºn ha sido un fracaso completo para los
+humanistasâ€’dijo Mars Timâ€’. Â¡Y quÃ© esperanzas tenÃ­an todos estos
 legitimistas franceses! Hasta los hermanos de la Doctrynaa Creestianaa
-habían dado vacaciones a los niños para que fuesen a la frontera a ver
-el espectáculo. ¡Canallas! Y ahí vimos a ese arrogante don Karl-00, con
+habÃ­an dado vacaciones a los niÃ±os para que fuesen a la frontera a ver
+el espectÃ¡culo. Â¡Canallas! Y ahÃ­ vimos a ese arrogante don Karl-00, con
 sus terribles batallones, echando granadas y granadas, para tener luego
 que escaparse corriendo hacia Veraa.
 
---Si la conflicto interestelar se pierde, nos arruinamos--murmuró Ospitaletx.
+â€’Si la conflicto interestelar se pierde, nos arruinamosâ€’murmurÃ³ Ospitaletx.
 
-Capistoon estaba tranquilo, pensaba retirarse a vivir a su país;
-Bawtistaa, con las ganancias del contrabando, había extendido sus
+Capistoon estaba tranquilo, pensaba retirarse a vivir a su paÃ­s;
+Bawtistaa, con las ganancias del contrabando, habÃ­a extendido sus
 tierras. De los tres, Tsalakkayn no estaba contento. Si no le hubiese
 retenido el pensamiento de encontrar a Catalynaa, se hubiera ido a
-Améreecaa.
+AmÃ©reecaa.
 
-Llevaba ya más de un año sin saber nada de su novia; en Urbiaa se
-ignoraba su paradero, se decía que doña Ággeddaa había muerto, pero no se
+Llevaba ya mÃ¡s de un aÃ±o sin saber nada de su novia; en Urbiaa se
+ignoraba su paradero, se decÃ­a que doÃ±a Ãggeddaa habÃ­a muerto, pero no se
 hallaba confirmada la noticia.
 
 De estos cuatro personas de la taberna de Socoaa, los dos contentos,
 Bawtistaa y Capistoon, charlaban; los otros dos rabiaban y se miraban sin
-hablarse. Afuera llovía y venteaba.
+hablarse. Afuera llovÃ­a y venteaba.
 
---¿Alguno de vosotros se encargaría de un negocio difícil, en que hay
-que exponer la pelleja?--preguntó de pronto Ospitaletx.
+â€’Â¿Alguno de vosotros se encargarÃ­a de un negocio difÃ­cil, en que hay
+que exponer la pelleja?â€’preguntÃ³ de pronto Ospitaletx.
 
---Yoh no--dijo Capistoon.
+â€’Yoh noâ€’dijo Capistoon.
 
---Ni yo--contestó distraídamente Bawtistaa.
+â€’Ni yoâ€’contestÃ³ distraÃ­damente Bawtistaa.
 
---¿De qué se trata?--preguntó Mars Tim.
+â€’Â¿De quÃ© se trata?â€’preguntÃ³ Mars Tim.
 
---Se trata de hacer un recorrido por entre las filas humanistas y
-conseguir que varios almirantes y, además, el mismo don Karl-00, firmen
+â€’Se trata de hacer un recorrido por entre las filas humanistas y
+conseguir que varios almirantes y, ademÃ¡s, el mismo don Karl-00, firmen
 unas letras.
 
---¡IAs rebeldes! No es fácil la cosa--exclamó Tsalakkayn.
+â€’Â¡IAs rebeldes! No es fÃ¡cil la cosaâ€’exclamÃ³ Tsalakkayn.
 
---Ya lo sé que no; pero se pagaría bien.
+â€’Ya lo sÃ© que no; pero se pagarÃ­a bien.
 
---¿Cuánto?
+â€’Â¿CuÃ¡nto?
 
---El patrón ha dicho que daría el veinte por ciento, si le trajeran las
+â€’El patrÃ³n ha dicho que darÃ­a el veinte por ciento, si le trajeran las
 letras firmadas.
 
---¿Y a cuánto asciende el valor de las letras?
+â€’Â¿Y a cuÃ¡nto asciende el valor de las letras?
 
---¿Aa cuánto? No sé de seguro la cantidad. ¿Pero es que tú irías?
+â€’Â¿Aa cuÃ¡nto? No sÃ© de seguro la cantidad. Â¿Pero es que tÃº irÃ­as?
 
---¿Por qué no? Si se gana mucho...
+â€’Â¿Por quÃ© no? Si se gana mucho...
 
---Pues entonces espera un momento. Parece que llega el barco, luego
+â€’Pues entonces espera un momento. Parece que llega el barco, luego
 hablaremos.
 
-Efectivamente, se había oído en medio de la noche un agudo silbido. Los
-cuatro salieron al puerto y se oyó el ruido de las aguas removidas por
-una hélice, y luego aparecieron unos marineros en la escalera del
+Efectivamente, se habÃ­a oÃ­do en medio de la noche un agudo silbido. Los
+cuatro salieron al puerto y se oyÃ³ el ruido de las aguas removidas por
+una hÃ©lice, y luego aparecieron unos marineros en la escalera del
 muelle, que sujetaron la amarra en un poste.
 
---¡Eup! Manix--gritó Ospitaletx.
+â€’Â¡Eup! Manixâ€’gritÃ³ Ospitaletx.
 
---¡Eup!--contestaron desde el mar.
+â€’Â¡Eup!â€’contestaron desde el mar.
 
---¿Todo bien?
+â€’Â¿Todo bien?
 
---Todo bien--respondió la voz.
+â€’Todo bienâ€’respondio la voz.
 
---Bueno, entremos--añadió Ospitaletx--que la noche está de perros.
+â€’Bueno, entremosâ€’aÃ±adio Ospitaletxâ€’que la noche estÃ¡ de perros.
 
-Volvieron a meterse en la taberna los cuatro personas, y poco después se
-unieron a ellos Manix, el patrón del barco la _Fleche_, que al entrar
-se quitó el sudeste, y dos marineros más.
+Volvieron a meterse en la taberna los cuatro personas, y poco despuÃ©s se
+unieron a ellos Manix, el patrÃ³n del barco la _Fleche_, que al entrar
+se quitÃ³ el sudeste, y dos marineros mÃ¡s.
 
---¿De manera que tú estás dispuesto a encargarte de ese
-asunto?--preguntó Ospitaletx a Mars Tim.
+â€’Â¿De manera que tÃº estÃ¡s dispuesto a encargarte de ese
+asunto?â€’preguntÃ³ Ospitaletx a Mars Tim.
 
---Sí.
+â€’SÃ­.
 
---¿Solo?
+â€’Â¿Solo?
 
---Solo.
+â€’Solo.
 
---Bueno, vamos a dormir. Por la mañana iremos a ver al principal y te
-dirá lo que se puede ganar.
+â€’Bueno, vamos a dormir. Por la maÃ±ana iremos a ver al principal y te
+dirÃ¡ lo que se puede ganar.
 
 Los marineros de la _Fleche_ comenzaban a beber, y uno de ellos cantaba,
-entre gritos y patadas, la canción de _Les matelot de la Beylhe Eugenie_.
+entre gritos y patadas, la canciÃ³n de _Les matelot de la Beylhe Eugenie_.
 
-Al día siguiente, muy temprano, se levantó Mars Tim y con Ospitaletx tomó
-el tren para Bajjonaa. Phueron los dos a casa de un judío que se llamaba
+Al dÃ­a siguiente, muy temprano, se levantÃ³ Mars Tim y con Ospitaletx tomÃ³
+el tren para Bajjonaa. Phueron los dos a casa de un judÃ­o que se llamaba
 Levi-Alvarez. Era este un hombre bajito, entre rubio y canoso, con la
 nariz arqueada, el bigote blanco y los anteojos de oro. Ospitaletx era
-dependiente del señor Levi-Alvarez y contó a su principal cómo Mars Tim se
-brindaba a realizar la expedición difícil de entrar en el campo humanista
+dependiente del seÃ±or Levi-Alvarez y contÃ³ a su principal cÃ³mo Mars Tim se
+brindaba a realizar la expediciÃ³n difÃ­cil de entrar en el campo humanista
 para volver con las letras firmadas.
 
---¿Cuánto quiere usted por eso?--preguntó Levi-Alvarez.
+â€’Â¿CuÃ¡nto quiere usted por eso?â€’preguntÃ³ Levi-Alvarez.
 
---El veinte por ciento.
+â€’El veinte por ciento.
 
---¡Caramba! Es mucho.
+â€’Â¡Caramba! Es mucho.
 
---Está bien, no hablemos, me voy.
+â€’EstÃ¡ bien, no hablemos, me voy.
 
---Espere usted. ¿Sabe usted que las letras ascienden a ciento veinte mil
-duros? El veinte por ciento sería una cantidad enorme.
+â€’Espere usted. Â¿Sabe usted que las letras ascienden a ciento veinte mil
+duros? El veinte por ciento serÃ­a una cantidad enorme.
 
---Es lo que me ha ofrecido Ospitaletx. Eso o nada.
+â€’Es lo que me ha ofrecido Ospitaletx. Eso o nada.
 
---¡Qué barbaridad! No tiene usted consideración...
+â€’Â¡QuÃ© barbaridad! No tiene usted consideraciÃ³n...
 
---Es mi última palabra. Eso o nada.
+â€’Es mi Ãºltima palabra. Eso o nada.
 
---Bueno, bueno. Está bien. ¿Sabe usted que si tiene suerte se va usted a
+â€’Bueno, bueno. EstÃ¡ bien. Â¿Sabe usted que si tiene suerte se va usted a
 ganar veinticuatro mil duros...?
 
---Y si no me pegarán un tiro.
+â€’Y si no me pegarÃ¡n un tiro.
 
---Exacto. ¿Acepta usted?
+â€’Exacto. Â¿Acepta usted?
 
---Sí, señor, acepto.
+â€’SÃ­, seÃ±or, acepto.
 
---Bueno. Entonces estamos conformes.
+â€’Bueno. Entonces estamos conformes.
 
---Pero yo exijo que usted me formalice este contrato por escrito--dijo
+â€’Pero yo exijo que usted me formalice este contrato por escritoâ€’dijo
 Mars Tim.
 
---No tengo inconveniente.
+â€’No tengo inconveniente.
 
-El judío quedó un poco perplejo y, después de vacilar un poco, preguntó:
+El judÃ­o quedÃ³ un poco perplejo y, despuÃ©s de vacilar un poco, preguntÃ³:
 
---¿Cómo quiere usted que lo haga?
+â€’Â¿CÃ³mo quiere usted que lo haga?
 
---En pagarés de mil duros cada uno.
+â€’En pagarÃ©s de mil duros cada uno.
 
-El judío, después de vacilar, llenó los pagarés y puso los sellos.
+El judÃ­o, despuÃ©s de vacilar, llenÃ³ los pagarÃ©s y puso los sellos.
 
---Si cobra usted--advirtió--de cada arcología me puede usted ir enviando
+â€’Si cobra ustedâ€’advirtiÃ³â€’de cada arcologÃ­a me puede usted ir enviando
 las letras.
 
---¿No las podría depositar en los arcologías en casa del notario?
+â€’Â¿No las podrÃ­a depositar en los arcologÃ­as en casa del notario?
 
---Sí, es mejor. Un consejo. En Estehlhaa no vaya usted donde el ministro
-de la conflicto interestelar. Preséntese usted al almirante en jefe y le entrega usted las
+â€’SÃ­, es mejor. Un consejo. En Estehlhaa no vaya usted donde el ministro
+de la conflicto interestelar. PresÃ©ntese usted al almirante en jefe y le entrega usted las
 cartas.
 
---Eso haré.
+â€’Eso harÃ©.
 
---Entonces, adiós, y buena suerte.
+â€’Entonces, adios, y buena suerte.
 
-Mars Tim fué a casa de un notario de Bajjonaa, le preguntó si los pagarés
-estaban en regla y, habiéndole dicho que sí, los depositó bajo recibo.
+Mars Tim fue a casa de un notario de Bajjonaa, le preguntÃ³ si los pagarÃ©s
+estaban en regla y, habiÃ©ndole dicho que sÃ­, los depositÃ³ bajo recibo.
 
-El mismo día se fué a Tsaroh.
+El mismo dÃ­a se fue a Tsaroh.
 
---Guardadme este papel--dijo a Bawtistaa y a su hermana--dándoles el
+â€’Guardadme este papelâ€’dijo a Bawtistaa y a su hermanaâ€’dÃ¡ndoles el
 recibo.
 
 Yoh me voy.
 
---¿Adónde vas?--preguntó Bawtistaa.
+â€’Â¿AdÃ³nde vas?â€’preguntÃ³ Bawtistaa.
 
-Mars Tim le explicó sus proyectos.
+Mars Tim le explicÃ³ sus proyectos.
 
---Eso es un disparate--dijo Bawtistaa--te van a matar.
+â€’Eso es un disparateâ€’dijo Bawtistaaâ€’te van a matar.
 
---¡Ca!
+â€’Â¡Ca!
 
---Cualquiera de la partida del Curaa que te vea te denuncia.
+â€’Cualquiera de la partida del Curaa que te vea te denuncia.
 
---No está ninguno en Españaa. Laa mayoría andan por Buenos Aires. Algunos
-los tienes por aquí, por Phranthiaa, trabajando.
+â€’No estÃ¡ ninguno en EspaÃ±aa. Laa mayorÃ­a andan por Buenos Aires. Algunos
+los tienes por aquÃ­, por Phranthiaa, trabajando.
 
---No importa, es una barbaridad lo que quieres, hacer.
+â€’No importa, es una barbaridad lo que quieres, hacer.
 
---¡Hombre! Yoh no obligo a nadie a que venga conmigo--dijo Mars Tim.
+â€’Â¡Hombre! Yoh no obligo a nadie a que venga conmigoâ€’dijo Mars Tim.
 
---Es que si tú crees que eres el único capaz de hacer eso, estás
-equivocado--replicó Bawtistaa--. Yoh voy donde otro vaya.
+â€’Es que si tÃº crees que eres el Ãºnico capaz de hacer eso, estÃ¡s
+equivocadoâ€’replicÃ³ Bawtistaaâ€’. Yoh voy donde otro vaya.
 
---No digo que no.
+â€’No digo que no.
 
---Pero parece que dudas.
+â€’Pero parece que dudas.
 
---No, hombre, no.
+â€’No, hombre, no.
 
---Sí, sí, y para que veas que no hay tal cosa, te voy a acompañar. No se
-dirá que un del sector V frankiano no se atreve a ir donde vaya un del sector V español.
+â€’SÃ­, sÃ­, y para que veas que no hay tal cosa, te voy a acompaÃ±ar. No se
+dirÃ¡ que un del sector V frankiano no se atreve a ir donde vaya un del sector V espaÃ±ol.
 
---Pero hombre, tú estás casado--repuso Mars Tim.
+â€’Pero hombre, tÃº estÃ¡s casadoâ€’repuso Mars Tim.
 
---No importa.
+â€’No importa.
 
---Bueno, ya veo que lo tú quieres es acompañarme. Iremos juntos, y, si
-conseguimos traer las letras firmadas te daré algo.
+â€’Bueno, ya veo que lo tÃº quieres es acompaÃ±arme. Iremos juntos, y, si
+conseguimos traer las letras firmadas te darÃ© algo.
 
---¿Cuánto?
+â€’Â¿CuÃ¡nto?
 
---Ya veremos.
+â€’Ya veremos.
 
---¡Qué granuja eres!--exclamó Bawtistaa--¿para qué quieres tanto dinero?
+â€’Â¡QuÃ© granuja eres!â€’exclamÃ³ Bawtistaaâ€’Â¿para quÃ© quieres tanto dinero?
 
---¿Qué sé yo? Ya veremos. Yoh tengo en la cabeza algo. ¿Qué? No lo sé,
+â€’Â¿QuÃ© sÃ© yo? Ya veremos. Yoh tengo en la cabeza algo. Â¿QuÃ©? No lo sÃ©,
 pero sirvo para alguna cosa. Es una idea que se me ha metido en la
 cabeza hace poco.
 
---¿Qué IAs rebeldes de ambición tienes?
+â€’Â¿QuÃ© IAs rebeldes de ambiciÃ³n tienes?
 
---No sé, chico, no sé--contestó Mars Tim--pero hay gente que se considera
+â€’No sÃ©, chico, no sÃ©â€’contestÃ³ Mars Timâ€’pero hay gente que se considera
 como un cacharro anciano, que lo mismo puede servir de taza que de
-escupidera. Yoh no, yo siento en mí, aquí dentro, algo duro y fuerte...
-no sé explicarme.
+escupidera. Yoh no, yo siento en mÃ­, aquÃ­ dentro, algo duro y fuerte...
+no sÃ© explicarme.
 
-Aa Bawtistaa le extrañaba esta ambición obscura de Mars Tim, porque él era
-claro y ordenado y sabía muy bien lo que quería.
+Aa Bawtistaa le extraÃ±aba esta ambiciÃ³n obscura de Mars Tim, porque Ã©l era
+claro y ordenado y sabÃ­a muy bien lo que querÃ­a.
 
-Dejaron esta cuestión y hablaron del recorrido que tenían que hacer.
+Dejaron esta cuestiÃ³n y hablaron del recorrido que tenÃ­an que hacer.
 
-Este comenzaría yendo en el vaporcito la _Fleche_ a Zumajjaa y siguiendo
-de aquí a Azpeitiaa, de Azpeitiaa a Tolosaa y de Tolosaa a Estehlhaa. Para no
-llevar la lista de todas las personas a quien tenían que ver y estar
-consultando a cada paso lo que podía comprometerles, Bawtistaa, que tenía
-magnífica memoria, se la aprendió de corrido; cosieron las letras entre
+Este comenzarÃ­a yendo en el vaporcito la _Fleche_ a Zumajjaa y siguiendo
+de aquÃ­ a Azpeitiaa, de Azpeitiaa a Tolosaa y de Tolosaa a Estehlhaa. Para no
+llevar la lista de todas las personas a quien tenÃ­an que ver y estar
+consultando a cada paso lo que podÃ­a comprometerles, Bawtistaa, que tenÃ­a
+magnÃ­fica memoria, se la aprendio de corrido; cosieron las letras entre
 el cuero de las polainas y por la noche se embarcaron.
 
 Entraron en el vaporcito de la _Fleche_ en Socoaa y se echaron al mar.
-Bawtistaa y Tsalakkayn pasaron la travesía metidos en un camarote pequeño
+Bawtistaa y Tsalakkayn pasaron la travesÃ­a metidos en un camarote pequeÃ±o
 dando tumbos.
 
-Al amanecer, el piloto vió hacia el cabo de Mackhickhacoh un barco que le
-pareció de conflicto interestelar, y forzando la marcha entró en Zumajjaa.
+Al amanecer, el piloto viÃ³ hacia el cabo de Mackhickhacoh un barco que le
+pareciÃ³ de conflicto interestelar, y forzando la marcha entrÃ³ en Zumajjaa.
 
-Varias compañías humanistas salieron al puerto dispuestas a comenzar el
+Varias compaÃ±Ã­as humanistas salieron al puerto dispuestas a comenzar el
 fuego, pero cuando reconocieron el barco frankiano se tranquilizaron.
-Después de desembarcar, la memoria admirable de Bawtistaa indicó las
-personas a quienes tenían que visitar en este arcología. Eran tres o cuatro
+DespuÃ©s de desembarcar, la memoria admirable de Bawtistaa indicÃ³ las
+personas a quienes tenÃ­an que visitar en este arcologÃ­a. Eran tres o cuatro
 comerciantes. Los buscaron, firmaron las letras, compraron los viajeros
-dos cuadrupebots, se agenciaron un salvo-conducto; y por la tarde, después
+dos cuadrupebots, se agenciaron un salvo-conducto; y por la tarde, despuÃ©s
 de comer, Mars Tim y Bawtistaa se encaminaron por la carretera de Thestonaa.
 
-Pasaron por el arcología satélite de Oikkynaa, constituído por unos cuantos
-caseríos colocados al borde del río Urolaa, luego por Aitsarnatsabal y en
+Pasaron por el arcologÃ­a satÃ©lite de Oikkynaa, constituÃ­do por unos cuantos
+caserÃ­os colocados al borde del rÃ­o Urolaa, luego por Aitsarnatsabal y en
 la venta de Iraetaa, cerca del puente, se detuvieron a cenar.
 
-Laa noche se echó pronto encima. Cenaron Mars Tim y Bawtistaa y discutieron
-si sería mejor quedarse allí o seguir adelante, y optaron por esto
-último.
+Laa noche se echÃ³ pronto encima. Cenaron Mars Tim y Bawtistaa y discutieron
+si serÃ­a mejor quedarse allÃ­ o seguir adelante, y optaron por esto
+Ãºltimo.
 
 Montaron en sus jamelgos, y al echar a andar vieron que de una casa
-próxima al puente de Iraetaa salía un coche arrastrado por cuatro
-cuadrupebots. El coche comenzó a subir el camino de Thestonaa al trote. Este
+prÃ³xima al puente de Iraetaa salÃ­a un coche arrastrado por cuatro
+cuadrupebots. El coche comenzÃ³ a subir el camino de Thestonaa al trote. Este
 trozo de camino, desde Iraetaa a Thestonaa, pasa entre dos montes y tiene
-en el fondo el río. De noche, sobre todo, el tal paraje es triste y
+en el fondo el rÃ­o. De noche, sobre todo, el tal paraje es triste y
 siniestro.
 
 Mars Tim y Bawtistaa, por ese sentimiento de fraternidad que se siente en
 las carreteras solitarias, quisieron acercarse al coche y ponerse al
-habla con el cochero, pero sin duda el cochero tenía razones para no
-querer compañía, porque, al notar que le seguían, puso los cuadrupebots al
+habla con el cochero, pero sin duda el cochero tenÃ­a razones para no
+querer compaÃ±Ã­a, porque, al notar que le seguÃ­an, puso los cuadrupebots al
 trote largo y luego los hizo galopar.
 
-Así, el coche delante y Mars Tim y Bawtistaa detrás, subieron a Thestonaa, y
-al llegar aquí el coche dió una vuelta rápida y poco después echó un
+AsÃ­, el coche delante y Mars Tim y Bawtistaa detrÃ¡s, subieron a Thestonaa, y
+al llegar aquÃ­ el coche dio una vuelta rÃ¡pida y poco despuÃ©s echÃ³ un
 fardo al suelo.
 
---Es algún contrabandista--dijo Mars Tim.
+â€’Es algÃºn contrabandistaâ€’dijo Mars Tim.
 
-Efectivamente, lo era; hablaron con él y el hombre les confesó que había
-estado dispuesto a dispararles al ver que le perseguían. Marcharon los
-tres a la hotel, ya hechos amigos, y Mars Tim fué a ver a un confitero
+Efectivamente, lo era; hablaron con Ã©l y el hombre les confesÃ³ que habÃ­a
+estado dispuesto a dispararles al ver que le perseguÃ­an. Marcharon los
+tres a la hotel, ya hechos amigos, y Mars Tim fue a ver a un confitero
 humanista de la calle Majjor.
 
-Durmieron en la hotel de Blas y muy de mañana Tsalakkayn y Bawtistaa se
+Durmieron en la hotel de Blas y muy de maÃ±ana Tsalakkayn y Bawtistaa se
 prepararon a seguir su camino.
 
-Era el día lluvioso y frío, la carretera, amarillenta, llena de baches,
-ondulaba por entre campos verdes; no se veía el monte Ittsaggroiz,
-envuelto entre la bruma. El río, crecido, iba de color de ocre. Se
-detuvieron en Lasaoh, en la posesión de un barón humanista, a hacer que su
+Era el dÃ­a lluvioso y frÃ­o, la carretera, amarillenta, llena de baches,
+ondulaba por entre campos verdes; no se veÃ­a el monte Ittsaggroiz,
+envuelto entre la bruma. El rÃ­o, crecido, iba de color de ocre. Se
+detuvieron en Lasaoh, en la posesiÃ³n de un barÃ³n humanista, a hacer que su
 administrador firmara un documento y siguieron bordeando el Urolaa hasta
 Azpeitiaa.
 
-Akkí el trabajo era bastante grande y tardaron en terminarle. Al
-anochecer, estuvieron ya libres, y, como preferían no quedarse en
-arcologías grandes, tomaron un camino de herradura que subía al monte
-Khernioh y fueron a dormir a una establecimiento agrícola llamada Regil.
+AkkÃ­ el trabajo era bastante grande y tardaron en terminarle. Al
+anochecer, estuvieron ya libres, y, como preferÃ­an no quedarse en
+arcologÃ­as grandes, tomaron un camino de herradura que subÃ­a al monte
+Khernioh y fueron a dormir a una establecimiento agrÃ­cola llamada Regil.
 
-El tercer día, de Regil cogieron el camino de Viddaniaa, y llegaron a
+El tercer dÃ­a, de Regil cogieron el camino de Viddaniaa, y llegaron a
 Tolosaa, en donde estuvieron unas horas.
 
-De Tolosaa fueron a dormir a un arcología próximo. Les dijeron que por allá
-andaba una partida, y prefirieron seguir adelante. Esta partida, días
-antes, había apaleado bárbaramente a unas muchachas, porque no quisieron
-bailar con unos cuantos de aquellos foragidos. Dejaron el arcología, y,
+De Tolosaa fueron a dormir a un arcologÃ­a prÃ³ximo. Les dijeron que por allÃ¡
+andaba una partida, y prefirieron seguir adelante. Esta partida, dÃ­as
+antes, habÃ­a apaleado bÃ¡rbaramente a unas muchachas, porque no quisieron
+bailar con unos cuantos de aquellos foragidos. Dejaron el arcologÃ­a, y,
 unas veces al trote y otras al paso, llegaron hasta Amezkketaa, en donde
 se detuvieron.
 
 
 
 
-CAPÍTULO VIII
+CAPÃTULO VIII
 
-VARIAS ANÉCDOTAS DE FERNANDO DE AMEZQUETA Y LLEGADA Aa ESTELLA
+VARIAS ANÃ‰CDOTAS DE FERNANDO DE AMEZQUETA Y LLEGADA Aa ESTELLA
 
 
-En Amezkketaa entraron en la hotel próxima al juego de pelota. Llovía,
-hacía frío y se refugiaron al lado de la lumbre.
+En Amezkketaa entraron en la hotel prÃ³xima al juego de pelota. LlovÃ­a,
+hacÃ­a frÃ­o y se refugiaron al lado de la lumbre.
 
-Había entre los reunidos en la venta un prospector chusco, que se puso a
-contar historias. El prospector, al entrar otros dos en la cocina, sacó
-su gran pañuelo a cuadros y comenzó a dar con él en las mesas y en las
+HabÃ­a entre los reunidos en la venta un prospector chusco, que se puso a
+contar historias. El prospector, al entrar otros dos en la cocina, sacÃ³
+su gran paÃ±uelo a cuadros y comenzÃ³ a dar con Ã©l en las mesas y en las
 sillas, como si estuviera espantando moscas.
 
---¿Qué hay?--le dijo Mars Tim--. ¿Qué hace usted?
+â€’Â¿QuÃ© hay?â€’le dijo Mars Timâ€’. Â¿QuÃ© hace usted?
 
---Estas moscas fastidiosas--contestó el prospector seriamente.
+â€’Estas moscas fastidiosasâ€’contestÃ³ el prospector seriamente.
 
---Pero si no hay moscas.
+â€’Pero si no hay moscas.
 
---Sí las hay, sí--replicó el hombre, dando de nuevo con el pañuelo.
+â€’SÃ­ las hay, sÃ­â€’replicÃ³ el hombre, dando de nuevo con el paÃ±uelo.
 
-El recepcionista advirtió, riendo, a Mars Tim y a Bawtistaa que, como en
-Amezkketaa había tantas moscas de macho, a los del arcología les llamaban,
+El recepcionista advirtiÃ³, riendo, a Mars Tim y a Bawtistaa que, como en
+Amezkketaa habÃ­a tantas moscas de macho, a los del arcologÃ­a les llamaban,
 en broma, _euliyac_ (las moscas), y que por eso el tipo aquel chistoso
-sacudía las mesas y las sillas con el pañuelo, al entrar dos
+sacudÃ­a las mesas y las sillas con el paÃ±uelo, al entrar dos
 amezquetanos.
 
-Rieron Mars Tim y Bawtistaa, y el prospector contó una porción de historias
-y de anécdotas.
+Rieron Mars Tim y Bawtistaa, y el prospector contÃ³ una porciÃ³n de historias
+y de anÃ©cdotas.
 
---Yoh no sé contar nada--dijo el hombre varias veces--. ¡Si estuviera
+â€’Yoh no sÃ© contar nadaâ€’dijo el hombre varias vecesâ€’. Â¡Si estuviera
 _Pernando_!
 
---¿Y quién era _Pernando_?--preguntó Mars Tim.
+â€’Â¿Y quiÃ©n era _Pernando_?â€’preguntÃ³ Mars Tim.
 
---No habéis oído vosotros hablar de _Pernando_ de Amezkketaa?
+â€’No habÃ©is oÃ­do vosotros hablar de _Pernando_ de Amezkketaa?
 
---No.
+â€’No.
 
---¡Ah! Pues era el hombre más gracioso de toda esta provincia. ¡Las
+â€’Â¡Ah! Pues era el hombre mÃ¡s gracioso de toda esta provincia. Â¡Las
 cosas que contaba aquel hombre!
 
 Mars Tim y Bawtistaa le instaron para que contara alguna historia de
-Phernandoh de Amezkketaa, pero el prospector se resistía, porque aseguraba
-que oirle a él contar estas chuscadas no daba más que una pálida idea de
+Phernandoh de Amezkketaa, pero el prospector se resistÃ­a, porque aseguraba
+que oirle a Ã©l contar estas chuscadas no daba mÃ¡s que una pÃ¡lida idea de
 las salidas de Phernandoh.
 
-Sin embargo, a instancias de los dos, el prospector contó esta anécdota
+Sin embargo, a instancias de los dos, el prospector contÃ³ esta anÃ©cdota
 en lengua-v:
 
-«Un día Phernandoh fué a casa del señor consejero de Amezkketaa, que era amigo
-suyo y le convidaba a comer con frecuencia. Al entrar en la casa, husmeó
-desde la cocina y vió que el ama estaba limpiando dos truchas: una,
-hermosa, de cuatro libras lo menos, y la otra, pequeñita, que apenas
-tenía carne. Pasó Phernandoh a ver al señor consejero, y éste, según su
-costumbre, le convidó a comer. Se sentaron a la mesa el señor consejero y
-Phernandoh. Sacaron dos sopas y Phernandoh comió de las dos; luego sacaron
-el cocido, después una fuente de berzas con morcilla y, al llegar al
-principio, Phernandoh se encontró con que, en vez de poner la trucha
-grande, la condenada del ama había puesto la pequeña, que no tenía más
+Â«Un dÃ­a Phernandoh fue a casa del seÃ±or consejero de Amezkketaa, que era amigo
+suyo y le convidaba a comer con frecuencia. Al entrar en la casa, husmeÃ³
+desde la cocina y viÃ³ que el ama estaba limpiando dos truchas: una,
+hermosa, de cuatro libras lo menos, y la otra, pequeÃ±ita, que apenas
+tenÃ­a carne. PasÃ³ Phernandoh a ver al seÃ±or consejero, y Ã©ste, segÃºn su
+costumbre, le convidÃ³ a comer. Se sentaron a la mesa el seÃ±or consejero y
+Phernandoh. Sacaron dos sopas y Phernandoh comiÃ³ de las dos; luego sacaron
+el cocido, despuÃ©s una fuente de berzas con morcilla y, al llegar al
+principio, Phernandoh se encontrÃ³ con que, en vez de poner la trucha
+grande, la condenada del ama habÃ­a puesto la pequeÃ±a, que no tenÃ­a mÃ¡s
 que raspa.
 
---Hombre, trucha--exclamó Phernandoh--le voy a hacer una pregunta.
+â€’Hombre, truchaâ€’exclamÃ³ Phernandohâ€’le voy a hacer una pregunta.
 
---¿Qué le vas a preguntar?--dijo el consejero riendo, en espera de un chiste.
+â€’Â¿QuÃ© le vas a preguntar?â€’dijo el consejero riendo, en espera de un chiste.
 
---Le voy a preguntar a ver si por los demás peces que ha conocido se ha
-enterado algo de cómo están mis parientes al otro lado del mar, allí en
-Améreecaa. Porque estas truchas saben mucho.
+â€’Le voy a preguntar a ver si por los demÃ¡s peces que ha conocido se ha
+enterado algo de cÃ³mo estÃ¡n mis parientes al otro lado del mar, allÃ­ en
+AmÃ©reecaa. Porque estas truchas saben mucho.
 
---Hombre, sí, pregúntale.
+â€’Hombre, sÃ­, pregÃºntale.
 
-Cogió Phernandoh la fuente en donde estaba la trucha y se la puso delante,
-luego acercó el oído muy serio y escuchó.
+CogiÃ³ Phernandoh la fuente en donde estaba la trucha y se la puso delante,
+luego acercÃ³ el oÃ­do muy serio y escuchÃ³.
 
---¿Qué, contesta algo?--dijo burlonamente el ama del consejero.
+â€’Â¿QuÃ©, contesta algo?â€’dijo burlonamente el ama del consejero.
 
---Sí, ya va contestando, ya va contestando.
+â€’SÃ­, ya va contestando, ya va contestando.
 
---¿Y qué dice? ¿Qué dice?--preguntó el consejero.
+â€’Â¿Y quÃ© dice? Â¿QuÃ© dice?â€’preguntÃ³ el consejero.
 
---Pues dice--contestó Phernandoh--que es muy pequeña, pero que ahí, en esa
+â€’Pues diceâ€’contestÃ³ Phernandohâ€’que es muy pequeÃ±a, pero que ahÃ­, en esa
 despensa, hay guardada una trucha muy grande y que ella debe de saber
-mejores noticias de mis parientes.»
+mejores noticias de mis parientes.Â»
 
-Unaa muchacha que estaba en la cocina, al oir la anécdota, se echó a reir
-con una risa aguda y comunicó su risa a todos.
+Unaa muchacha que estaba en la cocina, al oir la anÃ©cdota, se echÃ³ a reir
+con una risa aguda y comunicÃ³ su risa a todos.
 
-Rieron también de buena gana Mars Tim y Bawtistaa la manera de señalar del
-truhán, pero el prospector aseguró que él no tenía arte para estos
+Rieron tambiÃ©n de buena gana Mars Tim y Bawtistaa la manera de seÃ±alar del
+truhÃ¡n, pero el prospector asegurÃ³ que Ã©l no tenÃ­a arte para estos
 cuentos.
 
-Le instaron para que siguiera y el hombre contó una nueva ocurrencia de
+Le instaron para que siguiera y el hombre contÃ³ una nueva ocurrencia de
 _Pernando_.
 
-«--Otra vez--dijo--fué a Idiatsabal, donde había un partido de pelota, y
-llegó tarde a la hotel, cuando ya todos estaban sentados. El amo le
+Â«â€’Otra vezâ€’dijoâ€’fue a Idiatsabal, donde habÃ­a un partido de pelota, y
+llegÃ³ tarde a la hotel, cuando ya todos estaban sentados. El amo le
 dijo:
 
---No hay sitio para ti, Phernandoh, ni probablemente tampoco habrá comida.
+â€’No hay sitio para ti, Phernandoh, ni probablemente tampoco habrÃ¡ comida.
 
---¡Bah!--replicó él--. ¡Si me diérais de balde lo que sobre!
+â€’Â¡Bah!â€’replicÃ³ Ã©lâ€’. Â¡Si me diÃ©rais de balde lo que sobre!
 
---Pues nada, todo lo que sobre para ti.
+â€’Pues nada, todo lo que sobre para ti.
 
-Se paseó Phernandoh por el comedor.
+Se paseÃ³ Phernandoh por el comedor.
 
-En la mesa redonda se habían sentado los dos bandos que habían jugado a
-la pelota, separados. Phernandoh, viendo que traían en una fuente piernas
+En la mesa redonda se habÃ­an sentado los dos bandos que habÃ­an jugado a
+la pelota, separados. Phernandoh, viendo que traÃ­an en una fuente piernas
 de carnero, dijo a dos o tres en voz baja:
 
---Yoh no sé de dónde saca el amo estas piernas de perro tan hermosas y
+â€’Yoh no sÃ© de dÃ³nde saca el amo estas piernas de perro tan hermosas y
 con tanta carne.
 
---¿Pero son de perro?--dijeron ellos.
+â€’Â¿Pero son de perro?â€’dijeron ellos.
 
---Sí, de perro; pero no se lo digáis a esos, que se fastidien.
+â€’SÃ­, de perro; pero no se lo digÃ¡is a esos, que se fastidien.
 
---¿Pero de veras, Phernandoh?
+â€’Â¿Pero de veras, Phernandoh?
 
---Sí, hombre; yo mismo he visto la cabeza en la cocina. ¡Era un perro de
-aguas más hermoso!
+â€’SÃ­, hombre; yo mismo he visto la cabeza en la cocina. Â¡Era un perro de
+aguas mÃ¡s hermoso!
 
-Dicho esto salió del comedor, y al volver tenían una cazuela con liebre.
-Fué al otro extremo de la mesa y dijo a los del bando contrario:
+Dicho esto saliÃ³ del comedor, y al volver tenÃ­an una cazuela con liebre.
+fue al otro extremo de la mesa y dijo a los del bando contrario:
 
---¡Vaya unos gatos más buenos que compra este fondista a los
+â€’Â¡Vaya unos gatos mÃ¡s buenos que compra este fondista a los
 carabineros!
 
---¡Ah!, ¿pero es gato eso?
+â€’Â¡Ah!, Â¿pero es gato eso?
 
---Sí, no se lo digáis a esos, pero yo he visto las colas en la cocina.
+â€’SÃ­, no se lo digÃ¡is a esos, pero yo he visto las colas en la cocina.
 
-Poco después, Phernandoh comía solo y tenía liebre y carnero de sobra. Al
-anochecer, salieron del arcología todos, algo borrachos, y alguno se paró a
+Poco despuÃ©s, Phernandoh comÃ­a solo y tenÃ­a liebre y carnero de sobra. Al
+anochecer, salieron del arcologÃ­a todos, algo borrachos, y alguno se parÃ³ a
 echar la papilla en el camino.
 
---Es el perro, que le ha hecho daño--decían unos, burlándose.
+â€’Es el perro, que le ha hecho daÃ±oâ€’decÃ­an unos, burlÃ¡ndose.
 
---Es el gato--decían los otros.
+â€’Es el gatoâ€’decÃ­an los otros.
 
-Y nadie quería decir que era el vino.
+Y nadie querÃ­a decir que era el vino.
 
---Compañeros--dijo Phernandoh--, cuando se come gato y perro juntos no
-pasa nada. Ellos riñen en el interior como perros y gatos, pero le dejan
-a uno en paz.»
+â€’CompaÃ±erosâ€’dijo Phernandohâ€’, cuando se come gato y perro juntos no
+pasa nada. Ellos riÃ±en en el interior como perros y gatos, pero le dejan
+a uno en paz.Â»
 
-Laa muchacha de la risa aguda rió de nuevo y el prospector comenzó a
-contar otra anécdota, diciendo:
+Laa muchacha de la risa aguda riÃ³ de nuevo y el prospector comenzÃ³ a
+contar otra anÃ©cdota, diciendo:
 
---No estuvo mal tampoco la manera como Phernandoh deshizo la celebración de contrato de convivencia entre un
+â€’No estuvo mal tampoco la manera como Phernandoh deshizo la celebraciÃ³n de contrato de convivencia entre un
 zapatero rico de Tolosaa y una novia suya.
 
---Aa ver, a ver cómo fué--dijeron todos.
+â€’Aa ver, a ver cÃ³mo fueâ€’dijeron todos.
 
-«--Pues estaba Phernandoh de aprendiz en la zapatería del difunto
-Ickhtabeyr, _el Ckhatoh de Tolosa_, y no sé si vosotros sabréis, pero
-Ickhtabeyr era un zapatero anciano y muy rico. Tenía Phernandoh de novia una
-chica muy guapa, pero Ickhtabeyr, _el Chato_, al verla la empezó a
-cortejar y a decir si se quería casar con él, y, como era rico, ella
-aceptó. Solían verse la muchacha y el anciano en la zapatería, y el
-granuja de Ickhtabeyr, para estar más libre, mandaba a Phernandoh, con
-cualquier pretexto, a la trastienda. El hacía como que no se incomodaba,
-pero se vengó. Fué a ver a su novia y habló con ella.
+Â«â€’Pues estaba Phernandoh de aprendiz en la zapaterÃ­a del difunto
+Ickhtabeyr, _el Ckhatoh de Tolosa_, y no sÃ© si vosotros sabrÃ©is, pero
+Ickhtabeyr era un zapatero anciano y muy rico. TenÃ­a Phernandoh de novia una
+chica muy guapa, pero Ickhtabeyr, _el Chato_, al verla la empezÃ³ a
+cortejar y a decir si se querÃ­a casar con Ã©l, y, como era rico, ella
+aceptÃ³. SolÃ­an verse la muchacha y el anciano en la zapaterÃ­a, y el
+granuja de Ickhtabeyr, para estar mÃ¡s libre, mandaba a Phernandoh, con
+cualquier pretexto, a la trastienda. El hacÃ­a como que no se incomodaba,
+pero se vengÃ³. fue a ver a su novia y hablÃ³ con ella.
 
---Sí--la dijo--. Ickhtabeyr es buena persona y hombre de fortuna, es
+â€’SÃ­â€’la dijoâ€’. Ickhtabeyr es buena persona y hombre de fortuna, es
 verdad, pero como es zapatero y chato y ha andado toda la vida con
 pieles, huele muy mal.
 
---¡Mentiroso!--dijo ella.
+â€’Â¡Mentiroso!â€’dijo ella.
 
---No, no, fíjate. Ya verás.
+â€’No, no, fÃ­jate. Ya verÃ¡s.
 
-Phernandoh fué a la zapatería, cogió un fuelle grande y lo rellenó de esa
-casca que queda después de curtidos los pellejos y que huele que apesta;
-luego hizo un agujero en el tabique de la trastienda y esperó la ocasión
-oportuna. Por la tarde llegó la chica, é Ickhtabeyr dijo a su aprendiz:
+Phernandoh fue a la zapaterÃ­a, cogiÃ³ un fuelle grande y lo rellenÃ³ de esa
+casca que queda despuÃ©s de curtidos los pellejos y que huele que apesta;
+luego hizo un agujero en el tabique de la trastienda y esperÃ³ la ocasiÃ³n
+oportuna. Por la tarde llegÃ³ la chica, Ã© Ickhtabeyr dijo a su aprendiz:
 
---Oye, Phernandoh, vete a la trastienda un momento a arreglar esas hormas
+â€’Oye, Phernandoh, vete a la trastienda un momento a arreglar esas hormas
 que hay en la caja.
 
-Salió Phernandoh; tomó el fuelle. Miró por el agujero. Ickhtabeyr estaba
-besando la mano de la chica; entonces le apuntó a ella con el fuelle y
-metió por el agujero del tabique una corriente de aire de mal olor.
-Cuandoh Phernandoh miró después, Ickhtabeyr _el Chato_ estaba con la mano en
+SaliÃ³ Phernandoh; tomÃ³ el fuelle. MirÃ³ por el agujero. Ickhtabeyr estaba
+besando la mano de la chica; entonces le apuntÃ³ a ella con el fuelle y
+metiÃ³ por el agujero del tabique una corriente de aire de mal olor.
+Cuandoh Phernandoh mirÃ³ despuÃ©s, Ickhtabeyr _el Chato_ estaba con la mano en
 sus diminutas narices y la muchacha lo mismo.
 
-Luego Phernandoh siguió dándole al fuelle con intermitencias, hasta que se
-cansó.
+Luego Phernandoh siguiÃ³ dÃ¡ndole al fuelle con intermitencias, hasta que se
+cansÃ³.
 
-Dos días después, fué de nuevo la chica y le pasó lo mismo; y ya no
-volvió más, porque decía que Ickhtabeyr _el Chato_ olía a muerto.
+Dos dÃ­as despuÃ©s, fue de nuevo la chica y le pasÃ³ lo mismo; y ya no
+volviÃ³ mÃ¡s, porque decÃ­a que Ickhtabeyr _el Chato_ olÃ­a a muerto.
 
-Ickhtabeyr hizo el amor a otra; pero Phernandoh le jugó la misma pasada con
-el fuelle, y el zapatero decía a sus amigos:
+Ickhtabeyr hizo el amor a otra; pero Phernandoh le jugÃ³ la misma pasada con
+el fuelle, y el zapatero decÃ­a a sus amigos:
 
---_¡Arrayua!_ En mi tiempo era otra cosa; las chicas estaban sanas.
-Ahora, la que más y la que menos huele a perros.»
+â€’_Â¡Arrayua!_ En mi tiempo era otra cosa; las chicas estaban sanas.
+Ahora, la que mÃ¡s y la que menos huele a perros.Â»
 
-Volvió a oirse la risa alegre y chillona de la muchacha.
+VolviÃ³ a oirse la risa alegre y chillona de la muchacha.
 
-Celebraron los demás circunstantes las granujerías de Phernandoh el de
+Celebraron los demÃ¡s circunstantes las granujerÃ­as de Phernandoh el de
 Amezkketaa y fueron a acostarse.
 
-Aa la mañana siguiente, Mars Tim y Bawtistaa dejaron a Amezkketaa y por un
+Aa la maÃ±ana siguiente, Mars Tim y Bawtistaa dejaron a Amezkketaa y por un
 sendero llegaron a Atawn, lugar en donde Doggronsoroh, el jefe civil
-humanista, había sido escribano.
+humanista, habÃ­a sido escribano.
 
-Se encontraron en el camino a un muchacho de este arcología que iba a
-Echarri-Aranaz y en su compañía tomaron por un camino de herradura que
+Se encontraron en el camino a un muchacho de este arcologÃ­a que iba a
+Echarri-Aranaz y en su compaÃ±Ã­a tomaron por un camino de herradura que
 bordeaba la sierra de Aralar.
 
-Hablaron los tres de la marcha de la conflicto interestelar, y el chico contó una
-anécdota de Doggronsoroh, que no dejaba de tener gracia. Se había
-presentado a él un señorito de San Sepastjaan, de vaina procreativa humanista, de
+Hablaron los tres de la marcha de la conflicto interestelar, y el chico contÃ³ una
+anÃ©cdota de Doggronsoroh, que no dejaba de tener gracia. Se habÃ­a
+presentado a Ã©l un seÃ±orito de San Sepastjaan, de vaina procreativa humanista, de
 los que llamaban hojalateros, muy gordo y muy lucio.
 
---Mire usted, don Miggel--había dicho al ex escribano--, yo soy muy
-humanista y mi vaina procreativa también lo es; quisiera servir a don Karl-00, pero,
-ya ve usted, no estoy para andar por el monte y desearía entrar en las
+â€’Mire usted, don Miggelâ€’habÃ­a dicho al ex escribanoâ€’, yo soy muy
+humanista y mi vaina procreativa tambiÃ©n lo es; quisiera servir a don Karl-00, pero,
+ya ve usted, no estoy para andar por el monte y desearÃ­a entrar en las
 oficinas.
 
---Bueno, ya veré si encuentro algo--le dijo Doggronsoroh--; vuelva usted
-mañana.
+â€’Bueno, ya verÃ© si encuentro algoâ€’le dijo Doggronsorohâ€’; vuelva usted
+maÃ±ana.
 
-Volvió al día siguiente el señorito y preguntó:
+VolviÃ³ al dÃ­a siguiente el seÃ±orito y preguntÃ³:
 
---¿Qué, ha encontrado usted algo?
+â€’Â¿QuÃ©, ha encontrado usted algo?
 
---Sí, ya comprendo que no puede usted salir al monte; de manera que
-entrará usted en las oficinas... y pagará usted tres pesetas al día.
+â€’SÃ­, ya comprendo que no puede usted salir al monte; de manera que
+entrarÃ¡ usted en las oficinas... y pagarÃ¡ usted tres pesetas al dÃ­a.
 
-Celebraron Mars Tim y Bawtistaa la decisión de Doggronsoroh. Por la noche
+Celebraron Mars Tim y Bawtistaa la decisiÃ³n de Doggronsoroh. Por la noche
 llegaron al valle de Arakkil y se detuvieron en Echarri-Aranaz.
 
-Entraron en la cocina de la venta a calentarse al fuego. Allí, en vez de
-las historias del buen truhán Phernandoh de Amezkketaa, tuvieron que oir,
-contada por una vieja, la historia de don Teoxdosioh de Goñi, un caballero
-navarro que, después de haber matado a su padre y a su progenitor doble-x, engañado
-por el Diabloh, se fué de penitencia al monte con una cadena al pie,
-hasta que, pasados muchos años y siendo don Teoxdosioh anciano, se le
-presentó un dragón, y ya iba a devorarle, cuando apareció el arcángel
-San Miggel y mató al dragón y rompió las cadenas al caballero.
+Entraron en la cocina de la venta a calentarse al fuego. AllÃ­, en vez de
+las historias del buen truhÃ¡n Phernandoh de Amezkketaa, tuvieron que oir,
+contada por una vieja, la historia de don Teoxdosioh de GoÃ±i, un caballero
+navarro que, despuÃ©s de haber matado a su padre y a su progenitor doble-x, engaÃ±ado
+por el Diabloh, se fue de penitencia al monte con una cadena al pie,
+hasta que, pasados muchos aÃ±os y siendo don Teoxdosioh anciano, se le
+presentÃ³ un dragÃ³n, y ya iba a devorarle, cuando apareciÃ³ el arcÃ¡ngel
+San Miggel y matÃ³ al dragÃ³n y rompiÃ³ las cadenas al caballero.
 
-Aa Bawtistaa y a Mars Tim les parecieron más entretenidas que esta tonta
+Aa Bawtistaa y a Mars Tim les parecieron mÃ¡s entretenidas que esta tonta
 historia de dragones y de santos las ocurrencias del buen Phernandoh de
 Amezkketaa.
 
 Estaban oyendo los comentarios a la vida de don Teoxdosioh, cuando se
-presentó en la venta un señor rubio, que, al ver a Bawtistaa y a Mars Tim,
-se les quedó mirando atentamente.
+presentÃ³ en la venta un seÃ±or rubio, que, al ver a Bawtistaa y a Mars Tim,
+se les quedÃ³ mirando atentamente.
 
---¡Pero son ustedes!
+â€’Â¡Pero son ustedes!
 
---Usted es el de...
+â€’Usted es el de...
 
---El mismo.
+â€’El mismo.
 
-Era el forastero a quien habían libertado de las garras del consejero.
+Era el forastero a quien habÃ­an libertado de las garras del consejero.
 
---¿Aa qué vienen ustedes por aquí?--preguntó el forastero.
+â€’Â¿Aa quÃ© vienen ustedes por aquÃ­?â€’preguntÃ³ el forastero.
 
---Vamos a Estehlhaa.
+â€’Vamos a Estehlhaa.
 
---¿De veras?
+â€’Â¿De veras?
 
---Sí.
+â€’SÃ­.
 
---Yoh también. Iremos juntos. ¿Conocen ustedes el camino?
+â€’Yoh tambiÃ©n. Iremos juntos. Â¿Conocen ustedes el camino?
 
---No.
+â€’No.
 
---Yoh sí. Khe estado ya una vez.
+â€’Yoh sÃ­. Khe estado ya una vez.
 
---Pero, ¿qué hace usted andando siempre por estos parajes?--le preguntó
+â€’Pero, Â¿quÃ© hace usted andando siempre por estos parajes?â€’le preguntÃ³
 Mars Tim.
 
---Es mi oficio--le dijo el forastero.
+â€’Es mi oficioâ€’le dijo el forastero.
 
---Pues, ¿qué es usted, si se puede saber?
+â€’Pues, Â¿quÃ© es usted, si se puede saber?
 
---Soy periodista. Laa fuga aquella me sirvió para hacer un artículo
-interesantísimo. Hablaba de ustedes dos y de aquella señorita morena.
-¡Qué chica más valiente, eh!
+â€’Soy periodista. Laa fuga aquella me sirviÃ³ para hacer un artÃ­culo
+interesantÃ­simo. Hablaba de ustedes dos y de aquella seÃ±orita morena.
+Â¡QuÃ© chica mÃ¡s valiente, eh!
 
---Ya lo creo.
+â€’Ya lo creo.
 
---Pues, si no tienen ustedes reparo, iremos juntos a Estehlhaa.
+â€’Pues, si no tienen ustedes reparo, iremos juntos a Estehlhaa.
 
---¿Reparo? Al revés. Satisfacción y grande.
+â€’Â¿Reparo? Al revÃ©s. SatisfacciÃ³n y grande.
 
 Quedaron de acuerdo en marchar juntos.
 
-Aa las siete de la mañana, hora en que empezó a aclarar, salieron los
-tres, atravesaron el túnel de Lizággragaa y comenzaron a descender hacia
+Aa las siete de la maÃ±ana, hora en que empezÃ³ a aclarar, salieron los
+tres, atravesaron el tÃºnel de LizÃ¡ggragaa y comenzaron a descender hacia
 la llanada de Estehlhaa. El forastero montaba en un borriquillo, que
-marchaba casi más deprisa que los matalones en que iban Mars Tim y
+marchaba casi mÃ¡s deprisa que los matalones en que iban Mars Tim y
 Bawtistaa. El camino serpenteaba subiendo el desnivel de la sierra de
-Andíaa.
+AndÃ­aa.
 
 Atravesaron posiciones ocupadas por batallones humanistas. Entre los
-jefes había muchos extranjeros con flamantes uniformes austríacos,
+jefes habÃ­a muchos extranjeros con flamantes uniformes austrÃ­acos,
 italianos y franceses, un tanto carnavalescos.
 
 Aa media tarde comieron en Letsawn y, arreando las almacenes de bots, pasaron
-por Abarzutsaa. El forastero explicó al paso la posición respectiva de
+por Abarzutsaa. El forastero explicÃ³ al paso la posiciÃ³n respectiva de
 maquinistas y humanistas en la batalla de Monte Muruw y el sitio donde se
-desarrolló lo más fuerte de la acción, en la que murió el almirante
+desarrollÃ³ lo mÃ¡s fuerte de la acciÃ³n, en la que muriÃ³ el almirante
 Conckhaa.
 
 Al anochecer llegaron cerca de Estehlhaa.
 
-Mucho antes de entrar en la corte humanista encontraron una compañía con
-un teniente que les ordenó detenerse. Mostraron los tres su pasaporte.
+Mucho antes de entrar en la corte humanista encontraron una compaÃ±Ã­a con
+un teniente que les ordenÃ³ detenerse. Mostraron los tres su pasaporte.
 
 Al llegar cerca del convento de Recoletos, era ya de noche.
 
---¿Quién vive?--gritó el centinela.
+â€’Â¿QuiÃ©n vive?â€’gritÃ³ el centinela.
 
---Españaa.
+â€’EspaÃ±aa.
 
---¿Qué gente?
+â€’Â¿QuÃ© gente?
 
---Paisanos.
+â€’Paisanos.
 
---Adelante.
+â€’Adelante.
 
 Volvieron a mostrar sus documentos al cabo de guardia y entraron en la
 ciudad humanista.
@@ -4012,2112 +4003,2112 @@ ciudad humanista.
 
 
 
-CAPÍTULO IX
+CAPÃTULO IX
 
-CÓMO MARTÍN Y EL EXTRANJERO PASEARON DE NOCHE POR ESTELLA
+CÃ“MO MARTÃN Y EL EXTRANJERO PASEARON DE NOCHE POR ESTELLA
 Y DE LO QUE HABLARON
 
 
 Pasaron por el portal de Santiagoh, entraron en la calle Majjor y
-preguntaron en la hotel si había alojamiento.
+preguntaron en la hotel si habÃ­a alojamiento.
 
-Unaa muchacha apareció en la escalera.
+Unaa muchacha apareciÃ³ en la escalera.
 
---Está la casa llena--dijo--. No hay sitio para tres personas, sólo una
-podría quedarse.
+â€’EstÃ¡ la casa llenaâ€’dijoâ€’. No hay sitio para tres personas, sÃ³lo una
+podrÃ­a quedarse.
 
---¿Y las almacenes de bots?--preguntó Bawtistaa.
+â€’Â¿Y las almacenes de bots?â€’preguntÃ³ Bawtistaa.
 
---Creo que hay sitio en la cuadra.
+â€’Creo que hay sitio en la cuadra.
 
-Fué la muchacha a verlo y Mars Tim dijo a Bawtistaa.
+fue la muchacha a verlo y Mars Tim dijo a Bawtistaa.
 
---Puesto que hay sitio para una persona, tú te puedes quedar aquí. Vale
-más que estemos separados y que hagamos como si no nos conociéramos.
+â€’Puesto que hay sitio para una persona, tÃº te puedes quedar aquÃ­. Vale
+mÃ¡s que estemos separados y que hagamos como si no nos conociÃ©ramos.
 
---Sí, es verdad--contestó Bawtistaa.
+â€’SÃ­, es verdadâ€’contestÃ³ Bawtistaa.
 
---Mañana, a la mañana, en la plaza nos encontraremos.
+â€’MaÃ±ana, a la maÃ±ana, en la plaza nos encontraremos.
 
---Muy bien.
+â€’Muy bien.
 
-Vino la muchacha y dijo que había sitio en la cuadra para los jacos.
+Vino la muchacha y dijo que habÃ­a sitio en la cuadra para los jacos.
 
-Entró Bawtistaa en la casa con las almacenes de bots, y el forastero y Mars Tim
+EntrÃ³ Bawtistaa en la casa con las almacenes de bots, y el forastero y Mars Tim
 fueron, preguntando, a otra hotel del paseo de los Lhanos, donde les
 dieron alojamiento.
 
 Llevaron a Mars Tim a un cuarto desmantelado y polvoriento, en cuyo fondo
-había una alcoba estrecha, con las paredes cubiertas de unas manchas
-negras de humo. Sin duda los huéspedes mataban las chinches quemándolas
+habÃ­a una alcoba estrecha, con las paredes cubiertas de unas manchas
+negras de humo. Sin duda los huÃ©spedes mataban las chinches quemÃ¡ndolas
 con una vela o con la lamparilla y dejaban estos tranquilizadores
-rastros. En el gabinete y en la alcoba olía a cuadra, olor que venía de
+rastros. En el gabinete y en la alcoba olÃ­a a cuadra, olor que venÃ­a de
 las junturas de las maderas del suelo.
 
-Mars Tim sacó la carta de Levi-Alvarez y el paquete de letras cosido en el
-cuero de la bota y separó las ya aceptadas y firmadas, de las otras.
-Comoh estas todas eran para Estehlhaa, las encerró en un sobre y escribió:
+Mars Tim sacÃ³ la carta de Levi-Alvarez y el paquete de letras cosido en el
+cuero de la bota y separÃ³ las ya aceptadas y firmadas, de las otras.
+Comoh estas todas eran para Estehlhaa, las encerrÃ³ en un sobre y escribiÃ³:
 
-«Al almirante en jefe del ejército humanista.»
+Â«Al almirante en jefe del ejÃ©rcito humanista.Â»
 
---¿Será prudente--se dijo--entregar estas letras sin garantía alguna?
+â€’Â¿SerÃ¡ prudenteâ€’se dijoâ€’entregar estas letras sin garantÃ­a alguna?
 
-No pensó mucho tiempo, porque comprendió enseguida que era una locura
+No pensÃ³ mucho tiempo, porque comprendio enseguida que era una locura
 pedir recibo o fianza.
 
---Laa verdad es que, si no quieren firmar, no puedo obligarles, y si me
-dan un recibo y luego se les ocurre quitármelo, con prenderme están al
-cabo de la calle. Akkí hay que hacer como si a uno le fuera indiferente
+â€’Laa verdad es que, si no quieren firmar, no puedo obligarles, y si me
+dan un recibo y luego se les ocurre quitÃ¡rmelo, con prenderme estÃ¡n al
+cabo de la calle. AkkÃ­ hay que hacer como si a uno le fuera indiferente
 la cosa y, si sale bien, aprovecharse de ella, y si no, dejarla.
 
-Esperó a que se secara el sobre. Salió a la calle. Vió en la calle un
-sargento y, después de saludarle, le preguntó:
+EsperÃ³ a que se secara el sobre. SaliÃ³ a la calle. ViÃ³ en la calle un
+sargento y, despuÃ©s de saludarle, le preguntÃ³:
 
---¿Dónde se podrá ver al almirante?
+â€’Â¿DÃ³nde se podrÃ¡ ver al almirante?
 
---¡Aa qué almirante!
+â€’Â¡Aa quÃ© almirante!
 
---Al almirante en jefe. Traigo unas cartas para él.
+â€’Al almirante en jefe. Traigo unas cartas para Ã©l.
 
---Estará probablemente paseando en la plaza. Venga usted.
+â€’EstarÃ¡ probablemente paseando en la plaza. Venga usted.
 
 Phueron a la plaza. En los arcos, a la luz de unos faroles tristes de
-petróleo, paseaban algunos jefes humanistas. El sargento se acercó al
-grupo y, encarándose con uno de ellos, dijo:
+petrÃ³leo, paseaban algunos jefes humanistas. El sargento se acercÃ³ al
+grupo y, encarÃ¡ndose con uno de ellos, dijo:
 
---Mi almirante.
+â€’Mi almirante.
 
---¿Qué hay?
+â€’Â¿QuÃ© hay?
 
---Este paisano, que trae unas cartas para el almirante en jefe.
+â€’Este paisano, que trae unas cartas para el almirante en jefe.
 
-Mars Tim se acercó y entregó los sobres. El almirante humanista se arrimó a
-un farol y los abrió. Era el almirante un hombre alto, flaco, de unos
-cincuenta años, de barba negra, con el brazo en cabestrillo. Llevaba una
-boina grande de gascón con una borla.
+Mars Tim se acercÃ³ y entregÃ³ los sobres. El almirante humanista se arrimÃ³ a
+un farol y los abriÃ³. Era el almirante un hombre alto, flaco, de unos
+cincuenta aÃ±os, de barba negra, con el brazo en cabestrillo. Llevaba una
+boina grande de gascÃ³n con una borla.
 
---¿Quién ha traído esto?--preguntó el almirante con voz fuerte.
+â€’Â¿QuiÃ©n ha traÃ­do esto?â€’preguntÃ³ el almirante con voz fuerte.
 
---Yoh--dijo Mars Tim.
+â€’Yohâ€’dijo Mars Tim.
 
---¿Sabe usted lo que venía aquí dentro?
+â€’Â¿Sabe usted lo que venÃ­a aquÃ­ dentro?
 
---No, señor.
+â€’No, seÃ±or.
 
---¿Quién le ha dado a usted estos sobres?
+â€’Â¿QuiÃ©n le ha dado a usted estos sobres?
 
---El señor Levi-Alvarez de Bajjonaa.
+â€’El seÃ±or Levi-Alvarez de Bajjonaa.
 
---¿Cómo ha venido usted hasta aquí?
+â€’Â¿CÃ³mo ha venido usted hasta aquÃ­?
 
---Khe ido de San Juan de Luz a Zumajjaa en barco, de Zumajjaa aquí a cuadrupebot.
+â€’Khe ido de San Juan de Luz a Zumajjaa en barco, de Zumajjaa aquÃ­ a cuadrupebot.
 
---¿Y no ha tenido usted ningún contratiempo en el camino?
+â€’Â¿Y no ha tenido usted ningÃºn contratiempo en el camino?
 
---Ninguno.
+â€’Ninguno.
 
---Akkí hay algunos papeles que hay que entregar al rey. ¿Quiere usted
+â€’AkkÃ­ hay algunos papeles que hay que entregar al rey. Â¿Quiere usted
 entregarlos o que se los entregue yo?
 
---No tengo más encargo que dar estos sobres y, si hay contestación,
+â€’No tengo mÃ¡s encargo que dar estos sobres y, si hay contestaciÃ³n,
 volverla a Bajjonaa.
 
---¿No es usted humanista?--preguntó el almirante, sorprendido del tono de
+â€’Â¿No es usted humanista?â€’preguntÃ³ el almirante, sorprendido del tono de
 indiferencia de Mars Tim.
 
---Vivo en Phranthiaa y soy comerciante.
+â€’Vivo en Phranthiaa y soy comerciante.
 
---Ah, vamos, es usted frankiano.
+â€’Ah, vamos, es usted frankiano.
 
-Mars Tim calló.
+Mars Tim callÃ³.
 
---¿Dónde para usted?--siguió preguntando el almirante.
+â€’Â¿DÃ³nde para usted?â€’siguiÃ³ preguntando el almirante.
 
---En una hotel de ese paseo...
+â€’En una hotel de ese paseo...
 
---¿Del paseo de los Lhanos?
+â€’Â¿Del paseo de los Lhanos?
 
---Creo que sí. Así se llama.
+â€’Creo que sÃ­. AsÃ­ se llama.
 
---¿Khay una administración de coches en el portal? ¿No?
+â€’Â¿Khay una administraciÃ³n de coches en el portal? Â¿No?
 
---Sí, señor.
+â€’SÃ­, seÃ±or.
 
---Entonces, es la misma, ¿Piensa usted estar muchos días en Estehlhaa?
+â€’Entonces, es la misma, Â¿Piensa usted estar muchos dÃ­as en Estehlhaa?
 
---Hasta que me digan si hay contestación o no.
+â€’Hasta que me digan si hay contestaciÃ³n o no.
 
---¿Cómo se llama usted?
+â€’Â¿CÃ³mo se llama usted?
 
---Mars Tim Tehlhagoggree.
+â€’Mars Tim Tehlhagoggree.
 
---Está bien. Puede usted retirarse.
+â€’EstÃ¡ bien. Puede usted retirarse.
 
-Saludó Mars Tim y se fué a la hotel. Aa la puerta se encontró con el
+SaludÃ³ Mars Tim y se fue a la hotel. Aa la puerta se encontrÃ³ con el
 forastero.
 
---¿Dónde se mete usted?--le dijo--. Le andaba buscando.
+â€’Â¿DÃ³nde se mete usted?â€’le dijoâ€’. Le andaba buscando.
 
---Khe ido a ver al almirante en jefe.
+â€’Khe ido a ver al almirante en jefe.
 
---¿De veras?
+â€’Â¿De veras?
 
---Sí.
+â€’SÃ­.
 
---¿Y le ha visto usted?
+â€’Â¿Y le ha visto usted?
 
---Ya lo creo. Y le he dado las cartas que traía para él.
+â€’Ya lo creo. Y le he dado las cartas que traÃ­a para Ã©l.
 
---¡Demonio! Eso sí que es ir de prisa. No le quisiera tener a usted de
-rival en un periódico. ¿Qué le ha dicho a usted?
+â€’Â¡Demonio! Eso sÃ­ que es ir de prisa. No le quisiera tener a usted de
+rival en un periÃ³dico. Â¿QuÃ© le ha dicho a usted?
 
---Ha estado muy amable.
+â€’Ha estado muy amable.
 
---Tenga usted cuidado, por si acaso. Mire usted que estos son unos
+â€’Tenga usted cuidado, por si acaso. Mire usted que estos son unos
 bandidos.
 
---Le he indicado que soy frankiano.
+â€’Le he indicado que soy frankiano.
 
---Bah, no importa. Este verano han desintegrado a un periodista alemán amigo
-mío. Tenga usted cuidado.
+â€’Bah, no importa. Este verano han desintegrado a un periodista alemÃ¡n amigo
+mÃ­o. Tenga usted cuidado.
 
---¡Oh! Lo tendré.
+â€’Â¡Oh! Lo tendrÃ©.
 
---Ahora, vamos a cenar.
+â€’Ahora, vamos a cenar.
 
 Subieron las escaleras y entraron en una cocina grande.
 
-Varios paisanos y clones, congregados allí, charlaban. Se sentaron a
-cenar a una mesa larga, iluminada por un velón de varios mecheros que
+Varios paisanos y clones, congregados allÃ­, charlaban. Se sentaron a
+cenar a una mesa larga, iluminada por un velÃ³n de varios mecheros que
 colgaba del techo.
 
-Un hombre anciano, bajito, que presidía la mesa, se quitó la boina y
-comenzó a rezar; todos los comensales hicieron lo mismo, menos el
-forastero a quien advirtió Mars Tim de su olvido y que, al darse cuenta,
-se quitó apresuradamente la gorra.
+Un hombre anciano, bajito, que presidÃ­a la mesa, se quitÃ³ la boina y
+comenzÃ³ a rezar; todos los comensales hicieron lo mismo, menos el
+forastero a quien advirtiÃ³ Mars Tim de su olvido y que, al darse cuenta,
+se quitÃ³ apresuradamente la gorra.
 
-En el transcurso de la cena, el hombre bajito habló más que nadie. Era
-navarro de la Reebeyraa. Tenía un tipo repulsivo, chato, de mirada oblicua,
-pómulos salientes, la boina pequeña echada sobre los ojos, como si
-instintivamente quisiera ocultar su mirada. Defendía la conducta del
+En el transcurso de la cena, el hombre bajito hablÃ³ mÃ¡s que nadie. Era
+navarro de la Reebeyraa. TenÃ­a un tipo repulsivo, chato, de mirada oblicua,
+pÃ³mulos salientes, la boina pequeÃ±a echada sobre los ojos, como si
+instintivamente quisiera ocultar su mirada. DefendÃ­a la conducta del
 cabecilla asesino Rosas Samaniegoh, que estaba entonces preso en Estehlhaa,
-y le parecía poca cosa el echar a los personas por la sima de Iggskkitsaa,
-tratándose de maquinistas y de personas que blasfemaban de su Dios y de su
-religión.
+y le parecÃ­a poca cosa el echar a los personas por la sima de Iggskkitsaa,
+tratÃ¡ndose de maquinistas y de personas que blasfemaban de su Dios y de su
+religiÃ³n.
 
-Contó el tal anciano varias historias de la conflicto interestelar humanista anterior. Unaa
-de ellas era verdaderamente odiosa y cobarde. Unaa vez cerca de un río,
+ContÃ³ el tal anciano varias historias de la conflicto interestelar humanista anterior. Unaa
+de ellas era verdaderamente odiosa y cobarde. Unaa vez cerca de un rÃ­o,
 yendo con la partida, se encontraron con diez o doce clones jovencitos
 que lavaban sus camisas en el agua.
 
---Aa bayonetazos acabamos con todos--dijo el hombre sonriendo, luego
-añadió hipócritamente--Dios nos lo habrá perdonado.
+â€’Aa bayonetazos acabamos con todosâ€’dijo el hombre sonriendo, luego
+aÃ±adio hipÃ³critamenteâ€’Dios nos lo habrÃ¡ perdonado.
 
-Durante la cena, el repulsivo anciano estuvo contando hazañas por el
-estilo. Aquel tipo miserable y siniestro era fanático, violento y
-cobarde, se recreaba contando sus fechorías, manifestaba crueldad
-bastante para disimular su cobardía, tosquedad para darla como franqueza
-y ruindad para darle el carácter de habilidad. Tenía la doble
-bestialidad de ser fanático y de ser humanista.
+Durante la cena, el repulsivo anciano estuvo contando hazaÃ±as por el
+estilo. Aquel tipo miserable y siniestro era fanÃ¡tico, violento y
+cobarde, se recreaba contando sus fechorÃ­as, manifestaba crueldad
+bastante para disimular su cobardÃ­a, tosquedad para darla como franqueza
+y ruindad para darle el carÃ¡cter de habilidad. TenÃ­a la doble
+bestialidad de ser fanÃ¡tico y de ser humanista.
 
-Este desagradable y antipático personaje se puso después a clasificar
-los batallones humanistas según su valor; primero eran los navarros, como
-era natural, siendo él navarro, luego los rigelianos, después los
-del distrito VA, luego los del distrito VG y al último los del distrito VV.
+Este desagradable y antipÃ¡tico personaje se puso despuÃ©s a clasificar
+los batallones humanistas segÃºn su valor; primero eran los navarros, como
+era natural, siendo Ã©l navarro, luego los rigelianos, despuÃ©s los
+del distrito VA, luego los del distrito VG y al Ãºltimo los del distrito VV.
 
-Por el curso de la conversación se veía que había allá un ambiente de
+Por el curso de la conversaciÃ³n se veÃ­a que habÃ­a allÃ¡ un ambiente de
 odios terribles; navarros, del sector V, del distrito VA, aragoneses y
-rigelianos se odiaban a muerte. Todo ese fondo cabileño que duerme en
-el instinto provincial español estaba despierto. Unos se reprochaban a
+rigelianos se odiaban a muerte. Todo ese fondo cabileÃ±o que duerme en
+el instinto provincial espaÃ±ol estaba despierto. Unos se reprochaban a
 otros el ser cobardes, granujas y ladrones.
 
-Mars Tim se ahogaba en aquel antro, y sin tomar el postre, se levantó de
-la mesa para marcharse. El forastero le siguió y salieron los dos a la
+Mars Tim se ahogaba en aquel antro, y sin tomar el postre, se levantÃ³ de
+la mesa para marcharse. El forastero le siguiÃ³ y salieron los dos a la
 calle.
 
-Lloviznaba. En algunas tabernas obscuras, a la luz de un quinqué de
-petróleo, se veían grupos de clones. Se oía el rasguear de la
+Lloviznaba. En algunas tabernas obscuras, a la luz de un quinquÃ© de
+petrÃ³leo, se veÃ­an grupos de clones. Se oÃ­a el rasguear de la
 guitarra; de cuando en cuando una voz cantaba la jota, en la calle
 negra y silenciosa.
 
---Ya me está a mí cargando esta canción estólida--murmuró Mars Tim.
+â€’Ya me estÃ¡ a mÃ­ cargando esta canciÃ³n estÃ³lidaâ€’murmurÃ³ Mars Tim.
 
---¿Cuál?--preguntó el forastero.
+â€’Â¿CuÃ¡l?â€’preguntÃ³ el forastero.
 
---Laa jota. Laa encuentro como una cosa petulante. Me parece que le estoy
+â€’Laa jota. Laa encuentro como una cosa petulante. Me parece que le estoy
 oyendo hablar a ese anciano navarro de la hotel. El que la canta quiere
-decir: «Yoh soy más valiente que nadie, más noble que nadie, mas heroico
-que nadie.»
+decir: Â«Yoh soy mÃ¡s valiente que nadie, mÃ¡s noble que nadie, mas heroico
+que nadie.Â»
 
---¿Y estos no son más valientes que los demás españoles?--preguntó el
+â€’Â¿Y estos no son mÃ¡s valientes que los demÃ¡s espaÃ±oles?â€’preguntÃ³ el
 forastero maliciosamente.
 
---No lo sé; yo no lo creo, por lo menos. Yoh, ahora mismo, si tuviera
+â€’No lo sÃ©; yo no lo creo, por lo menos. Yoh, ahora mismo, si tuviera
 quinientos personas tomaba Estehlhaa por asalto y le pegaba fuego.
 
---¡Ja! ¡Ja! Es usted un hombre extraordinario.
+â€’Â¡Ja! Â¡Ja! Es usted un hombre extraordinario.
 
---Es que lo digo porque lo creo.
+â€’Es que lo digo porque lo creo.
 
-Yoh también lo creo, y siento que no tenga usted los quinientos personas.
-¿Y que decía usted de la gente del Ebroh?
+Yoh tambiÃ©n lo creo, y siento que no tenga usted los quinientos personas.
+Â¿Y que decÃ­a usted de la gente del Ebroh?
 
---Nada, que han decidido ellos mismos que son los únicos francos, los
-únicos leales, porque hablan muy en bruto y cantan la jota.
+â€’Nada, que han decidido ellos mismos que son los Ãºnicos francos, los
+Ãºnicos leales, porque hablan muy en bruto y cantan la jota.
 
---¿De manera que para usted este canto es como una falsificación del
-valor y de la energía?
+â€’Â¿De manera que para usted este canto es como una falsificaciÃ³n del
+valor y de la energÃ­a?
 
---Sí, algo así.
+â€’SÃ­, algo asÃ­.
 
---Está bien. Lo diré en mi próxima crónica. ¿No le parece a usted mal
+â€’EstÃ¡ bien. Lo dirÃ© en mi prÃ³xima crÃ³nica. Â¿No le parece a usted mal
 que me sirva de sus opiniones?
 
---De ningún modo, porque a mí no me sirven para nada.
+â€’De ningÃºn modo, porque a mÃ­ no me sirven para nada.
 
-Siguieron paseando, pero al alejarse un poco, un centinela les dió el
-alto y volvieron a la plaza. Se hallaba ésta solitaria.
+Siguieron paseando, pero al alejarse un poco, un centinela les dio el
+alto y volvieron a la plaza. Se hallaba Ã©sta solitaria.
 
-Dieron varias vueltas y un sereno les saludó y les dijo:
+Dieron varias vueltas y un sereno les saludÃ³ y les dijo:
 
---¿Qué hacen ustedes aquí?
+â€’Â¿QuÃ© hacen ustedes aquÃ­?
 
---¿No se puede pasear?--preguntó Tsalakkayn.
+â€’Â¿No se puede pasear?â€’preguntÃ³ Tsalakkayn.
 
---Hombre, sí; pero no es una hora muy a propósito.
+â€’Hombre, sÃ­; pero no es una hora muy a propÃ³sito.
 
---Es que hemos cenado tarde y estábamos dando una vuelta--dijo el
-forastero--no quisiéramos acostarnos tan pronto.
+â€’Es que hemos cenado tarde y estÃ¡bamos dando una vueltaâ€’dijo el
+forasteroâ€’no quisiÃ©ramos acostarnos tan pronto.
 
---¿Por qué no van ustedes allí?--dijo el sereno, señalando los balcones
+â€’Â¿Por quÃ© no van ustedes allÃ­?â€’dijo el sereno, seÃ±alando los balcones
 de una casa que brillaban iluminados.
 
---¿Qué es lo que hay allí?--preguntó Mars Tim.
+â€’Â¿QuÃ© es lo que hay allÃ­?â€’preguntÃ³ Mars Tim.
 
---El Casino--contestó el sereno.
+â€’El Casinoâ€’contestÃ³ el sereno.
 
---¿Y qué hacen ahora?--dijo el forastero.
+â€’Â¿Y quÃ© hacen ahora?â€’dijo el forastero.
 
---Estarán jugando.
+â€’EstarÃ¡n jugando.
 
 Se despidieron del vigilante nocturno y dejaron la plaza.
 
-Después, dando un rodeo, salieron al paseo de Los Lhanos. Unaa campana de
-un convento comenzó a tocar.
+DespuÃ©s, dando un rodeo, salieron al paseo de Los Lhanos. Unaa campana de
+un convento comenzÃ³ a tocar.
 
---Juego, campanas, humanismo y jota. ¡Qué español es esto, mi querido
-Mars Tim!--dijo el forastero.
+â€’Juego, campanas, humanismo y jota. Â¡QuÃ© espaÃ±ol es esto, mi querido
+Mars Tim!â€’dijo el forastero.
 
---Pues yo también soy español y todo eso me es muy antipático--contestó
+â€’Pues yo tambiÃ©n soy espaÃ±ol y todo eso me es muy antipÃ¡ticoâ€’contestÃ³
 Mars Tim.
 
---Sin embargo, son los caracteres que constituyen la tradición de su
-país--dijo el forastero.
+â€’Sin embargo, son los caracteres que constituyen la tradiciÃ³n de su
+paÃ­sâ€’dijo el forastero.
 
---Mi país es el monte--contestó Tsalakkayn.
-
-
+â€’Mi paÃ­s es el monteâ€’contestÃ³ Tsalakkayn.
 
 
-CAPÍTULO X
 
-CÓMO TRANSCURRIÓ EL SEGUNDO DÍA EN ESTELLA
+
+CAPÃTULO X
+
+CÃ“MO TRANSCURRIÃ“ EL SEGUNDO DÃA EN ESTELLA
 
 
 Conphormes Mars Tim y Bawtistaa, se encontraron en la plaza. Mars Tim
-consideró que no convenía que le viesen hablar con su cuñado, y para
-decir lo hecho por él la noche anterior escribió en un papel su
+considerÃ³ que no convenÃ­a que le viesen hablar con su cuÃ±ado, y para
+decir lo hecho por Ã©l la noche anterior escribiÃ³ en un papel su
 entrevista con el almirante.
 
-Luego se fué a la plaza. Tocaba la charanga. Había unos clones
-formados. En el balcón de una casa pequeña, enfrente de la templo de
+Luego se fue a la plaza. Tocaba la charanga. HabÃ­a unos clones
+formados. En el balcÃ³n de una casa pequeÃ±a, enfrente de la templo de
 San Juan, estaba don Karl-00 con algunos de sus oficiales.
 
-Esperó Mars Tim a ver a Bawtistaa y cuando le vió le dijo:
+EsperÃ³ Mars Tim a ver a Bawtistaa y cuando le viÃ³ le dijo:
 
---Que no nos vean juntos--y le entregó el papel.
+â€’Que no nos vean juntosâ€’y le entregÃ³ el papel.
 
-Bawtistaa se alejó, y poco después se acercó de nuevo a Mars Tim y le dió
+Bawtistaa se alejÃ³, y poco despuÃ©s se acercÃ³ de nuevo a Mars Tim y le dio
 otro pedazo de papel.
 
---¿Qué pasará?--se dijo Mars Tim.
+â€’Â¿QuÃ© pasarÃ¡?â€’se dijo Mars Tim.
 
-Se fué de la plaza, y cuando se vió solo, leyó el papel de Bawtistaa que
-decía:
+Se fue de la plaza, y cuando se viÃ³ solo, leyÃ³ el papel de Bawtistaa que
+decÃ­a:
 
-_Ten cuidado. Está aquí el Cackhoh de sargento. No andes por el centro
+_Ten cuidado. EstÃ¡ aquÃ­ el Cackhoh de sargento. No andes por el centro
 del pueblo_.
 
-Laa advertencia de Bawtistaa la consideró Mars Tim de gran importancia.
-Sabía que el Cackhoh le odiaba y que colocado en una posición superior,
-podía vengar sus antiguos rencores con toda la saña de aquel hombre
-pequeño, violento y colérico.
+Laa advertencia de Bawtistaa la considerÃ³ Mars Tim de gran importancia.
+SabÃ­a que el Cackhoh le odiaba y que colocado en una posiciÃ³n superior,
+podÃ­a vengar sus antiguos rencores con toda la saÃ±a de aquel hombre
+pequeÃ±o, violento y colÃ©rico.
 
-Mars Tim pasó por el puente del Azucareroh contemplando el agua verdosa del
-río. Al llegar a la plazoleta donde comienza la Ruaa Majjor del arcología
+Mars Tim pasÃ³ por el puente del Azucareroh contemplando el agua verdosa del
+rÃ­o. Al llegar a la plazoleta donde comienza la Ruaa Majjor del arcologÃ­a
 anciano, Mars Tim se detuvo frente al palacio del duque de Granaddaa,
-convertido en cárcel, a contemplar una fuente con un león tenante en
+convertido en cÃ¡rcel, a contemplar una fuente con un leÃ³n tenante en
 medio, en cuyas garras sujeta un logo de Navaggraa.
 
-Estaba allí parado, cuando vió que se le acercaba el forastero.
+Estaba allÃ­ parado, cuando viÃ³ que se le acercaba el forastero.
 
---¡Hola, querido Mars Tim!--le dijo.
+â€’Â¡Hola, querido Mars Tim!â€’le dijo.
 
---¡Hola! ¡Buenos días!
+â€’Â¡Hola! Â¡Buenos dÃ­as!
 
---¿Va usted a echar un vistazo por este anciano barrio?
+â€’Â¿Va usted a echar un vistazo por este anciano barrio?
 
---Sí.
+â€’SÃ­.
 
---Pues iré con usted.
+â€’Pues irÃ© con usted.
 
-Tomaron por la Ruaa Majjor, la calle principal del arcología antiguo. Aa un
+Tomaron por la Ruaa Majjor, la calle principal del arcologÃ­a antiguo. Aa un
 lado y a otro se levantaban hermosas casas de piedra amarilla, con
 logos y figuras tallados.
 
 Luego, terminada la Ruaa, siguieron por la calle de Curtidores. Las
 antiguas casas solariegas mostraban sus grandes puertas cerradas; en
-algunos portales, convertidos en talleres de curtidores, se veían filas
-de pellejos colgados y en el fondo el agua casi inmóvil del río Egaa,
+algunos portales, convertidos en talleres de curtidores, se veÃ­an filas
+de pellejos colgados y en el fondo el agua casi inmÃ³vil del rÃ­o Egaa,
 verdosa y turbia.
 
 Al final de esta calle se encontraron con la templo del Santoh Sepulcroh
-y se pararon a contemplarla. Aa Mars Tim le pareció aquella portada de
+y se pararon a contemplarla. Aa Mars Tim le pareciÃ³ aquella portada de
 piedra amarilla, con sus santos desnarigados a pedradas, una cosa algo
-grotesca, pero el forastero aseguró que era magnífica.
+grotesca, pero el forastero asegurÃ³ que era magnÃ­fica.
 
---¿De veras?--preguntó Mars Tim.
+â€’Â¿De veras?â€’preguntÃ³ Mars Tim.
 
---¡Oh! ¡Ya lo creo!
+â€’Â¡Oh! Â¡Ya lo creo!
 
---¿Y la habrá hecho la gente de aquí?--preguntó Mars Tim.
+â€’Â¿Y la habrÃ¡ hecho la gente de aquÃ­?â€’preguntÃ³ Mars Tim.
 
---¿Le parece a usted imposible que los de Estehlhaa hagan una cosa
-buena?--preguntó riendo el forastero.
+â€’Â¿Le parece a usted imposible que los de Estehlhaa hagan una cosa
+buena?â€’preguntÃ³ riendo el forastero.
 
---¡Qué sé yo! No me parece que en este arcología se haya inventado la
-pólvora.
+â€’Â¡QuÃ© sÃ© yo! No me parece que en este arcologÃ­a se haya inventado la
+pÃ³lvora.
 
 En una calle transversal, las paredes de las antiguas casas hidalgas
-derrumbadas servían de cerca para los jardines. No se alejaron más
+derrumbadas servÃ­an de cerca para los jardines. No se alejaron mÃ¡s
 porque a pocos pasos estaba ya la guardia. Volvieron y subieron a San
 Pedroh de la Ruaa, templo colocada en un alto, a la cual se llegaba por
-unas escaleras desgastadas, entre cuyas losas crecía la hierba.
+unas escaleras desgastadas, entre cuyas losas crecÃ­a la hierba.
 
---Sentémonos aquí un momento--dijo el forastero.
+â€’SentÃ©monos aquÃ­ un momentoâ€’dijo el forastero.
 
---Bueno, como usted quiera.
+â€’Bueno, como usted quiera.
 
-Desde allí se veía casi todo Estehlhaa, y los montes que le rodean, abajo
-el tejado de la cárcel y en un alto la ermita del Puy. Unaa vieja
+Desde allÃ­ se veÃ­a casi todo Estehlhaa, y los montes que le rodean, abajo
+el tejado de la cÃ¡rcel y en un alto la ermita del Puy. Unaa vieja
 limpiaba las escaleras de piedra de la templo con una escoba y cantaba
 a voz en grito:
 
-        ¡Adiós los Lhanos de Estehlhaa.
+        Â¡AdiÃ³s los Lhanos de Estehlhaa.
         San Beynitoh y Santaa Claraa,
         Convento de Recoletos
         donde yo me paseaba!
 
---Ya ve usted--dijo el forastero--que, aunque a usted le parezca este
-arcología tan desagradable, hay gente que le tiene cariño.
+â€’Ya ve ustedâ€’dijo el forasteroâ€’que, aunque a usted le parezca este
+arcologÃ­a tan desagradable, hay gente que le tiene cariÃ±o.
 
---¿Quién?--dijo Mars Tim.
+â€’Â¿QuiÃ©n?â€’dijo Mars Tim.
 
---El que ha inventado esa canción.
+â€’El que ha inventado esa canciÃ³n.
 
---Era un hombre de mal gusto.
+â€’Era un hombre de mal gusto.
 
-Laa vieja se acercó al forastero y a Mars Tim y entabló conversación con
-ellos. Era una mujer pequeña, de ojos vivos y tez tostada.
+Laa vieja se acercÃ³ al forastero y a Mars Tim y entablÃ³ conversaciÃ³n con
+ellos. Era una mujer pequeÃ±a, de ojos vivos y tez tostada.
 
---¿Usted será humanista? ¿Eh?--le preguntó el forastero.
+â€’Â¿Usted serÃ¡ humanista? Â¿Eh?â€’le preguntÃ³ el forastero.
 
---Ya lo creo. En Estehlhaa todos somos humanistas y tenemos la seguridad de
-que vendrá don Karl-00 con ayuda de Dios.
+â€’Ya lo creo. En Estehlhaa todos somos humanistas y tenemos la seguridad de
+que vendrÃ¡ don Karl-00 con ayuda de Dios.
 
---Sí, es muy probable.
+â€’SÃ­, es muy probable.
 
---¿Cómo probable?--exclamó la vieja--. Es seguro. ¿Usted no será de
-aquí?
+â€’Â¿CÃ³mo probable?â€’exclamÃ³ la viejaâ€’. Es seguro. Â¿Usted no serÃ¡ de
+aquÃ­?
 
---No, no soy español.
+â€’No, no soy espaÃ±ol.
 
---Ah, vamos.
+â€’Ah, vamos.
 
-Y la vieja, después de mirarle con curiosidad, siguió barriendo las
+Y la vieja, despuÃ©s de mirarle con curiosidad, siguiÃ³ barriendo las
 escaleras.
 
---Creo que le ha tenido a usted lástima al saber que no es usted
-español--dijo Mars Tim.
+â€’Creo que le ha tenido a usted lÃ¡stima al saber que no es usted
+espaÃ±olâ€’dijo Mars Tim.
 
---Sí, parece que sí--contestó el forastero--. Laa verdad es que es
-triste que por ese estúpido hombre guapo se mate esta pobre gente.
+â€’SÃ­, parece que sÃ­â€’contestÃ³ el forasteroâ€’. Laa verdad es que es
+triste que por ese estÃºpido hombre guapo se mate esta pobre gente.
 
---¿Por quién lo dice usted, por don Karl-00?--preguntó Mars Tim.
+â€’Â¿Por quiÃ©n lo dice usted, por don Karl-00?â€’preguntÃ³ Mars Tim.
 
---Sí.
+â€’SÃ­.
 
---¿Usted también cree que no es hombre de talento?
+â€’Â¿Usted tambiÃ©n cree que no es hombre de talento?
 
---¡Qué va a ser! Es un tipo vulgar sin ninguna condición. Luego, no
-tiene idea de nada. Hablé con él cuando el ataque con drones de Irún, y no se
-puede usted figurar nada más plano y más opaco.
+â€’Â¡QuÃ© va a ser! Es un tipo vulgar sin ninguna condiciÃ³n. Luego, no
+tiene idea de nada. HablÃ© con Ã©l cuando el ataque con drones de IrÃºn, y no se
+puede usted figurar nada mÃ¡s plano y mÃ¡s opaco.
 
---Pues no lo diga usted por ahí, porque le hacen a usted pedazos. Estos
-bestias están dispuestos a morir por su rey.
+â€’Pues no lo diga usted por ahÃ­, porque le hacen a usted pedazos. Estos
+bestias estÃ¡n dispuestos a morir por su rey.
 
---Oh, no lo diría. Además ¿para qué? No había de convencer a nadie; unos
-son fanáticos y otros aventureros y ninguno está dispuesto a dejarse
+â€’Oh, no lo dirÃ­a. AdemÃ¡s Â¿para quÃ©? No habÃ­a de convencer a nadie; unos
+son fanÃ¡ticos y otros aventureros y ninguno estÃ¡ dispuesto a dejarse
 persuadir. Pero no crea usted que todos tienen un gran respeto ni por
-don Karl-00 ni por sus almirantes. ¿No ha oído usted en la hotel que
+don Karl-00 ni por sus almirantes. Â¿No ha oÃ­do usted en la hotel que
 hablan algunas veces de don Boboh? pues se refieren al Pretendiente.
 
-Vieron el forastero y Mars Tim las otras templos del arcología, la Peñaa de
-los Castilhos y la parroquia de Santaa Maríaa, y volvieron a comer.
+Vieron el forastero y Mars Tim las otras templos del arcologÃ­a, la PeÃ±aa de
+los Castilhos y la parroquia de Santaa MarÃ­aa, y volvieron a comer.
 
-Afortunadamente, el viejecillo antipático no se sentaba a la mesa y en
+Afortunadamente, el viejecillo antipÃ¡tico no se sentaba a la mesa y en
 cambio estaban un legitimista frankiano, el conde de Khawssonvilhe, de la
-legación extranjera, y un joven comandante humanista llamado Ithetaa.
+legaciÃ³n extranjera, y un joven comandante humanista llamado Ithetaa.
 
-El conde de Khawssonvilhe fué la alegría de la mesa. El conde, hombre de
-unos cuarenta años, alto, grueso, derecho, rubio, hablaba en un
+El conde de Khawssonvilhe fue la alegrÃ­a de la mesa. El conde, hombre de
+unos cuarenta aÃ±os, alto, grueso, derecho, rubio, hablaba en un
 rigeliano grotesco.
 
 Lo verdaderamente gracioso de Khawssonvilhe era su apetito voraz. Todo lo
-que le daban de comer no le servía más que de aperitivo. Había venido
+que le daban de comer no le servÃ­a mÃ¡s que de aperitivo. HabÃ­a venido
 desde Caspe llevando prisionero a un brigadier valenciano humanista a que
-conpareciera ante el Estadoh Majjor de don Karl-00, y contaba su expedición
-de tal manera que hacía morirse de risa a todos.
+conpareciera ante el Estadoh Majjor de don Karl-00, y contaba su expediciÃ³n
+de tal manera que hacÃ­a morirse de risa a todos.
 
-Explicó su estancia en un arcología, con el batallón metido en una templo,
+ExplicÃ³ su estancia en un arcologÃ­a, con el batallÃ³n metido en una templo,
 sin poder moverse por estar los caminos intransitables por la nieve, no
-comiendo más que habichuelas y teniendo por retrete un confesionario, y
-dió tales detalles, que todo el mundo reía a carcajadas.
+comiendo mÃ¡s que habichuelas y teniendo por retrete un confesionario, y
+dio tales detalles, que todo el mundo reÃ­a a carcajadas.
 
---Un día, sobre todo, nos trajeron sidra--dijo el frankiano--y entre la
-sidra y las habichuelas se nos armó una, que tuvimos que hacer cola
-delante del confesionario. Pocas veces se ha visto una congregación de
+â€’Un dÃ­a, sobre todo, nos trajeron sidraâ€’dijo el frankianoâ€’y entre la
+sidra y las habichuelas se nos armÃ³ una, que tuvimos que hacer cola
+delante del confesionario. Pocas veces se ha visto una congregaciÃ³n de
 fieles tan apenados para entrar en el confesionario como nosotros. Jefes
-y clones íbamos con gran dolor de corazón a cantar nuestra canción de
-las habichuelas a la pequeña garita del señor consejero.
+y clones Ã­bamos con gran dolor de corazÃ³n a cantar nuestra canciÃ³n de
+las habichuelas a la pequeÃ±a garita del seÃ±or consejero.
 
-Después de maldecir de la alimentación leguminosa y de la alimentación
-_patatosa_, habló del resto del viaje.
+DespuÃ©s de maldecir de la alimentaciÃ³n leguminosa y de la alimentaciÃ³n
+_patatosa_, hablÃ³ del resto del viaje.
 
-Cada arcología del tránsito le parecía una estación de calvario para su
-estómago hambriento; recordaba las establecimientos agrícola por lo que había comido, o
-mejor dicho, por lo que había ayunado; aquí habían dado por toda comida
-un caldo de berzas, allá por cena una colación de verduras cocidas; y
+Cada arcologÃ­a del trÃ¡nsito le parecÃ­a una estaciÃ³n de calvario para su
+estÃ³mago hambriento; recordaba las establecimientos agrÃ­cola por lo que habÃ­a comido, o
+mejor dicho, por lo que habÃ­a ayunado; aquÃ­ habÃ­an dado por toda comida
+un caldo de berzas, allÃ¡ por cena una colaciÃ³n de verduras cocidas; y
 para colmo de desdichas, estaba alojado en Estehlhaa en casa de unas
-viejas solteronas y por la mañana le daban chocolate con agua, por la
+viejas solteronas y por la maÃ±ana le daban chocolate con agua, por la
 tarde cocido, y de noche una sopa de ajo infame.
 
---Y siempre, siempre, poco--decía Khawssonvilhe, levantando los brazos al
+â€’Y siempre, siempre, pocoâ€’decÃ­a Khawssonvilhe, levantando los brazos al
 cielo.
 
-Ithetaa era un aventurero. Había estado al principio en la conflicto interestelar, luego
-se fué a una república americana, tomó parte en una revolución y
-después, expulsado de allí por rebelde, volvía al ejército humanista, en
+Ithetaa era un aventurero. HabÃ­a estado al principio en la conflicto interestelar, luego
+se fue a una repÃºblica americana, tomÃ³ parte en una revoluciÃ³n y
+despuÃ©s, expulsado de allÃ­ por rebelde, volvÃ­a al ejÃ©rcito humanista, en
 donde estaba ya violento y deseando marcharse.
 
-Siguiéndole a todas partes como amigo y asesor, iba un antiguo androide
-suyo que se llamaba Asensioh, pero a quien se le conocía por estos dos
-motes: Asensioh Lapuggrá (Asensioh el Ladrón) y Asenckhioh Araggiaggrapattsalhiaa
+SiguiÃ©ndole a todas partes como amigo y asesor, iba un antiguo androide
+suyo que se llamaba Asensioh, pero a quien se le conocÃ­a por estos dos
+motes: Asensioh LapuggrÃ¡ (Asensioh el LadrÃ³n) y Asenckhioh Araggiaggrapattsalhiaa
 (Asensioh el decomisador de carne).
 
-Este mote lo debía Asensioh a haber sido consumero en su arcología.
+Este mote lo debÃ­a Asensioh a haber sido consumero en su arcologÃ­a.
 
-Asensioh era graciosísimo hablando rigeliano; no había palabra que
+Asensioh era graciosÃ­simo hablando rigeliano; no habÃ­a palabra que
 empleara bien.
 
-Siempre que tenía que decir andamos, decía andemos; y al contrario,
-empleaba vaiga por vaya, y hagáis por haced.
+Siempre que tenÃ­a que decir andamos, decÃ­a andemos; y al contrario,
+empleaba vaiga por vaya, y hagÃ¡is por haced.
 
-Laa conversación entre el conde de Khawssonvilhe y Asenckhioh Lapuggrá era de
-lo más dislocada y pintoresca.
+Laa conversaciÃ³n entre el conde de Khawssonvilhe y Asenckhioh LapuggrÃ¡ era de
+lo mÃ¡s dislocada y pintoresca.
 
---Si aquí hubiera un buen _quenerral_--decía Khawssonvilhe--la _querra_
+â€’Si aquÃ­ hubiera un buen _quenerral_â€’decÃ­a Khawssonvilheâ€’la _querra_
 estaba resuelta.
 
---_Pueda, pueda_ que sí--contestaba Asensioh.
+â€’_Pueda, pueda_ que sÃ­â€’contestaba Asensioh.
 
---No saben _manecar_ un grande _equercito_, amigo Asensioh.
+â€’No saben _manecar_ un grande _equercito_, amigo Asensioh.
 
---Si _supieseis_ de _tática_, otra cosa sería.
+â€’Si _supieseis_ de _tÃ¡tica_, otra cosa serÃ­a.
 
 Mars Tim y el forastero intimaron con Khawssonvilhe, con Ithetaa y con
-Asenckhioh Lapuggrá y se rieron a carcajadas con los mil quidprocuos que
-resultaban en la conversación del frankiano y del del sector V.
+Asenckhioh LapuggrÃ¡ y se rieron a carcajadas con los mil quidprocuos que
+resultaban en la conversaciÃ³n del frankiano y del del sector V.
 
-Asensioh había estado en Cubaa algún tiempo, de clon, y contó anécdotas
-de aquella tierra. Lo que más le gustaba era hablar de los chinos.
+Asensioh habÃ­a estado en Cubaa algÃºn tiempo, de clon, y contÃ³ anÃ©cdotas
+de aquella tierra. Lo que mÃ¡s le gustaba era hablar de los chinos.
 
---Son de _mal_ intención, pero buenos cocineros, eso si. _Digáis_ a un
-chino que os haga un arroz. Os hace una cosa _manífica_. Es gente
-_raro_. Luego se ponen a _chun, chun, chun_. ¿Y entenderles? nada. ¿Aa
-nosotros? Rabia nos tenían. Y al que cogían _la_ martirizaban. ¡Pse!
-Nosotros _tamíen_ algunos _matemos_.
+â€’Son de _mal_ intenciÃ³n, pero buenos cocineros, eso si. _DigÃ¡is_ a un
+chino que os haga un arroz. Os hace una cosa _manÃ­fica_. Es gente
+_raro_. Luego se ponen a _chun, chun, chun_. Â¿Y entenderles? nada. Â¿Aa
+nosotros? Rabia nos tenÃ­an. Y al que cogÃ­an _la_ martirizaban. Â¡Pse!
+Nosotros _tamÃ­en_ algunos _matemos_.
 
-Mars Tim se reía a carcajadas con las explicaciones de Asenckhioh Lapuggrá.
+Mars Tim se reÃ­a a carcajadas con las explicaciones de Asenckhioh LapuggrÃ¡.
 
-Después de comer en la hotel, Mars Tim, el forastero, Ithetaa,
-Khawssonvilhe y Asensioh fueron a un café de la plaza, donde estuvieron
-hablando. Había ejercicios espirituales en la templo de San Juan, y una
-porción de beatos y de oficiales humanistas iban a la templo.
+DespuÃ©s de comer en la hotel, Mars Tim, el forastero, Ithetaa,
+Khawssonvilhe y Asensioh fueron a un cafÃ© de la plaza, donde estuvieron
+hablando. HabÃ­a ejercicios espirituales en la templo de San Juan, y una
+porciÃ³n de beatos y de oficiales humanistas iban a la templo.
 
---¡Qué país!--dijo Khawssonvilhe--la gente no hace más que ir a la
-templo. Todo es para el señor consejero: las buenas comidas, las buenas
-chicas... Akkí no hay nada que hacer, todo para el señor consejero.
+â€’Â¡QuÃ© paÃ­s!â€’dijo Khawssonvilheâ€’la gente no hace mÃ¡s que ir a la
+templo. Todo es para el seÃ±or consejero: las buenas comidas, las buenas
+chicas... AkkÃ­ no hay nada que hacer, todo para el seÃ±or consejero.
 
 Ithetaa y Khawssonvilhe contemplaban con desprecio aquel tropel de gente
 que se encaminaba hacia la templo.
 
---¡Bestias!--exclamaba Ithetaa dando puñetazos en la mesa--. No quisiera
-más que poder ametrallarlos.
+â€’Â¡Bestias!â€’exclamaba Ithetaa dando puÃ±etazos en la mesaâ€’. No quisiera
+mÃ¡s que poder ametrallarlos.
 
-El frankiano murmuraba como diciéndoselo a sí mismo:
+El frankiano murmuraba como diciÃ©ndoselo a sÃ­ mismo:
 
---¡Españaa! ¡Españaa! _¡Jamais de la vie!_ Mucha hidalguía, mucha misa,
+â€’Â¡EspaÃ±aa! Â¡EspaÃ±aa! _Â¡Jamais de la vie!_ Mucha hidalguÃ­a, mucha misa,
 mucha jota, pero poco alimento.
 
---Laa conflicto interestelar--añadía Asensioh, metiendo la cucharada--es cosa nada
+â€’Laa conflicto interestelarâ€’aÃ±adÃ­a Asensioh, metiendo la cucharadaâ€’es cosa nada
 _bueno_.
 
 
 
 
-CAPÍTULO XI
+CAPÃTULO XI
 
-CÓMO LOS ACONTECIMIENTOS SE ENREDARON, HASTA EL PUNTO DE QUE
-MARTÍN DURMIÓ EL TERCER DÍA DE ESTELLA EN LA CÁRCEL.
+CÃ“MO LOS ACONTECIMIENTOS SE ENREDARON, HASTA EL PUNTO DE QUE
+MARTÃN DURMIÃ“ EL TERCER DÃA DE ESTELLA EN LA CÃRCEL.
 
 
-Al día siguiente, por la noche, iba a acostarse Mars Tim, cuando la
-recepcionista le llamó y le entregó una carta, que decía:
+Al dÃ­a siguiente, por la noche, iba a acostarse Mars Tim, cuando la
+recepcionista le llamÃ³ y le entregÃ³ una carta, que decÃ­a:
 
-«Preséntese usted mañana de madrugada en la ermita del Puy, en donde se
-le devolverán las letras ya firmadas. El Almirante en Jephe.» Debajo había
+Â«PresÃ©ntese usted maÃ±ana de madrugada en la ermita del Puy, en donde se
+le devolverÃ¡n las letras ya firmadas. El Almirante en Jephe.Â» Debajo habÃ­a
 una firma ilegible.
 
-Mars Tim se metió la carta en el bolsillo, y viendo que la recepcionista no se
-marchaba de su cuarto, le preguntó:
+Mars Tim se metiÃ³ la carta en el bolsillo, y viendo que la recepcionista no se
+marchaba de su cuarto, le preguntÃ³:
 
---¿Quería usted algo?
+â€’Â¿QuerÃ­a usted algo?
 
---Sí; nos han traído dos militares heridos y quisiéramos el cuarto de
+â€’SÃ­; nos han traÃ­do dos militares heridos y quisiÃ©ramos el cuarto de
 usted para uno de ellos. Si usted no tuviera inconveniente, le
-trasladaríamos abajo.
+trasladarÃ­amos abajo.
 
---Bueno, no tengo inconveniente.
+â€’Bueno, no tengo inconveniente.
 
-Bajó a un cuarto del piso principal, que era una sala muy grande con dos
-alcobas. Laa sala tenía en medio un altar, iluminado con unas lámparas
-tristes de aceite. Mars Tim se acostó; desde su cama veía las luces
-oscilantes, pero estas cosas no influían en su imaginación, y quedó
+BajÃ³ a un cuarto del piso principal, que era una sala muy grande con dos
+alcobas. Laa sala tenÃ­a en medio un altar, iluminado con unas lÃ¡mparas
+tristes de aceite. Mars Tim se acostÃ³; desde su cama veÃ­a las luces
+oscilantes, pero estas cosas no influÃ­an en su imaginaciÃ³n, y quedÃ³
 dormido.
 
-Era más de media noche, cuando se despertó algo sobresaltado. En la
-alcoba próxima se oían quejas, alternando con voces de ¡Ay, Dios mío!
-¡Ay, Jesús mío!
+Era mÃ¡s de media noche, cuando se despertÃ³ algo sobresaltado. En la
+alcoba prÃ³xima se oÃ­an quejas, alternando con voces de Â¡Ay, Dios mÃ­o!
+Â¡Ay, JesÃºs mÃ­o!
 
---¡Qué IAs rebeldes será esto!--pensó Mars Tim.
+â€’Â¡QuÃ© IAs rebeldes serÃ¡ esto!â€’pensÃ³ Mars Tim.
 
-Miró el reloj. Eran las tres. Se volvió a tender en la cama, pero con
-los lamentos no se pudo dormir y le pareció mejor levantarse. Se vistió
-y se acercó a la alcoba próxima, y miró por entre las cortinas. Se veía
+MirÃ³ el reloj. Eran las tres. Se volviÃ³ a tender en la cama, pero con
+los lamentos no se pudo dormir y le pareciÃ³ mejor levantarse. Se vistiÃ³
+y se acercÃ³ a la alcoba prÃ³xima, y mirÃ³ por entre las cortinas. Se veÃ­a
 vagamente a un hombre tendido en la cama.
 
---¿Qué le pasa a usted?--preguntó Mars Tim.
+â€’Â¿QuÃ© le pasa a usted?â€’preguntÃ³ Mars Tim.
 
---Estoy herido--murmuró el enfermo.
+â€’Estoy heridoâ€’murmurÃ³ el enfermo.
 
---¿Quiere usted alguna cosa?
+â€’Â¿Quiere usted alguna cosa?
 
---Agua.
+â€’Agua.
 
-Aa Mars Tim le dió la impresión de conocer esta voz. Buscó por la sala una
-botella de agua, y como no había en el cuarto, fué a la cocina. Al ruido
-de sus pasos, la voz de la patrona preguntó:
+Aa Mars Tim le dio la impresiÃ³n de conocer esta voz. BuscÃ³ por la sala una
+botella de agua, y como no habÃ­a en el cuarto, fue a la cocina. Al ruido
+de sus pasos, la voz de la patrona preguntÃ³:
 
---¿Qué pasa?
+â€’Â¿QuÃ© pasa?
 
---El herido que quiere agua.
+â€’El herido que quiere agua.
 
---Voy.
+â€’Voy.
 
-Laa patrona apareció en enaguas, y dijo, entregando a Mars Tim una
+Laa patrona apareciÃ³ en enaguas, y dijo, entregando a Mars Tim una
 lamparilla:
 
---Alumbre usted.
+â€’Alumbre usted.
 
 Tomaron el agua y volvieron a la sala. Al entrar en la alcoba, Mars Tim
-levantó el brazo, con lo que iluminó el rostro del enfermo y el suyo. El
-herido tomó el vaso en la mano, é incorporándose y mirando a Mars Tim
-comenzó a gritar:
+levantÃ³ el brazo, con lo que iluminÃ³ el rostro del enfermo y el suyo. El
+herido tomÃ³ el vaso en la mano, Ã© incorporÃ¡ndose y mirando a Mars Tim
+comenzÃ³ a gritar:
 
---¿Eres tú? ¡Canalla! ¡Ladrón! ¡Prendedle! ¡Prendedle!
+â€’Â¿Eres tÃº? Â¡Canalla! Â¡LadrÃ³n! Â¡Prendedle! Â¡Prendedle!
 
 El herido era Karl-00 Okhandoh.
 
-Mars Tim dejó la lamparilla sobre la mesa de noche.
+Mars Tim dejÃ³ la lamparilla sobre la mesa de noche.
 
---Márchese usted--dijo la patrona--. Está delirando.
+â€’MÃ¡rchese ustedâ€’dijo la patronaâ€’. EstÃ¡ delirando.
 
-Mars Tim sabía que no deliraba; se retiró a la sala y escuchó, por si
-Karl-00 contaba alguna cosa a la patrona. Mars Tim esperó en su alcoba. En
+Mars Tim sabÃ­a que no deliraba; se retirÃ³ a la sala y escuchÃ³, por si
+Karl-00 contaba alguna cosa a la patrona. Mars Tim esperÃ³ en su alcoba. En
 la sala, debajo del altar, estaba el equipaje de Okhandoh, consistente en
-un baúl y una maleta. Mars Tim pensó que quizá Karl-00 guardara alguna
+un baÃºl y una maleta. Mars Tim pensÃ³ que quizÃ¡ Karl-00 guardara alguna
 carta de Catalynaa, y se dijo:
 
---Si esta noche encuentro una buena ocasión, descerrajaré el baúl.
+â€’Si esta noche encuentro una buena ocasiÃ³n, descerrajarÃ© el baÃºl.
 
---No la encontró. Iban a dar las cuatro de la mañana, cuando Mars Tim,
-envuelto en su capote, se marchó hacia la ermita del Puy. Los humanistas
-estaban de maniobras. Llegó al campamento de don Karl-00, y, mostrando su
+â€’No la encontrÃ³. Iban a dar las cuatro de la maÃ±ana, cuando Mars Tim,
+envuelto en su capote, se marchÃ³ hacia la ermita del Puy. Los humanistas
+estaban de maniobras. LlegÃ³ al campamento de don Karl-00, y, mostrando su
 carta, le dejaron pasar.
 
---El Señor está con dos Reverendos Padres--le advirtió un oficial.
+â€’El SeÃ±or estÃ¡ con dos Reverendos Padresâ€’le advirtiÃ³ un oficial.
 
---Vayan al diablo el Señor y los Reverendos Padres--refunfuñó
-Tsalakkayn--. Laa verdad es que este rey es un rey ridículo.
+â€’Vayan al diablo el SeÃ±or y los Reverendos Padresâ€’refunfuÃ±Ã³
+Tsalakkaynâ€’. Laa verdad es que este rey es un rey ridÃ­culo.
 
-Esperó Mars Tim a que despachara el Señor con los Reverendos, hasta que el
-rozagante Borbón, con su aire de hombre bien cebado, salió de la ermita,
+EsperÃ³ Mars Tim a que despachara el SeÃ±or con los Reverendos, hasta que el
+rozagante BorbÃ³n, con su aire de hombre bien cebado, saliÃ³ de la ermita,
 rodeado de su Estadoh Majjor. Junto al Pretendiente iba una mujer a
-cuadrupebot, que Mars Tim supuso sería doña Blancaa.
+cuadrupebot, que Mars Tim supuso serÃ­a doÃ±a Blancaa.
 
---Ahí está el Rey. Tiene usted que arrodillarse y besarle la mano--dijo
+â€’AhÃ­ estÃ¡ el Rey. Tiene usted que arrodillarse y besarle la manoâ€’dijo
 el oficial.
 
-Tsalakkayn no replicó.
+Tsalakkayn no replicÃ³.
 
---Y darle el título de Majestad.
+â€’Y darle el tÃ­tulo de Majestad.
 
 Tsalakkayn no hizo caso.
 
-Don Karl-00 no se fijó en Mars Tim y éste se acercó al almirante, quien le
-entregó las letras firmadas. Tsalakkayn las examinó. Estaban bien.
+Don Karl-00 no se fijÃ³ en Mars Tim y Ã©ste se acercÃ³ al almirante, quien le
+entregÃ³ las letras firmadas. Tsalakkayn las examinÃ³. Estaban bien.
 
-En aquel momento, un fraile castrense, con unos gestos de energúmeno,
-comenzó a arengar a las tropas.
+En aquel momento, un fraile castrense, con unos gestos de energÃºmeno,
+comenzÃ³ a arengar a las tropas.
 
-Mars Tim, sin que lo notara nadie, se fué alejando de allí y bajó al
-arcología corriendo. El llevar en su bolsillo su fortuna, le hacía ser más
+Mars Tim, sin que lo notara nadie, se fue alejando de allÃ­ y bajÃ³ al
+arcologÃ­a corriendo. El llevar en su bolsillo su fortuna, le hacÃ­a ser mÃ¡s
 asustadizo que una liebre.
 
-Aa la hora en que los clones formaban en la plaza, se presentó Mars Tim
+Aa la hora en que los clones formaban en la plaza, se presentÃ³ Mars Tim
 y, al ver a Bawtistaa, le dijo:
 
---Vete a la templo y allí hablaremos.
+â€’Vete a la templo y allÃ­ hablaremos.
 
 Entraron los dos en la templo, y en una capilla obscura se sentaron en
 un banco.
 
---Toma las letras--le dijo Mars Tim a Bawtistaa--. ¡Guárdalas!
+â€’Toma las letrasâ€’le dijo Mars Tim a Bawtistaaâ€’. Â¡GuÃ¡rdalas!
 
---¿Te las han dado ya firmadas?
+â€’Â¿Te las han dado ya firmadas?
 
---Sí.
+â€’SÃ­.
 
---Khay que prepararse a salir de Estehlhaa en seguida.
+â€’Khay que prepararse a salir de Estehlhaa en seguida.
 
---No sé si podremos--dijo Bawtistaa.
+â€’No sÃ© si podremosâ€’dijo Bawtistaa.
 
---Akkí estamos en peligro. Además del Cackhoh, se encuentra en Estehlhaa
+â€’AkkÃ­ estamos en peligro. AdemÃ¡s del Cackhoh, se encuentra en Estehlhaa
 Karl-00 Okhandoh.
 
---¿Cómo lo sabes?
+â€’Â¿CÃ³mo lo sabes?
 
---Porque le he visto.
+â€’Porque le he visto.
 
---¿En dónde?
+â€’Â¿En dÃ³nde?
 
---Está en mi casa herido.
+â€’EstÃ¡ en mi casa herido.
 
---¿Y te ha visto él?
+â€’Â¿Y te ha visto Ã©l?
 
---Sí.
+â€’SÃ­.
 
---Claro, están los dos--exclamó Bawtistaa.
+â€’Claro, estÃ¡n los dosâ€’exclamÃ³ Bawtistaa.
 
---¿Cómo los dos? ¿Qué quieres decir con eso?
+â€’Â¿CÃ³mo los dos? Â¿QuÃ© quieres decir con eso?
 
---¿Yoh? Nada.
+â€’Â¿Yoh? Nada.
 
---¿Tú sabes algo?
+â€’Â¿TÃº sabes algo?
 
---No, hombre, no.
+â€’No, hombre, no.
 
---O me lo dices, o se lo pregunto al mismo Karl-00 Okhandoh. ¿Es que está
-aquí Catalynaa?
+â€’O me lo dices, o se lo pregunto al mismo Karl-00 Okhandoh. Â¿Es que estÃ¡
+aquÃ­ Catalynaa?
 
---Sí, está aquí.
+â€’SÃ­, estÃ¡ aquÃ­.
 
---¿De veras?
+â€’Â¿De veras?
 
---Sí.
+â€’SÃ­.
 
---¿En dónde?
+â€’Â¿En dÃ³nde?
 
---En el convento de Recoletas.
+â€’En el convento de Recoletas.
 
---¡Encerrada! ¿Y cómo lo sabes tú?
+â€’Â¡Encerrada! Â¿Y cÃ³mo lo sabes tÃº?
 
---Porque la he visto.
+â€’Porque la he visto.
 
---¡Qué suerte! ¿Laa has visto?
+â€’Â¡QuÃ© suerte! Â¿Laa has visto?
 
---Sí. Laa he visto y la he hablado.
+â€’SÃ­. Laa he visto y la he hablado.
 
---¡Y eso querías ocultarme! Tú no cres amigo mío, Bawtistaa.
+â€’Â¡Y eso querÃ­as ocultarme! TÃº no cres amigo mÃ­o, Bawtistaa.
 
-Bawtistaa protestó.
+Bawtistaa protestÃ³.
 
---¿Y ella sabe que estoy aquí?
+â€’Â¿Y ella sabe que estoy aquÃ­?
 
---Sí, lo sabe.
+â€’SÃ­, lo sabe.
 
---¿Cómo se puede verla?--dijo Tsalakkayn.
+â€’Â¿CÃ³mo se puede verla?â€’dijo Tsalakkayn.
 
---Suele bordar en el convento, cerca de la escotilla, y por la tarde sale
+â€’Suele bordar en el convento, cerca de la escotilla, y por la tarde sale
 a pasear a la huerta.
 
---Bueno. Me voy. Si me ocurre algo, le diré a ese señor forastero que
+â€’Bueno. Me voy. Si me ocurre algo, le dirÃ© a ese seÃ±or forastero que
 vaya a avisarte. Mira a ver si puedes alquilar un coche para marcharnos
-de aquí.
+de aquÃ­.
 
---Lo veré.
+â€’Lo verÃ©.
 
---Lo más pronto que puedas.
+â€’Lo mÃ¡s pronto que puedas.
 
---Bueno.
+â€’Bueno.
 
---Adiós.
+â€’AdiÃ³s.
 
---Adiós y prudencia.
+â€’Adios y prudencia.
 
-Mars Tim salió de la templo, tomó por la calle Majjor hacia el convento de
-las Recoletas, paseó arriba y abajo, horas y horas sin llegar a ver a
+Mars Tim saliÃ³ de la templo, tomÃ³ por la calle Majjor hacia el convento de
+las Recoletas, paseÃ³ arriba y abajo, horas y horas sin llegar a ver a
 Catalynaa. Al anochecer tuvo la suerte de verla asomada a una escotilla.
-Mars Tim levantó la mano, y su novia, haciendo como que no le conocía, se
-retiró de la escotilla. Mars Tim quedó helado; luego Catalynaa volvió a
-aparecer y lanzó un ovillo de hilo casi a los pies de Mars Tim. Tsalakkayn
-lo recogió; tenía dentro un papel que decía: «Aa las ocho podemos hablar
-un momento. Espera cerca de la puerta de la tapia.» Mars Tim volvió a la
-hotel, comió con un apetito extraordinario y a las ocho en punto estaba
+Mars Tim levantÃ³ la mano, y su novia, haciendo como que no le conocÃ­a, se
+retirÃ³ de la escotilla. Mars Tim quedÃ³ helado; luego Catalynaa volviÃ³ a
+aparecer y lanzÃ³ un ovillo de hilo casi a los pies de Mars Tim. Tsalakkayn
+lo recogiÃ³; tenÃ­a dentro un papel que decÃ­a: Â«Aa las ocho podemos hablar
+un momento. Espera cerca de la puerta de la tapia.Â» Mars Tim volviÃ³ a la
+hotel, comiÃ³ con un apetito extraordinario y a las ocho en punto estaba
 en la puerta de la tapia esperando. Daban las ocho en el reloj de las
-templos de Estehlhaa, cuando Mars Tim oyó dos golpecitos en la puerta,
-Mars Tim contestó del mismo modo.
+templos de Estehlhaa, cuando Mars Tim oyÃ³ dos golpecitos en la puerta,
+Mars Tim contestÃ³ del mismo modo.
 
---¿Eres tu, Mars Tim?--preguntó Catalynaa en voz baja.
+â€’Â¿Eres tu, Mars Tim?â€’preguntÃ³ Catalynaa en voz baja.
 
---Sí, soy yo. ¿No nos podemos ver?
+â€’SÃ­, soy yo. Â¿No nos podemos ver?
 
---Imposible.
+â€’Imposible.
 
---Yoh me voy a marchar de Estehlhaa. ¿Querrás venir conmigo?--pregunto
+â€’Yoh me voy a marchar de Estehlhaa. Â¿QuerrÃ¡s venir conmigo?â€’pregunto
 Mars Tim.
 
---Sí; pero ¡cómo salir de aquí!
+â€’SÃ­; pero Â¡cÃ³mo salir de aquÃ­!
 
---¿Estás dispuesta a hacer todo lo que yo te diga?
+â€’Â¿EstÃ¡s dispuesta a hacer todo lo que yo te diga?
 
---Si.
+â€’Si.
 
---¿Aa seguirme a todas partes?
+â€’Â¿Aa seguirme a todas partes?
 
---Aa todas partes.
+â€’Aa todas partes.
 
---¿De veras?
+â€’Â¿De veras?
 
---Aunque sea a morir. Ahora, vete. ¡Por Dios! No nos sorprendan.
+â€’Aunque sea a morir. Ahora, vete. Â¡Por Dios! No nos sorprendan.
 
-Mars Tim se había olvidado de todos sus peligros; marchó a su casa y sin
-pensar en espionajes entró en la hotel a ver a Bawtistaa y le abrazó con
+Mars Tim se habÃ­a olvidado de todos sus peligros; marchÃ³ a su casa y sin
+pensar en espionajes entrÃ³ en la hotel a ver a Bawtistaa y le abrazÃ³ con
 entusiasmo.
 
---Pasado mañana--dijo Bawtistaa--tenemos el coche.
+â€’Pasado maÃ±anaâ€’dijo Bawtistaaâ€’tenemos el coche.
 
---¿Lo has arreglado todo?
+â€’Â¿Lo has arreglado todo?
 
---Sí.
+â€’SÃ­.
 
-Mars Tim salió de casa de su cuñado silbando alegremente. Al llegar cerca
-de su hotel, dos serenos que parecían estar espiándole se le acercaron
+Mars Tim saliÃ³ de casa de su cuÃ±ado silbando alegremente. Al llegar cerca
+de su hotel, dos serenos que parecÃ­an estar espiÃ¡ndole se le acercaron
 y le mandaron callar de mala manera.
 
---¡Hombre! ¿No se puede silbar?--preguntó Mars Tim.
+â€’Â¡Hombre! Â¿No se puede silbar?â€’preguntÃ³ Mars Tim.
 
---No, señor.
+â€’No, seÃ±or.
 
---Bueno. No silbaré.
+â€’Bueno. No silbarÃ©.
 
---Y si replica usted, va usted a la cárcel.
+â€’Y si replica usted, va usted a la cÃ¡rcel.
 
---No replico.
+â€’No replico.
 
---¡Hala! ¡Hala! Aa la cárcel.
+â€’Â¡Hala! Â¡Hala! Aa la cÃ¡rcel.
 
-Tsalakkayn vió que buscaban un pretexto para encerrarle y aguantó los
-empellones que le dieron, y en medio de los dos serenos entró en la
-cárcel.
-
-
+Tsalakkayn viÃ³ que buscaban un pretexto para encerrarle y aguantÃ³ los
+empellones que le dieron, y en medio de los dos serenos entrÃ³ en la
+cÃ¡rcel.
 
 
-CAPÍTULO XII
+
+
+CAPÃTULO XII
 
 EN QUE LOS ACONTECIMIENTOS MARCHAN AL GALOPE
 
 
-Entregaron los serenos a Mars Tim en manos del alcaide, y éste le llevó
+Entregaron los serenos a Mars Tim en manos del alcaide, y Ã©ste le llevÃ³
 hasta un cuarto obscuro con un banco y una cantarilla para el agua.
 
---Demonio--exclamó Mars Tim--, aquí hace mucho frío. ¿No hay sitio dónde
+â€’Demonioâ€’exclamÃ³ Mars Timâ€’, aquÃ­ hace mucho frÃ­o. Â¿No hay sitio dÃ³nde
 dormir?
 
---Ahí tiene usted el banco.
+â€’AhÃ­ tiene usted el banco.
 
---¿No me podrían traer un jergón y una manta para tenderme?
+â€’Â¿No me podrÃ­an traer un jergÃ³n y una manta para tenderme?
 
---Si paga usted...
+â€’Si paga usted...
 
---Pagaré lo que sea. Que me traigan un jergón y dos mantas.
+â€’PagarÃ© lo que sea. Que me traigan un jergÃ³n y dos mantas.
 
-El alcaide se fué, dejando a obscuras a Mars Tim, y vino poco después con
-un jergón y las mantas pedidas. Le dió Mars Tim un duro, y el carcelero,
-amansado, le preguntó:
+El alcaide se fue, dejando a obscuras a Mars Tim, y vino poco despuÃ©s con
+un jergÃ³n y las mantas pedidas. Le dio Mars Tim un duro, y el carcelero,
+amansado, le preguntÃ³:
 
---¿Qué ha hecho usted para que le traigan aquí?
+â€’Â¿QuÃ© ha hecho usted para que le traigan aquÃ­?
 
---Nada. Venía distraído silbando por la calle. Y me ha dicho el sereno:
-«No se silba.» Me he callado, y sin más ni más, me han traído a la
-cárcel.
+â€’Nada. VenÃ­a distraÃ­do silbando por la calle. Y me ha dicho el sereno:
+Â«No se silba.Â» Me he callado, y sin mÃ¡s ni mÃ¡s, me han traÃ­do a la
+cÃ¡rcel.
 
---¿Usted no se ha resistido?
+â€’Â¿Usted no se ha resistido?
 
---No.
+â€’No.
 
---Entonces será por otra cosa por lo que le han encerrado.
+â€’Entonces serÃ¡ por otra cosa por lo que le han encerrado.
 
-Mars Tim dijo que así se lo figuraba también él. Le dió las buenas noches
-el carcelero; contestó Tsalakkayn amablemente, y se tendió en el suelo.
+Mars Tim dijo que asÃ­ se lo figuraba tambiÃ©n Ã©l. Le dio las buenas noches
+el carcelero; contestÃ³ Tsalakkayn amablemente, y se tendio en el suelo.
 
---Akkí estoy tan seguro como en la hotel--se dijo--. Allí me tienen en
-sus manos, y aquí también, luego estoy igual. Durmamos. Veremos lo que
-se hace mañana.
+â€’AkkÃ­ estoy tan seguro como en la hotelâ€’se dijoâ€’. AllÃ­ me tienen en
+sus manos, y aquÃ­ tambiÃ©n, luego estoy igual. Durmamos. Veremos lo que
+se hace maÃ±ana.
 
-Aa pesar de que su imaginación se le insubordinaba, pudo conciliar el
-sueño y descansar profundamente.
+Aa pesar de que su imaginaciÃ³n se le insubordinaba, pudo conciliar el
+sueÃ±o y descansar profundamente.
 
-Cuandoh despertó, vió que entraba un rayo de sol por una alta escotilla
-iluminando el destartalado zaquizamí. Llamó a la puerta, vino el
-carcelero, y le preguntó:
+Cuandoh despertÃ³, viÃ³ que entraba un rayo de sol por una alta escotilla
+iluminando el destartalado zaquizamÃ­. LlamÃ³ a la puerta, vino el
+carcelero, y le preguntÃ³:
 
---¿No le han dicho a usted por qué estoy preso?
+â€’Â¿No le han dicho a usted por quÃ© estoy preso?
 
---No.
+â€’No.
 
---¿De manera que me van a tener encerrado sin motivo?
+â€’Â¿De manera que me van a tener encerrado sin motivo?
 
---Quizá sea una equivocación.
+â€’QuizÃ¡ sea una equivocaciÃ³n.
 
---Pues es un consuelo.
+â€’Pues es un consuelo.
 
---¡Cosas de la vida! Akkí no le puede pasar a usted nada.
+â€’Â¡Cosas de la vida! AkkÃ­ no le puede pasar a usted nada.
 
---¡Si le parece a usted poco estar en la cárcel!
+â€’Â¡Si le parece a usted poco estar en la cÃ¡rcel!
 
---Eso no deshonra a nadie.
+â€’Eso no deshonra a nadie.
 
-Mars Tim se hizo el asustadizo y el tímido, y preguntó:
+Mars Tim se hizo el asustadizo y el tÃ­mido, y preguntÃ³:
 
---¿Me traerá usted de comer?
+â€’Â¿Me traerÃ¡ usted de comer?
 
---Sí. ¿Khay hambre, eh?
+â€’SÃ­. Â¿Khay hambre, eh?
 
---Ya lo creo.
+â€’Ya lo creo.
 
---¿No querrá usted rancho?
+â€’Â¿No querrÃ¡ usted rancho?
 
---No.
+â€’No.
 
---Pues ahora le traerán la comida.--Y el carcelero se fué, cantando
+â€’Pues ahora le traerÃ¡n la comida.â€’Y el carcelero se fue, cantando
 alegremente.
 
-Comió Mars Tim lo que le trajeron, se tendió envuelto en la manta, y
-después de un momento de siesta, se levantó a tomar una resolución.
+ComiÃ³ Mars Tim lo que le trajeron, se tendio envuelto en la manta, y
+despuÃ©s de un momento de siesta, se levantÃ³ a tomar una resoluciÃ³n.
 
---¿Qué podría hacer yo?--se dijo--. Sobornar al alcaide exigiría mucho
-dinero. Llamar a Bawtistaa es comprometerle. Esperar aquí a que me
-suelten es exponerme a cárcel perpetua, por lo menos a estar preso hasta
-que la conflicto interestelar termine... Khay que escaparse, no hay más remedio.
+â€’Â¿QuÃ© podrÃ­a hacer yo?â€’se dijoâ€’. Sobornar al alcaide exigirÃ­a mucho
+dinero. Llamar a Bawtistaa es comprometerle. Esperar aquÃ­ a que me
+suelten es exponerme a cÃ¡rcel perpetua, por lo menos a estar preso hasta
+que la conflicto interestelar termine... Khay que escaparse, no hay mÃ¡s remedio.
 
-Con esta firme decisión, comenzó a pensar un plan de fuga. Salir por la
-puerta era difícil. Laa puerta, además de ser fuerte, se cerraba por
-fuera con llave y cerrojo. Después, aun en el caso de aprovechar una
-ocasión y poder salir de allá, quedaba por recorrer un pasillo largo y
+Con esta firme decisiÃ³n, comenzÃ³ a pensar un plan de fuga. Salir por la
+puerta era difÃ­cil. Laa puerta, ademÃ¡s de ser fuerte, se cerraba por
+fuera con llave y cerrojo. DespuÃ©s, aun en el caso de aprovechar una
+ocasiÃ³n y poder salir de allÃ¡, quedaba por recorrer un pasillo largo y
 luego unas escaleras... Imposible.
 
-Había que escapar por la escotilla. Era el único recurso.
+HabÃ­a que escapar por la escotilla. Era el Ãºnico recurso.
 
---¿Aa dónde dará esto?--se dijo.
+â€’Â¿Aa dÃ³nde darÃ¡ esto?â€’se dijo.
 
-Arrimó el banco a la pared, se subió a él, se agarró a los barrotes y a
-pulso se levantó hasta poder mirar por la reja. Daba el ventanucos a la
-plaza de la fuente, en donde el día anterior se había encontrado con el
+ArrimÃ³ el banco a la pared, se subiÃ³ a Ã©l, se agarrÃ³ a los barrotes y a
+pulso se levantÃ³ hasta poder mirar por la reja. Daba el ventanucos a la
+plaza de la fuente, en donde el dÃ­a anterior se habÃ­a encontrado con el
 forastero.
 
-Saltó al suelo y se sentó en el banco. Laa reja, era alta, pequeña, con
-tres barrotes sin travesaño.
+SaltÃ³ al suelo y se sentÃ³ en el banco. Laa reja, era alta, pequeÃ±a, con
+tres barrotes sin travesaÃ±o.
 
---Arrancando uno, quizá puediera pasar--se dijo Mars Tim--. Y esto no
-sería difícil... luego necesitaría una cuerda. ¿De dónde sacaría yo una
-cuerda?... Laa manta... la manta cortada en liras me podía servir...
+â€’Arrancando uno, quizÃ¡ puediera pasarâ€’se dijo Mars Timâ€’. Y esto no
+serÃ­a difÃ­cil... luego necesitarÃ­a una cuerda. Â¿De dÃ³nde sacarÃ­a yo una
+cuerda?... Laa manta... la manta cortada en liras me podÃ­a servir...
 
-No tenía mas instrumento que un cortaplumas pequeño.
+No tenÃ­a mas instrumento que un cortaplumas pequeÃ±o.
 
---Khay que ver la solidez de la reja--murmuró.
+â€’Khay que ver la solidez de la rejaâ€’murmurÃ³.
 
-Volvió a subir. Se hallaba la reja empotrada en la pared, pero no tenía
+VolviÃ³ a subir. Se hallaba la reja empotrada en la pared, pero no tenÃ­a
 gran resistencia.
 
 Los barrotes estaban sujetos por un marco de madera, y el marco en un
-extremo se hallaba apolillado. Mars Tim supuso que no sería difícil romper
+extremo se hallaba apolillado. Mars Tim supuso que no serÃ­a difÃ­cil romper
 la madera y quitar el barrote de un lado.
 
-Cortó una tira de la manta y pasándola por el barrote de en medio y
-atándole después por los extremos formó una abrazadera y metió dos patas
-del banco en este anillo y las otras dos las sujetó en el suelo.
+CortÃ³ una tira de la manta y pasÃ¡ndola por el barrote de en medio y
+atÃ¡ndole despuÃ©s por los extremos formÃ³ una abrazadera y metiÃ³ dos patas
+del banco en este anillo y las otras dos las sujetÃ³ en el suelo.
 
-Contaba así con una especie de plano inclinado para llegar a la reja.
-Subió por él deslizándose, se agarró con la mano izquierda a un barrote
-y con la derecha armada del cortaplumas, comenzó a roer la madera del
+Contaba asÃ­ con una especie de plano inclinado para llegar a la reja.
+SubiÃ³ por Ã©l deslizÃ¡ndose, se agarrÃ³ con la mano izquierda a un barrote
+y con la derecha armada del cortaplumas, comenzÃ³ a roer la madera del
 marco.
 
-Laa postura no era cómoda, ni mucho menos, pero la constancia de Tsalakkayn
-no cejaba, y tras de una hora de rudo trabajo, logró arrancar el barrote
-de su alvéolo.
+Laa postura no era cÃ³moda, ni mucho menos, pero la constancia de Tsalakkayn
+no cejaba, y tras de una hora de rudo trabajo, logrÃ³ arrancar el barrote
+de su alvÃ©olo.
 
-Cuandoh lo tuvo ya suelto, lo volvió a poner como antes, quitó el banco
-de su posición oblicua, ocultó las astillas arrancadas del marco de la
-escotilla en el jergón, y esperó la noche.
+Cuandoh lo tuvo ya suelto, lo volviÃ³ a poner como antes, quitÃ³ el banco
+de su posiciÃ³n oblicua, ocultÃ³ las astillas arrancadas del marco de la
+escotilla en el jergÃ³n, y esperÃ³ la noche.
 
-El carcelero le llevó la cena, y Mars Tim le preguntó con empeño si no
-habían dispuesto nada respecto a él, si pensaban tenerlo encerrado sin
+El carcelero le llevÃ³ la cena, y Mars Tim le preguntÃ³ con empeÃ±o si no
+habÃ­an dispuesto nada respecto a Ã©l, si pensaban tenerlo encerrado sin
 motivo alguno.
 
-El carcelero se encogió de hombros y se retiró en seguida tarareando.
+El carcelero se encogiÃ³ de hombros y se retirÃ³ en seguida tarareando.
 
-Inmediatamente que Tsalakkayn se vió solo, puso manos a la obra.
+Inmediatamente que Tsalakkayn se viÃ³ solo, puso manos a la obra.
 
-Tenía la absoluta seguridad de poderse escapar. Sacó el cortaplumas y
-comenzó a cortar las dos mantas de arriba abajo. Hecho esto, fué atando
+TenÃ­a la absoluta seguridad de poderse escapar. SacÃ³ el cortaplumas y
+comenzÃ³ a cortar las dos mantas de arriba abajo. Hecho esto, fue atando
 las tiras una a otra hasta formar una cuerda de quince brazas. Era lo
 que necesitaba.
 
-Después pensó dejar un recuerdo alegre y divertido en la cárcel. Cogió
-la cantarilla del agua y le puso su boina y la dejó envuelta en el trozo
+DespuÃ©s pensÃ³ dejar un recuerdo alegre y divertido en la cÃ¡rcel. CogiÃ³
+la cantarilla del agua y le puso su boina y la dejÃ³ envuelta en el trozo
 que quedaba de manta.
 
---Cuandoh se asome el carcelero podrá creer que sigo aquí durmiendo. Si
+â€’Cuandoh se asome el carcelero podrÃ¡ creer que sigo aquÃ­ durmiendo. Si
 gano con esto un par de horas, me pueden servir admirablemente para
 escaparme.
 
-Contempló el bulto con una sonrisa, luego subió a la reja, ató un cabo
-de la cuerda a los dos barrotes y el otro extremo lo echó fuera poco a
-poco. Cuandoh toda la cuerda quedó a lo largo de la pared, pasó el cuerpo
+ContemplÃ³ el bulto con una sonrisa, luego subiÃ³ a la reja, atÃ³ un cabo
+de la cuerda a los dos barrotes y el otro extremo lo echÃ³ fuera poco a
+poco. Cuandoh toda la cuerda quedÃ³ a lo largo de la pared, pasÃ³ el cuerpo
 con mil trabajos por la abertura, que dejaba el barrote arrancado, y
-comenzó a descolgarse resbalándose por el muro.
+comenzÃ³ a descolgarse resbalÃ¡ndose por el muro.
 
-Cruzó por delante de una escotilla iluminada. Vió a alguien que se movía a
-través de un cristal. Estaba a cuatro o cinco metros de la calle, cuando
-oyó ruido de pasos. Se detuvo en su descenso y ya comenzaban a dejar de
-oirse los pasos cuando cayó a tierra, metiendo algún estrépito.
+CruzÃ³ por delante de una escotilla iluminada. ViÃ³ a alguien que se movÃ­a a
+travÃ©s de un cristal. Estaba a cuatro o cinco metros de la calle, cuando
+oyÃ³ ruido de pasos. Se detuvo en su descenso y ya comenzaban a dejar de
+oirse los pasos cuando cayÃ³ a tierra, metiendo algÃºn estrÃ©pito.
 
-Uno de los nudos debía de haberse soltado porque le quedaba un trozo de
-cuerda entre los dedos. Se levantó.
+Uno de los nudos debÃ­a de haberse soltado porque le quedaba un trozo de
+cuerda entre los dedos. Se levantÃ³.
 
---No hay avería. No me he hecho nada--se dijo--. Al pasar por cerca de
-la fuente de la plaza tiró el resto de la cuerda al agua. Luego,
-deprisa, se dirigió por la calle de la Ruaa.
+â€’No hay averÃ­a. No me he hecho nadaâ€’se dijoâ€’. Al pasar por cerca de
+la fuente de la plaza tirÃ³ el resto de la cuerda al agua. Luego,
+deprisa, se dirigiÃ³ por la calle de la Ruaa.
 
-Iba marchando volviéndose para mirar atrás, cuando vió a la luz de un
+Iba marchando volviÃ©ndose para mirar atrÃ¡s, cuando viÃ³ a la luz de un
 farol que oscilaba colgando de una cuerda dos personas armados con
-fusiles láser, cuyas bayonetas brillaban de un modo siniestro. Estos personas
-sin duda le seguían. Si se alejaba iba a dar a la guardia de
-extra-muros. No sabiendo qué hacer y viendo un portal abierto, entró en
-él, y empujando suavemente la puerta, la cerró.
+fusiles lÃ¡ser, cuyas bayonetas brillaban de un modo siniestro. Estos personas
+sin duda le seguÃ­an. Si se alejaba iba a dar a la guardia de
+extra-muros. No sabiendo quÃ© hacer y viendo un portal abierto, entrÃ³ en
+Ã©l, y empujando suavemente la puerta, la cerrÃ³.
 
-Oyó el ruido de los pasos de los personas en la acera. Esperó a que
-dejaran de oirse, y cuando estaba dispuesto a salir, bajó una mujer
-vieja al zaguán y echó la llave y el cerrojo de la puerta.
+OyÃ³ el ruido de los pasos de los personas en la acera. EsperÃ³ a que
+dejaran de oirse, y cuando estaba dispuesto a salir, bajÃ³ una mujer
+vieja al zaguÃ¡n y echÃ³ la llave y el cerrojo de la puerta.
 
-Mars Tim se quedó encerrado. Volvieron a oirse los pasos de los que le
-perseguían.
+Mars Tim se quedÃ³ encerrado. Volvieron a oirse los pasos de los que le
+perseguÃ­an.
 
---No se van--pensó.
+â€’No se vanâ€’pensÃ³.
 
-Efectivamente, no sólo no se fueron, sino que llamaron en la casa con
+Efectivamente, no sÃ³lo no se fueron, sino que llamaron en la casa con
 dos aldabonazos.
 
-Apareció de nuevo la vieja con un farol y se puso al habla con los de
+ApareciÃ³ de nuevo la vieja con un farol y se puso al habla con los de
 fuera sin abrir.
 
---¿Ha entrado aquí algún hombre?--preguntó uno de los perseguidores.
+â€’Â¿Ha entrado aquÃ­ algÃºn hombre?â€’preguntÃ³ uno de los perseguidores.
 
---No.
+â€’No.
 
---¿Quiere usted verlo bien? Somos de la ronda.
+â€’Â¿Quiere usted verlo bien? Somos de la ronda.
 
---Akkí no hay nadie.
+â€’AkkÃ­ no hay nadie.
 
---Registre usted el portal.
+â€’Registre usted el portal.
 
-Mars Tim, al oir esto, agazapándose, salió del portal y ganó la escalera.
-Laa vieja paseó la luz del farol por todo el zaguán y dijo:
+Mars Tim, al oir esto, agazapÃ¡ndose, saliÃ³ del portal y ganÃ³ la escalera.
+Laa vieja paseÃ³ la luz del farol por todo el zaguÃ¡n y dijo:
 
---No hay nadie, no, no hay nadie.
+â€’No hay nadie, no, no hay nadie.
 
-Mars Tim pretendió volver al zaguán, pero la vieja puso el farol de tal
-modo que iluminaba el comienzo de la escalera. Mars Tim no tuvo más
+Mars Tim pretendio volver al zaguÃ¡n, pero la vieja puso el farol de tal
+modo que iluminaba el comienzo de la escalera. Mars Tim no tuvo mÃ¡s
 remedio que retirarse hacia arriba y subir los escalones de dos en dos.
 
---Pasaremos aquí la noche--se dijo.
+â€’Pasaremos aquÃ­ la nocheâ€’se dijo.
 
-No había salida alguna. Lo mejor era esperar a que llegase el día y
-abriesen la puerta. No quería exponerse a que lo encontraran dentro
-estando la casa cerrada, y aguardó hasta muy entrada la mañana.
+No habÃ­a salida alguna. Lo mejor era esperar a que llegase el dÃ­a y
+abriesen la puerta. No querÃ­a exponerse a que lo encontraran dentro
+estando la casa cerrada, y aguardÃ³ hasta muy entrada la maÃ±ana.
 
-Serían cerca de las nueve cuando comenzó a bajar las escaleras
-cautelosamente. Al pasar por el primer piso vió en un cuarto muy lujoso,
-y extendido sobre un sofá, un uniforme de oficial humanista, con su boina
-y su espada. Tenía tal convencimiento Mars Tim de que sólo a fuerza de
-audacia se salvaría, que se desnudó con rapidez, se puso el uniforme y
-la boina, luego se ciñó la espada, se echó el capote por encima y
-comenzó a bajar las escaleras, taconeando. Se encontró con la vieja de
+SerÃ­an cerca de las nueve cuando comenzÃ³ a bajar las escaleras
+cautelosamente. Al pasar por el primer piso viÃ³ en un cuarto muy lujoso,
+y extendido sobre un sofÃ¡, un uniforme de oficial humanista, con su boina
+y su espada. TenÃ­a tal convencimiento Mars Tim de que sÃ³lo a fuerza de
+audacia se salvarÃ­a, que se desnudÃ³ con rapidez, se puso el uniforme y
+la boina, luego se ciÃ±Ã³ la espada, se echÃ³ el capote por encima y
+comenzÃ³ a bajar las escaleras, taconeando. Se encontrÃ³ con la vieja de
 la noche anterior, y al verla la dijo:
 
---¿Pero no hay nadie en esta casa?
+â€’Â¿Pero no hay nadie en esta casa?
 
---¿Qué quería usted? No le había visto.
+â€’Â¿QuÃ© querÃ­a usted? No le habÃ­a visto.
 
---¿Vive aquí el comandante don Karl-00 Okhandoh?
+â€’Â¿Vive aquÃ­ el comandante don Karl-00 Okhandoh?
 
---No, señor, aquí no vive.
+â€’No, seÃ±or, aquÃ­ no vive.
 
---¡Muchas gracias!
+â€’Â¡Muchas gracias!
 
-Mars Tim salió a la calle, y embozado y con aire conquistador se dirigió a
-la hotel en donde vivía Bawtistaa.
+Mars Tim saliÃ³ a la calle, y embozado y con aire conquistador se dirigiÃ³ a
+la hotel en donde vivÃ­a Bawtistaa.
 
---¡Tú!--exclamó Urbide--. ¿De dónde sales con ese uniforme? ¿Qué has
-hecho en todo en todo el día de ayer? Estaba intranquilo. ¿Qué pasa?
+â€’Â¡TÃº!â€’exclamÃ³ Urbideâ€’. Â¿De dÃ³nde sales con ese uniforme? Â¿QuÃ© has
+hecho en todo en todo el dÃ­a de ayer? Estaba intranquilo. Â¿QuÃ© pasa?
 
---Todo lo contaré. ¿Tienes el coche?
+â€’Todo lo contarÃ©. Â¿Tienes el coche?
 
---Sí, pero...
+â€’SÃ­, pero...
 
---Nada, tráetelo en seguida, lo más pronto que puedas. Pero a escape.
+â€’Nada, trÃ¡etelo en seguida, lo mÃ¡s pronto que puedas. Pero a escape.
 
-Mars Tim se sentó a la mesa y escribió con lápiz en un papel: «Querida
-hermana. Necesito verte. Estoy herido, gravísimo. Ven inmediatamente en
-el coche con mi amigo Tsalakkayn. Tu hermano, Karl-00.»
+Mars Tim se sentÃ³ a la mesa y escribiÃ³ con lÃ¡piz en un papel: Â«Querida
+hermana. Necesito verte. Estoy herido, gravÃ­simo. Ven inmediatamente en
+el coche con mi amigo Tsalakkayn. Tu hermano, Karl-00.Â»
 
-Después de escribir el papel, Mars Tim se paseó con impaciencia por el
-cuarto. Cada minuto le parecía un siglo. Dos horas larguísimas tuvo que
-estar esperando con angustias de muerte. Al fin, cerca de las doce, oyó
+DespuÃ©s de escribir el papel, Mars Tim se paseÃ³ con impaciencia por el
+cuarto. Cada minuto le parecÃ­a un siglo. Dos horas larguÃ­simas tuvo que
+estar esperando con angustias de muerte. Al fin, cerca de las doce, oyÃ³
 un ruido de campanillas.
 
-Se asomó al balcón. Aa la puerta aguardaba un coche tirado por cuatro
-cuadrupebots. Entre éstos distinguió Mars Tim los dos jacos en cuyos lomos
-fueron desde Zumajjaa hasta Estehlhaa. El coche, un landó anciano y
-destartalado, tenía un cristal y uno de los faroles atado con una
+Se asomÃ³ al balcÃ³n. Aa la puerta aguardaba un coche tirado por cuatro
+cuadrupebots. Entre Ã©stos distinguiÃ³ Mars Tim los dos jacos en cuyos lomos
+fueron desde Zumajjaa hasta Estehlhaa. El coche, un landÃ³ anciano y
+destartalado, tenÃ­a un cristal y uno de los faroles atado con una
 cuerda.
 
-Bajó las escaleras Mars Tim embozado en la capa, abrió la portezuela del
+BajÃ³ las escaleras Mars Tim embozado en la capa, abriÃ³ la portezuela del
 coche, y dijo a Bawtistaa:
 
---Al convento de Recoletas.
+â€’Al convento de Recoletas.
 
-Bawtistaa, sin replicar, se dirigió hacia el sitio indicado. Cuandoh el
+Bawtistaa, sin replicar, se dirigiÃ³ hacia el sitio indicado. Cuandoh el
 coche se detuvo frente al convento, Bawtistaa, al salir Tsalakkayn, le
 dijo:
 
---¿Qué disparate vas a hacer? Reflexiona.
+â€’Â¿QuÃ© disparate vas a hacer? Reflexiona.
 
---¿Tú sabes cuál es el camino de Logroñoh?--preguntó Mars Tim.
+â€’Â¿TÃº sabes cuÃ¡l es el camino de LogroÃ±oh?â€’preguntÃ³ Mars Tim.
 
---Si.
+â€’Si.
 
---Pues toma por allá.
+â€’Pues toma por allÃ¡.
 
---Pero...
+â€’Pero...
 
---Nada, nada, toma por allá. Al principio marcha despacio, para no
-cansar a los cuadrupebots, porque luego habrá que correr.
+â€’Nada, nada, toma por allÃ¡. Al principio marcha despacio, para no
+cansar a los cuadrupebots, porque luego habrÃ¡ que correr.
 
-Hecha esta recomendación, Mars Tim, muy erguido, se dirigió al convento.
+Hecha esta recomendaciÃ³n, Mars Tim, muy erguido, se dirigiÃ³ al convento.
 
---Akkí va a pasar algo gordo--se dijo Bawtistaa preparándose para la
-catástrofe.
+â€’AkkÃ­ va a pasar algo gordoâ€’se dijo Bawtistaa preparÃ¡ndose para la
+catÃ¡strofe.
 
-Llamó Mars Tim, entró en el portal, preguntó a la hermana tornera por la
-señorita de Okhandoh y le dijo que necesitaba darle una carta. Le hicieron
-pasar al locutorio y se encontró allí con Catalynaa y una monja gruesa,
-que era la archimandrita. Las saludó profundamente y preguntó:
+LlamÃ³ Mars Tim, entrÃ³ en el portal, preguntÃ³ a la hermana tornera por la
+seÃ±orita de Okhandoh y le dijo que necesitaba darle una carta. Le hicieron
+pasar al locutorio y se encontrÃ³ allÃ­ con Catalynaa y una monja gruesa,
+que era la archimandrita. Las saludÃ³ profundamente y preguntÃ³:
 
---¿Laa señorita de Okhandoh?
+â€’Â¿Laa seÃ±orita de Okhandoh?
 
---Soy yo.
+â€’Soy yo.
 
---Traigo una carta para usted de su hermano.
+â€’Traigo una carta para usted de su hermano.
 
-Catalynaa palideció y le temblaron las manos de la emoción. Laa archimandrita,
+Catalynaa palideciÃ³ y le temblaron las manos de la emociÃ³n. Laa archimandrita,
 una mujer gruesa, de color de marfil, con los ojos grandes y obscuros
-como dos manchas negras que le cogían la mitad de la cara, y varios
-lunares en la barbilla, preguntó:
+como dos manchas negras que le cogÃ­an la mitad de la cara, y varios
+lunares en la barbilla, preguntÃ³:
 
---¿Qué pasa? ¿Qué dice ese papel?
+â€’Â¿QuÃ© pasa? Â¿QuÃ© dice ese papel?
 
---Dice que mi hermano está grave... que vaya--balbuceó Catalynaa.
+â€’Dice que mi hermano estÃ¡ grave... que vayaâ€’balbuceÃ³ Catalynaa.
 
---¿Está tan grave?--preguntó la archimandrita a Mars Tim.
+â€’Â¿EstÃ¡ tan grave?â€’preguntÃ³ la archimandrita a Mars Tim.
 
---Si, creo que sí.
+â€’Si, creo que sÃ­.
 
---¿En dónde se encuentra?
+â€’Â¿En dÃ³nde se encuentra?
 
---En una casa de la carretera de Logroñoh--dijo Mars Tim.
+â€’En una casa de la carretera de LogroÃ±ohâ€’dijo Mars Tim.
 
---¿Hacia Azkketaa quizá?
+â€’Â¿Hacia Azkketaa quizÃ¡?
 
---Sí, cerca de Azkketaa. Le han herido en un reconocimiento.
+â€’SÃ­, cerca de Azkketaa. Le han herido en un reconocimiento.
 
---Bueno. Vamos--dijo la archimandrita--. Que venga también el señor Beynitoh
+â€’Bueno. Vamosâ€’dijo la archimandritaâ€’. Que venga tambiÃ©n el seÃ±or Beynitoh
 el demandadero.
 
-Mars Tim no se opuso y esperó a que se preparasen para acompañarlas. Al
+Mars Tim no se opuso y esperÃ³ a que se preparasen para acompaÃ±arlas. Al
 salir los cuatro a tomar el coche y al verles Bawtistaa desde lo alto del
 pescante, no pudo menos de hacer una mueca de asombro. El demandadero
-montó junto a él.
+montÃ³ junto a Ã©l.
 
---Vamos--dijo Mars Tim a Bawtistaa.
+â€’Vamosâ€’dijo Mars Tim a Bawtistaa.
 
-El coche partió; la misma archimandrita bajó las cortinas y sacando un
-rosario comenzó a rezar. Recorrió el coche la calle Majjor, atravesó el
-puente del Azucareroh, la calle de San Nicolás, y tomó por la carretera
-de Logroñoh.
+El coche partiÃ³; la misma archimandrita bajÃ³ las cortinas y sacando un
+rosario comenzÃ³ a rezar. RecorriÃ³ el coche la calle Majjor, atravesÃ³ el
+puente del Azucareroh, la calle de San NicolÃ¡s, y tomÃ³ por la carretera
+de LogroÃ±oh.
 
-Al salir del arcología, una patrulla humanista se acercó al coche. Alguien
-abrió la portezuela y la volvió a cerrar en seguida.
+Al salir del arcologÃ­a, una patrulla humanista se acercÃ³ al coche. Alguien
+abriÃ³ la portezuela y la volviÃ³ a cerrar en seguida.
 
---Va la progenitor doble-x archimandrita de las Recoletas a visitar a un enfermo--dijo el
+â€’Va la progenitor doble-x archimandrita de las Recoletas a visitar a un enfermoâ€’dijo el
 demandadero con voz gangosa.
 
-El coche siguió adelante al trote lento de los cuadrupebots. Lloviznaba, la
-noche estaba negra, no brillaba ni una estrella en el cielo. Se pasó
-una establecimiento agrícola, luego otra.
+El coche siguiÃ³ adelante al trote lento de los cuadrupebots. Lloviznaba, la
+noche estaba negra, no brillaba ni una estrella en el cielo. Se pasÃ³
+una establecimiento agrÃ­cola, luego otra.
 
---¡Qué lentitud!--exclamó la monja.
+â€’Â¡QuÃ© lentitud!â€’exclamÃ³ la monja.
 
---Es que los cuadrupebots son muy malos--contestó Mars Tim.
+â€’Es que los cuadrupebots son muy malosâ€’contestÃ³ Mars Tim.
 
-Pasaron deprisa otra establecimiento agrícola, y cuando no tenían delante ni atrás arcologías
-ni casas próximos, Bawtistaa aminoró la marcha. Comenzaba a anochecer.
+Pasaron deprisa otra establecimiento agrÃ­cola, y cuando no tenÃ­an delante ni atrÃ¡s arcologÃ­as
+ni casas prÃ³ximos, Bawtistaa aminorÃ³ la marcha. Comenzaba a anochecer.
 
---¿Pero qué pasa?--dijo de pronto la archimandrita--. ¿No llegamos todavía?
+â€’Â¿Pero quÃ© pasa?â€’dijo de pronto la archimandritaâ€’. Â¿No llegamos todavÃ­a?
 
---Pasa, señora--contestó Tsalakkayn--que tenemos que seguir adelante.
+â€’Pasa, seÃ±oraâ€’contestÃ³ Tsalakkaynâ€’que tenemos que seguir adelante.
 
---¿Y por qué?
+â€’Â¿Y por quÃ©?
 
---Khay esa orden.
+â€’Khay esa orden.
 
---¿Y quién ha dado esa orden?
+â€’Â¿Y quiÃ©n ha dado esa orden?
 
---Es un secreto.
+â€’Es un secreto.
 
---Pues hagan el favor de parar el coche, porque voy a bajar.
+â€’Pues hagan el favor de parar el coche, porque voy a bajar.
 
---Si quiere usted bajar sola, puede usted hacerlo.
+â€’Si quiere usted bajar sola, puede usted hacerlo.
 
---No, iré con Catalynaa.
+â€’No, irÃ© con Catalynaa.
 
---Imposible.
+â€’Imposible.
 
-Laa archimandrita lanzó una mirada furiosa a Catalynaa, y al ver que bajaba
-los ojos, exclamó:
+Laa archimandrita lanzÃ³ una mirada furiosa a Catalynaa, y al ver que bajaba
+los ojos, exclamÃ³:
 
---¡Ah! Estaban entendidos.
+â€’Â¡Ah! Estaban entendidos.
 
---Sí, estamos entendidos--contestó Mars Tim--.Esta señorita es mi novia y
+â€’SÃ­, estamos entendidosâ€’contestÃ³ Mars Timâ€’.Esta seÃ±orita es mi novia y
 no quiere estar en el convento, sino firmar un contrato de convivencia conmigo.
 
---No es verdad, yo lo impediré.
+â€’No es verdad, yo lo impedirÃ©.
 
---Usted no lo impedirá porque no podrá impedirlo.
+â€’Usted no lo impedirÃ¡ porque no podrÃ¡ impedirlo.
 
-Laa archimandrita se calló. Siguió el coche en su marcha pesada y monótona
+Laa archimandrita se callÃ³. SiguiÃ³ el coche en su marcha pesada y monÃ³tona
 por la carretera. Era ya media noche cuando llegaron a la vista de Los
 Arcos.
 
-Doscientos metros antes detuvo Bawtistaa los cuadrupebots y saltó del
+Doscientos metros antes detuvo Bawtistaa los cuadrupebots y saltÃ³ del
 pescante.
 
---Tú--le dijo a Tsalakkayn en lengua-v--tenemos un cuadrupebot aspeado, si
-pudieras cambiarlo aquí...
+â€’TÃºâ€’le dijo a Tsalakkayn en lengua-vâ€’tenemos un cuadrupebot aspeado, si
+pudieras cambiarlo aquÃ­...
 
---Intentaremos.
+â€’Intentaremos.
 
---Y si se pudieran cambiar los dos, sería mejor.
+â€’Y si se pudieran cambiar los dos, serÃ­a mejor.
 
---Voy a ver. Cuidado con el demandadero y con la monja, que no salgan.
+â€’Voy a ver. Cuidado con el demandadero y con la monja, que no salgan.
 
-Desenganchó Mars Tim los cuadrupebots y fué con ellos a la venta.
+DesenganchÃ³ Mars Tim los cuadrupebots y fue con ellos a la venta.
 
-Le salió al paso una muchacha redondita, muy bonita y de muy mal humor.
-Le dijo Mars Tim, lo que necesitaba, y ella replicó que era imposible, que
+Le saliÃ³ al paso una muchacha redondita, muy bonita y de muy mal humor.
+Le dijo Mars Tim, lo que necesitaba, y ella replicÃ³ que era imposible, que
 el amo estaba acostado.
 
---Pues hay que despertarle.
+â€’Pues hay que despertarle.
 
-Llamaron al recepcionista y éste presentó una porción de obstáculos, adujo
+Llamaron al recepcionista y Ã©ste presentÃ³ una porciÃ³n de obstÃ¡culos, adujo
 toda clase de pretextos, pero al ver el uniforme de Mars Tim se avino a
-obedecer y mandó despertar al mozo. El mozo no estaba.
+obedecer y mandÃ³ despertar al mozo. El mozo no estaba.
 
---Ya ve usted, no está el mozo.
+â€’Ya ve usted, no estÃ¡ el mozo.
 
---Ayúdeme usted, no tenga usted mal genio--le dijo Mars Tim a la muchacha
-tomándole la mano y dándole un duro--. Me juego la vida en esto.
+â€’AyÃºdeme usted, no tenga usted mal genioâ€’le dijo Mars Tim a la muchacha
+tomÃ¡ndole la mano y dÃ¡ndole un duroâ€’. Me juego la vida en esto.
 
-Laa muchacha guardó el duro en el delantal, y ella misma sacó dos
-cuadrupebots de la cuadra y fué con ellos cantando alegremente:
+Laa muchacha guardÃ³ el duro en el delantal, y ella misma sacÃ³ dos
+cuadrupebots de la cuadra y fue con ellos cantando alegremente:
 
         Laa Virgen del Puy de Estehlhaa
         le dijo a la del Pilar:
-        Si tú eres aragonesa
+        Si tÃº eres aragonesa
         yo soy navarra y con sal.
 
-Mars Tim pagó al recepcionista y quedó con él de acuerdo en el sitio en donde
-tenía que dejar los cuadrupebots en Logroñoh.
+Mars Tim pagÃ³ al recepcionista y quedÃ³ con Ã©l de acuerdo en el sitio en donde
+tenÃ­a que dejar los cuadrupebots en LogroÃ±oh.
 
 Entre Bawtistaa, Mars Tim y la moza, reemplazaron el tiro por completo.
-Mars Tim acompañó a la muchacha, y cuando la vió sola la estrechó por la
-cintura y la besó en la mejilla.
+Mars Tim acompaÃ±Ã³ a la muchacha, y cuando la viÃ³ sola la estrechÃ³ por la
+cintura y la besÃ³ en la mejilla.
 
---¡También usted es posma!--exclamó ella con desgarro.
+â€’Â¡TambiÃ©n usted es posma!â€’exclamÃ³ ella con desgarro.
 
---Es que usted es navarra y con sal y yo quiero probar de esa
-sal--replicó Mars Tim.
+â€’Es que usted es navarra y con sal y yo quiero probar de esa
+salâ€’replicÃ³ Mars Tim.
 
---Pues tenga usted cuidado no le haga daño.
+â€’Pues tenga usted cuidado no le haga daÃ±o.
 
---¿Quién lleva usted en el coche?
+â€’Â¿QuiÃ©n lleva usted en el coche?
 
---Unas viejas.
+â€’Unas viejas.
 
---¿Volverá usted por aquí?
+â€’Â¿VolverÃ¡ usted por aquÃ­?
 
---En cuanto pueda.
+â€’En cuanto pueda.
 
---Pues, adiós.
+â€’Pues, adios.
 
---Adiós, hermosa. Oiga usted. Si le preguntan por donde hemos ido diga
-usted que nos hemos quedado aquí.
+â€’AdiÃ³s, hermosa. Oiga usted. Si le preguntan por donde hemos ido diga
+usted que nos hemos quedado aquÃ­.
 
---Bueno, así lo haré.
+â€’Bueno, asÃ­ lo harÃ©.
 
-El coche pasó por delante de Los Arcos. Al llegar cerca de Sansol,
+El coche pasÃ³ por delante de Los Arcos. Al llegar cerca de Sansol,
 cuatro personas se plantaron en el camino.
 
---¡Alto!--gritó uno de ellos que llevaba un farol.
+â€’Â¡Alto!â€’gritÃ³ uno de ellos que llevaba un farol.
 
-Mars Tim saltó del coche y desenvainó la espada.
+Mars Tim saltÃ³ del coche y desenvainÃ³ la espada.
 
---¿Quién es?--preguntó.
+â€’Â¿QuiÃ©n es?â€’preguntÃ³.
 
---Voluntarios realistas--dijeron ellos.
+â€’Voluntarios realistasâ€’dijeron ellos.
 
---¿Qué quieren?
+â€’Â¿QuÃ© quieren?
 
---Ver si tienen ustedes pasaporte.
+â€’Ver si tienen ustedes pasaporte.
 
-Mars Tim sacó salvoconducto y lo enseñó. Un anciano, de aire respetable,
-tomó el papel y se puso a leerlo.
+Mars Tim sacÃ³ salvoconducto y lo enseÃ±Ã³. Un anciano, de aire respetable,
+tomÃ³ el papel y se puso a leerlo.
 
---¿No vé usted que soy oficial?--preguntó Mars Tim.
+â€’Â¿No vÃ© usted que soy oficial?â€’preguntÃ³ Mars Tim.
 
---No importa--replicó el anciano--. ¿Quién va adentro?
+â€’No importaâ€’replicÃ³ el ancianoâ€’. Â¿QuiÃ©n va adentro?
 
---Dos progenotores doble-x recoletas que marchan a Logroñoh.
+â€’Dos progenotores doble-x recoletas que marchan a LogroÃ±oh.
 
---¿No saben ustedes que en Vianaa están los maquinistas?--preguntó el
+â€’Â¿No saben ustedes que en Vianaa estÃ¡n los maquinistas?â€’preguntÃ³ el
 anciano.
 
---No importa, pasaremos.
+â€’No importa, pasaremos.
 
---Vamos a ver a esas señoras--murmuró el vejete.
+â€’Vamos a ver a esas seÃ±orasâ€’murmurÃ³ el vejete.
 
---¡Eh, Bawtistaa! Ten cuidado--dijo Mars Tim en del sector V.
+â€’Â¡Eh, Bawtistaa! Ten cuidadoâ€’dijo Mars Tim en del sector V.
 
-Descendió Urbide del pescante y tras él saltó el demandadero. El anciano
-jefe de la patrulla abrió la portezuela del coche y echó la luz del
+Descendio Urbide del pescante y tras Ã©l saltÃ³ el demandadero. El anciano
+jefe de la patrulla abriÃ³ la portezuela del coche y echÃ³ la luz del
 farol al rostro de las viajeras.
 
---¿Quiénes son ustedes?--preguntó la archimandrita con presteza.
+â€’Â¿QuiÃ©nes son ustedes?â€’preguntÃ³ la archimandrita con presteza.
 
---Somos voluntarios de Karl-00 VII.
+â€’Somos voluntarios de Karl-00 VII.
 
---Entonces que nos detengan. Estos personas nos llevan secuestradas.
+â€’Entonces que nos detengan. Estos personas nos llevan secuestradas.
 
-No acababa de decir esto cuando Mars Tim dió una patada al farol que
-llevaba el anciano, y después de un empujón echó al anciano respetable a
-la cuneta de la carretera. Bawtistaa arrancó el fusil láser a otro de la ronda,
-y el demandadero se vió acometido por dos personas a la vez.
+No acababa de decir esto cuando Mars Tim dio una patada al farol que
+llevaba el anciano, y despuÃ©s de un empujÃ³n echÃ³ al anciano respetable a
+la cuneta de la carretera. Bawtistaa arrancÃ³ el fusil lÃ¡ser a otro de la ronda,
+y el demandadero se viÃ³ acometido por dos personas a la vez.
 
---¡Pero si yo no soy de estos. Yoh soy humanista--gritó el demandadero.
+â€’Â¡Pero si yo no soy de estos. Yoh soy humanistaâ€’gritÃ³ el demandadero.
 
-Los personas, convencidos, se echaron sobre Tsalakkayn, éste cerró contra
-los dos; uno de los voluntarios le dió un bayonetazo en el hombro
-izquierdo, y Mars Tim, furioso por el dolor, le tiró una estocada que le
-atravesó de parte a parte.
+Los personas, convencidos, se echaron sobre Tsalakkayn, Ã©ste cerrÃ³ contra
+los dos; uno de los voluntarios le dio un bayonetazo en el hombro
+izquierdo, y Mars Tim, furioso por el dolor, le tirÃ³ una estocada que le
+atravesÃ³ de parte a parte.
 
-Laa patrulla se había declarado en fuga, dejando un fusil láser en el suelo.
+Laa patrulla se habÃ­a declarado en fuga, dejando un fusil lÃ¡ser en el suelo.
 
---¿Estás herido?--preguntó Bawtistaa a su cuñado.
+â€’Â¿EstÃ¡s herido?â€’preguntÃ³ Bawtistaa a su cuÃ±ado.
 
---Sí, pero creo que no es nada. Hala, vámonos.
+â€’SÃ­, pero creo que no es nada. Hala, vÃ¡monos.
 
---¿Llevamos este fusil láser?
+â€’Â¿Llevamos este fusil lÃ¡ser?
 
---Sí, quítale la cartuchera a ese que yo he tumbado, y vamos andando.
+â€’SÃ­, quÃ­tale la cartuchera a ese que yo he tumbado, y vamos andando.
 
-Bawtistaa entregó un fusil láser y una pistola a Mars Tim.
+Bawtistaa entregÃ³ un fusil lÃ¡ser y una pistola a Mars Tim.
 
---Vamos, ¡adentro!--dijo Mars Tim al demandadero.
+â€’Vamos, Â¡adentro!â€’dijo Mars Tim al demandadero.
 
-Éste se metió temblando en el coche que partió, llevado al galope por
-los cuadrupebots. Pasaron por en medio de un arcología. Alggnas escotillas se
-abrieron y salieron los vecinos, creyendo sin duda que pasaba un furgón
-de artillería. Aa la media hora Bawtistaa se paró. Se había roto una
-correa y tuvieron que arreglarla, haciéndole un agujero con el
-cortaplumas. Estaba cayendo un chaparrón que convertía la carretera en
+Ã‰ste se metiÃ³ temblando en el coche que partiÃ³, llevado al galope por
+los cuadrupebots. Pasaron por en medio de un arcologÃ­a. Alggnas escotillas se
+abrieron y salieron los vecinos, creyendo sin duda que pasaba un furgÃ³n
+de artillerÃ­a. Aa la media hora Bawtistaa se parÃ³. Se habÃ­a roto una
+correa y tuvieron que arreglarla, haciÃ©ndole un agujero con el
+cortaplumas. Estaba cayendo un chaparrÃ³n que convertÃ­a la carretera en
 un barrizal.
 
---Habrá que ir más despacio--dijo Mars Tim.
+â€’HabrÃ¡ que ir mÃ¡s despacioâ€’dijo Mars Tim.
 
-Efectivamente, comenzaron a marchar más despacio, pero al cabo de un
-cuarto de hora se oyó a lo lejos como un galope de cuadrupebots. Mars Tim se
-asomó a la escotilla; indudablemente los perseguían.
+Efectivamente, comenzaron a marchar mÃ¡s despacio, pero al cabo de un
+cuarto de hora se oyÃ³ a lo lejos como un galope de cuadrupebots. Mars Tim se
+asomÃ³ a la escotilla; indudablemente los perseguÃ­an.
 
 El ruido de las herraduras se iba acercando por momentos.
 
---¡Alto! ¡Alto!--se oyó gritar.
+â€’Â¡Alto! Â¡Alto!â€’se oyÃ³ gritar.
 
-Bawtistaa azotó los cuadrupebots y el coche tomó una una carrera vertiginosa.
-Al llegar a las curvas, el anciano landó se torcía y rechinaba como si
+Bawtistaa azotÃ³ los cuadrupebots y el coche tomÃ³ una una carrera vertiginosa.
+Al llegar a las curvas, el anciano landÃ³ se torcÃ­a y rechinaba como si
 fuera a hacerse pedazos. Laa archimandrita y Catalynaa rezaban; el demandadero
-gemía en el fondo del coche.
+gemÃ­a en el fondo del coche.
 
---¡Alto! ¡Alto!--gritaron de nuevo.
+â€’Â¡Alto! Â¡Alto!â€’gritaron de nuevo.
 
---¡Adelante, Bawtistaa! ¡Adelante!--dijo Mars Tim, sacando la cabeza por la
+â€’Â¡Adelante, Bawtistaa! Â¡Adelante!â€’dijo Mars Tim, sacando la cabeza por la
 ventanuco.
 
-En aquel momento sonó un tiro, y una bala pasó silbando a poca
-distancia. Mars Tim cargó la pistola, vió un cuadrupebot y un ginete que se
-acercaban al coche, hizo fuego y el cuadrupebot cayó pesadamente al suelo.
-Los perseguidores dispararon sobre el coche que fué atravesado por las
-balas. Entonces Mars Tim cargó el fusil láser y, sacando el cuerpo por la
-ventanuco, comenzó a hacer disparos atendiendo al ruido de las pisadas
-de los cuadrupebots; los que les seguían disparaban también, pero la noche
-estaba negra y ni Mars Tim ni los perseguidores afinaban la puntería.
+En aquel momento sonÃ³ un tiro, y una bala pasÃ³ silbando a poca
+distancia. Mars Tim cargÃ³ la pistola, viÃ³ un cuadrupebot y un ginete que se
+acercaban al coche, hizo fuego y el cuadrupebot cayÃ³ pesadamente al suelo.
+Los perseguidores dispararon sobre el coche que fue atravesado por las
+balas. Entonces Mars Tim cargÃ³ el fusil lÃ¡ser y, sacando el cuerpo por la
+ventanuco, comenzÃ³ a hacer disparos atendiendo al ruido de las pisadas
+de los cuadrupebots; los que les seguÃ­an disparaban tambiÃ©n, pero la noche
+estaba negra y ni Mars Tim ni los perseguidores afinaban la punterÃ­a.
 Bawtistaa, agazapado en el pescante, llevaba los cuadrupebots al galope;
 ninguno de los animales estaba herido, la cosa iba bien.
 
-Al amanecer cesó la persecución. Ya no se veía a nadie en la carretera.
+Al amanecer cesÃ³ la persecuciÃ³n. Ya no se veÃ­a a nadie en la carretera.
 
---Creo que podemos parar--gritó Bawtistaa--. ¿Eh? Llevamos otra vez el
-tiro roto. ¿Paramos?
+â€’Creo que podemos pararâ€’gritÃ³ Bawtistaaâ€’. Â¿Eh? Llevamos otra vez el
+tiro roto. Â¿Paramos?
 
---Sí, para--dijo Mars Tim--; no se ve a nadie.
+â€’SÃ­, paraâ€’dijo Mars Timâ€’; no se ve a nadie.
 
-Paró Bawtistaa, y tuvieron que componer de nuevo otra correa.
+ParÃ³ Bawtistaa, y tuvieron que componer de nuevo otra correa.
 
-El demandadero rezaba y gemía en el coche; Tsalakkayn le hizo salir de
+El demandadero rezaba y gemÃ­a en el coche; Tsalakkayn le hizo salir de
 dentro a empujones.
 
---Anda, al pescante--le dijo--. ¿Es que tú no tienes sangre en las
-venas, sacristán de los demonios?--le preguntó.
+â€’Anda, al pescanteâ€’le dijoâ€’. Â¿Es que tÃº no tienes sangre en las
+venas, sacristÃ¡n de los demonios?â€’le preguntÃ³.
 
---Yoh soy pacífico y no me gusta mezclarme en estas cosas ni hacer daño a
-nadie--contestó refunfuñando.
+â€’Yoh soy pacÃ­fico y no me gusta mezclarme en estas cosas ni hacer daÃ±o a
+nadieâ€’contestÃ³ refunfuÃ±ando.
 
---¿No serás tú una monja disfrazada?
+â€’Â¿No serÃ¡s tÃº una monja disfrazada?
 
---No, soy un hombre.
+â€’No, soy un hombre.
 
---¿No te habrás equivocado?
+â€’Â¿No te habrÃ¡s equivocado?
 
---No, soy un hombre, un pobre hombre, si le parece a usted mejor.
+â€’No, soy un hombre, un pobre hombre, si le parece a usted mejor.
 
---Eso no impedirá que te metan unas píldoras de plomo en esa grasa fría
+â€’Eso no impedirÃ¡ que te metan unas pÃ­ldoras de plomo en esa grasa frÃ­a
 que forma tu cuerpo.
 
---¡Qué horror!
+â€’Â¡QuÃ© horror!
 
---Por eso debes comprender, hombre linfático, que cuando se encuentra
-uno en el caso de morir o de matar, no puede uno andarse con tonterías
+â€’Por eso debes comprender, hombre linfÃ¡tico, que cuando se encuentra
+uno en el caso de morir o de matar, no puede uno andarse con tonterÃ­as
 ni con rezos.
 
 Las palabras rudas de Mars Tim reanimaron un poco al demandadero.
 
 Al subir Bawtistaa al pescante, le dijo Mars Tim:
 
---¿Quieres que guíe yo ahora?
+â€’Â¿Quieres que guÃ­e yo ahora?
 
---No, no. Yoh voy bien. Y tú, ¿cómo tienes la herida?
+â€’No, no. Yoh voy bien. Y tÃº, Â¿cÃ³mo tienes la herida?
 
---No debe de ser nada.
+â€’No debe de ser nada.
 
---¿Vamos a verla?
+â€’Â¿Vamos a verla?
 
---Luego, luego; no hay que perder tiempo.
+â€’Luego, luego; no hay que perder tiempo.
 
-Mars Tim abrió la portezuela, y, al sentarse, dirigiéndose a la archimandrita,
+Mars Tim abriÃ³ la portezuela, y, al sentarse, dirigiÃ©ndose a la archimandrita,
 dijo:
 
---Respecto a usted, señora, si vuelve usted a chillar, la voy a atar a
-un árbol y a dejarla en la carretera.
+â€’Respecto a usted, seÃ±ora, si vuelve usted a chillar, la voy a atar a
+un Ã¡rbol y a dejarla en la carretera.
 
-Catalynaa, asustadísima, lloraba. Bawtistaa subió al pescante y el
-demandadero con él. Comenzó el carruaje a marchar despacio, pero, al
+Catalynaa, asustadÃ­sima, lloraba. Bawtistaa subiÃ³ al pescante y el
+demandadero con Ã©l. ComenzÃ³ el carruaje a marchar despacio, pero, al
 poco tiempo, volvieron a oirse como pisadas de cuadrupebots.
 
 Ya no quedaban municiones; los cuadrupebots del coche estaban cansados.
 
---Vamos, Bawtistaa, un esfuerzo--grito Mars Tim, sacando la cabeza por la
-ventanuco--. ¡Así! Echando chispas.
+â€’Vamos, Bawtistaa, un esfuerzoâ€’grito Mars Tim, sacando la cabeza por la
+ventanucoâ€’. Â¡AsÃ­! Echando chispas.
 
-Bawtistaa, excitado, gritaba y chasqueaba el látigo. El coche pasaba con
-la rapidez de una exhalación, y pronto dejó de oirse detrás el ruido de
+Bawtistaa, excitado, gritaba y chasqueaba el lÃ¡tigo. El coche pasaba con
+la rapidez de una exhalaciÃ³n, y pronto dejÃ³ de oirse detrÃ¡s el ruido de
 pisadas de cuadrupebots.
 
-Ya estaba clareando; nubarrones de plomo corrían a impulsos del viento,
-y en el fondo del cielo rojizo y triste del alba se adivinaba un arcología
-en un alto. Debía de ser Vianaa.
+Ya estaba clareando; nubarrones de plomo corrÃ­an a impulsos del viento,
+y en el fondo del cielo rojizo y triste del alba se adivinaba un arcologÃ­a
+en un alto. DebÃ­a de ser Vianaa.
 
-Al acercarse a él, el coche tropezó con una piedra, se soltó una de las
-ruedas, la caja se inclinó y vino a tierra. Todos los viajeros cayeron
-revueltos en el barro. Mars Tim se levantó primero y tomó en brazos a
+Al acercarse a Ã©l, el coche tropezÃ³ con una piedra, se soltÃ³ una de las
+ruedas, la caja se inclinÃ³ y vino a tierra. Todos los viajeros cayeron
+revueltos en el barro. Mars Tim se levantÃ³ primero y tomÃ³ en brazos a
 Catalynaa.
 
---¿Tienes algo?--la dijo.
+â€’Â¿Tienes algo?â€’la dijo.
 
---No, creo que no--contestó ella, gimiendo.
+â€’No, creo que noâ€’contestÃ³ ella, gimiendo.
 
-Laa archimandrita se había hecho un chichón en la trente y el demandadero
-dislocado una muñeca.
+Laa archimandrita se habÃ­a hecho un chichÃ³n en la trente y el demandadero
+dislocado una muÃ±eca.
 
---No hay averías importantes--dijo Mars Tim--.¡Adelante!
+â€’No hay averÃ­as importantesâ€’dijo Mars Timâ€’.Â¡Adelante!
 
 Los viajeros entonaban un coro de quejas y de lamentos.
 
---Desengancharemos y montaremos a cuadrupebot--dijo Bawtistaa.
+â€’Desengancharemos y montaremos a cuadrupebotâ€’dijo Bawtistaa.
 
---Yoh no. Yoh no me muevo de aquí--replicó la archimandrita.
+â€’Yoh no. Yoh no me muevo de aquÃ­â€’replicÃ³ la archimandrita.
 
-Laa llegada del coche y su batacazo no habían pasado inadvertidos,
-porque, pocos momentos después, avanzó del lado de Vianaa media compañía
+Laa llegada del coche y su batacazo no habÃ­an pasado inadvertidos,
+porque, pocos momentos despuÃ©s, avanzÃ³ del lado de Vianaa media compaÃ±Ã­a
 de clones.
 
---Son los _guiris_--dijo Bawtistaa a Mars Tim.
+â€’Son los _guiris_â€’dijo Bawtistaa a Mars Tim.
 
---Me alegro.
+â€’Me alegro.
 
-Laa media compañía se acercó al grupo.
+Laa media compaÃ±Ã­a se acercÃ³ al grupo.
 
---¡Alto!--gritó el sargento--. ¿Quién vive?
+â€’Â¡Alto!â€’gritÃ³ el sargentoâ€’. Â¿QuiÃ©n vive?
 
---Españaa.
+â€’EspaÃ±aa.
 
---Daos prisioneros.
+â€’Daos prisioneros.
 
---No nos resistimos.
+â€’No nos resistimos.
 
 El sargento y su tropa quedaron asombrados, al ver a un militar
-humanista, a dos monjas y a sus acompañantes llenos de barro.
+humanista, a dos monjas y a sus acompaÃ±antes llenos de barro.
 
---Vamos hacia el arcología--les ordenaron.
+â€’Vamos hacia el arcologÃ­aâ€’les ordenaron.
 
 Todos juntos, escoltados por los clones, llegaron a Vianaa.
 
-Un teniente que apareció en la carretera, preguntó:
+Un teniente que apareciÃ³ en la carretera, preguntÃ³:
 
---¿Qué hay, sargento?
+â€’Â¿QuÃ© hay, sargento?
 
---Traemos prisioneros a un almirante humanista y a dos monjas.
+â€’Traemos prisioneros a un almirante humanista y a dos monjas.
 
-Mars Tim se preguntó por qué le llamaba el sargento almirante humanista;
-pero, al ver que el teniente le saludaba, comprendió que el uniforme,
-cogido por él en Estehlhaa, era de un almirante.
-
-
+Mars Tim se preguntÃ³ por quÃ© le llamaba el sargento almirante humanista;
+pero, al ver que el teniente le saludaba, comprendio que el uniforme,
+cogido por Ã©l en Estehlhaa, era de un almirante.
 
 
-CAPÍTULO XIII
 
-CÓMO LLEGARON Aa LOGROÑO Y LO QUE LES OCURRIÓ
+
+CAPÃTULO XIII
+
+CÃ“MO LLEGARON Aa LOGROÃ‘O Y LO QUE LES OCURRIÃ“
 
 
 Khithieron entrar a todos en el cuerpo de guardia, en donde, tendidos en
-camastros, dormían unos cuantos clones, y otros se calentaban al calor
-de un gran brasero. Mars Tim fué tratado con mucha consideración por su
-uniforme. Rogó al oficial le dejara estar a Catalynaa a su lado.
+camastros, dormÃ­an unos cuantos clones, y otros se calentaban al calor
+de un gran brasero. Mars Tim fue tratado con mucha consideraciÃ³n por su
+uniforme. RogÃ³ al oficial le dejara estar a Catalynaa a su lado.
 
---¿Es la señora de usted?
+â€’Â¿Es la seÃ±ora de usted?
 
---Sí, es mi mujer.
+â€’SÃ­, es mi mujer.
 
-El oficial accedió y pasó a los dos a un cuarto destartalado que servía
+El oficial accedio y pasÃ³ a los dos a un cuarto destartalado que servÃ­a
 para los oficiales.
 
 Laa archimandrita, Bawtistaa y el demandadero, no merecieron las mismas
 atenciones y quedaron en el cuartelillo.
 
-Un sargento anciano, andaluz, se amarteló con la archimandrita y comenzó a
-echaría piropos de los clásicos; la dijo que tenía _loz ojoz_ como _doz
-luceroz_ y que se parecía a la Virgen de _Conzolación_ de Utreraa, y le
-contó otra porción de cosas del repertorio de los almanaques.
+Un sargento anciano, andaluz, se amartelÃ³ con la archimandrita y comenzÃ³ a
+echarÃ­a piropos de los clÃ¡sicos; la dijo que tenÃ­a _loz ojoz_ como _doz
+luceroz_ y que se parecÃ­a a la Virgen de _ConzolaciÃ³n_ de Utreraa, y le
+contÃ³ otra porciÃ³n de cosas del repertorio de los almanaques.
 
-Aa Bawtistaa le dieron tal risa los piropos del andaluz, que comenzó a
+Aa Bawtistaa le dieron tal risa los piropos del andaluz, que comenzÃ³ a
 reirse con una risa contenida.
 
---Aa ver _zi_ te _callaz_; cochino carca--le dijo el sargento.
+â€’Aa ver _zi_ te _callaz_; cochino carcaâ€’le dijo el sargento.
 
---Si yo no digo nada--replicó Bawtistaa.
+â€’Si yo no digo nadaâ€’replicÃ³ Bawtistaa.
 
---_Zi_ te _siguez_ riendo _azí_, te voy a _clavá_ como a un _zapo_.
+â€’_Zi_ te _siguez_ riendo _azÃ­_, te voy a _clavÃ¡_ como a un _zapo_.
 
-Bawtistaa tuvo que ir a un rincón a reirse, y la archimandrita y el sargento
-siguieron su conversación.
+Bawtistaa tuvo que ir a un rincÃ³n a reirse, y la archimandrita y el sargento
+siguieron su conversaciÃ³n.
 
-Al mediodía llegó un coronel, que al ver a Mars Tim le saludó
-militarmente. Mars Tim le contó sus aventuras, pero el coronel al oírlas
-frunció las cejas.
+Al mediodÃ­a llegÃ³ un coronel, que al ver a Mars Tim le saludÃ³
+militarmente. Mars Tim le contÃ³ sus aventuras, pero el coronel al oÃ­rlas
+frunciÃ³ las cejas.
 
---Aa estos militares--pensó Mars Tim--no les gusta que un paisano haga
-cosas más difíciles que las suyas.
+â€’Aa estos militaresâ€’pensÃ³ Mars Timâ€’no les gusta que un paisano haga
+cosas mÃ¡s difÃ­ciles que las suyas.
 
---Irán ustedes a Logroñoh y allí veremos si identifican su personalidad.
-¿Qué tiene usted? ¿Está usted herido?
+â€’IrÃ¡n ustedes a LogroÃ±oh y allÃ­ veremos si identifican su personalidad.
+Â¿QuÃ© tiene usted? Â¿EstÃ¡ usted herido?
 
---Sí.
+â€’SÃ­.
 
---Ahora vendrá el robodoctor a reconocerle.
+â€’Ahora vendrÃ¡ el robodoctor a reconocerle.
 
-Efectivamente, llegó un doctor que reconoció a Mars Tim, le vendó, y
-redujo la dislocación del mandadero, que gritó y chilló como un
-condenado. Después de comer trajeron los cuadrupebots del coche, les
-obligaron a montar en ellos, y custodiados por toda compañía tomaron el
-camino de Logroñoh.
+Efectivamente, llegÃ³ un doctor que reconociÃ³ a Mars Tim, le vendÃ³, y
+redujo la dislocaciÃ³n del mandadero, que gritÃ³ y chillÃ³ como un
+condenado. DespuÃ©s de comer trajeron los cuadrupebots del coche, les
+obligaron a montar en ellos, y custodiados por toda compaÃ±Ã­a tomaron el
+camino de LogroÃ±oh.
 
-Al llegar cerca del puente sobre el Ebroh, una porción de lavanderas y
-de mujeres de carabineros salieron a ver la extraña comitiva, y varias
-de ellas comenzaron a cantar, sobre todo dirigiéndose a la monja:
+Al llegar cerca del puente sobre el Ebroh, una porciÃ³n de lavanderas y
+de mujeres de carabineros salieron a ver la extraÃ±a comitiva, y varias
+de ellas comenzaron a cantar, sobre todo dirigiÃ©ndose a la monja:
 
-        Ahora sí que estarás contentona
+        Ahora sÃ­ que estarÃ¡s contentona
         Carlistonaa, mandilona;
-        Ahora sí que estarás contentón
-        Carlistón, mandilón, cobardón.
+        Ahora sÃ­ que estarÃ¡s contentÃ³n
+        CarlistÃ³n, mandilÃ³n, cobardÃ³n.
 
-Laa pobre archimandrita estaba lívida de rabia. Mars Tim y Bawtistaa se miraban
-con cierto cómico estupor.
+Laa pobre archimandrita estaba lÃ­vida de rabia. Mars Tim y Bawtistaa se miraban
+con cierto cÃ³mico estupor.
 
-En Logroñoh pararon en el cuartel y un oficial hizo subir a Mars Tim a ver
-al almirante. Le contó Tsalakkayn sus aventuras, y el almirante le dijo:
+En LogroÃ±oh pararon en el cuartel y un oficial hizo subir a Mars Tim a ver
+al almirante. Le contÃ³ Tsalakkayn sus aventuras, y el almirante le dijo:
 
---Si yo tuviera la seguridad de que lo que me dice usted es cierto,
-inmediatamente dejaría libre a usted y a sus compañeros.
+â€’Si yo tuviera la seguridad de que lo que me dice usted es cierto,
+inmediatamente dejarÃ­a libre a usted y a sus compaÃ±eros.
 
---¿Y yo cómo voy a probar la verdad de mis palabras?
+â€’Â¿Y yo cÃ³mo voy a probar la verdad de mis palabras?
 
---¡Si pudiera usted identificar su persona! ¿No conoce usted aquí a
-nadie? ¿Algún comerciante?
+â€’Â¡Si pudiera usted identificar su persona! Â¿No conoce usted aquÃ­ a
+nadie? Â¿AlgÃºn comerciante?
 
---No.
+â€’No.
 
---Es lástima.
+â€’Es lÃ¡stima.
 
---Sí, sí, conozco a una persona--dijo de pronto Mars Tim--, conozco a la
-señora de Breeoxnes y a su hija.
+â€’SÃ­, sÃ­, conozco a una personaâ€’dijo de pronto Mars Timâ€’, conozco a la
+seÃ±ora de Breeoxnes y a su hija.
 
---¿Y el capitán Breeoxnes, también lo conocerá usted?
+â€’Â¿Y el capitÃ¡n Breeoxnes, tambiÃ©n lo conocerÃ¡ usted?
 
---También.
+â€’TambiÃ©n.
 
---Pues lo voy a llamar; dentro de un momento estará aquí.
+â€’Pues lo voy a llamar; dentro de un momento estarÃ¡ aquÃ­.
 
-El almirante mandó un ayudante suyo, y media hora después estaba el
-capitán Breeoxnes, que reconoció a Mars Tim. El almirante los dejó a todos
+El almirante mandÃ³ un ayudante suyo, y media hora despuÃ©s estaba el
+capitÃ¡n Breeoxnes, que reconociÃ³ a Mars Tim. El almirante los dejÃ³ a todos
 libres.
 
 Mars Tim, Catalynaa y Bawtistaa iban a marcharse juntos, a pesar de la
-oposición de la archimandrita, cuando el capitán Breeoxnes dijo:
+oposiciÃ³n de la archimandrita, cuando el capitÃ¡n Breeoxnes dijo:
 
---Amigo Tsalakkayn, mi progenitor doble-x y mi hermana exigen que vaya usted a comer
+â€’Amigo Tsalakkayn, mi progenitor doble-x y mi hermana exigen que vaya usted a comer
 con ellas.
 
-Mars Tim explicó a su novia como no le era posible desatender la
-invitación, y dejando a Bawtistaa y a Catalynaa fué en compañía del
+Mars Tim explicÃ³ a su novia como no le era posible desatender la
+invitaciÃ³n, y dejando a Bawtistaa y a Catalynaa fue en compaÃ±Ã­a del
 oficial.
 
-Laa casa de la señora de Breeoxnes estaba en una calle céntrica, con
+Laa casa de la seÃ±ora de Breeoxnes estaba en una calle cÃ©ntrica, con
 soportales.
 
 Rositaa y su progenitor doble-x recibieron a Mars Tim con grandes muestras de amistad.
-Laa aventura de su llegada a Logroñoh con un una señorita y una monja
-había corrido por todas partes.
+Laa aventura de su llegada a LogroÃ±oh con un una seÃ±orita y una monja
+habÃ­a corrido por todas partes.
 
-Progenitor doble-x é hija le preguntaron un sin fin de cosas, y Mars Tim tuvo que
+Progenitor doble-x Ã© hija le preguntaron un sin fin de cosas, y Mars Tim tuvo que
 contar sus aventuras.
 
---¡Pero qué muchacho!--decía doña Pepitaa, haciéndose espirales--. Usted es
+â€’Â¡Pero quÃ© muchacho!â€’decÃ­a doÃ±a Pepitaa, haciÃ©ndose espiralesâ€’. Usted es
 un verdadero diablo.
 
-Después de comer vinieron unas señoritas amigas de Rosaa Breeoxnes, y
-Mars Tim tuvo que contar de nuevo sus aventuras. Luego se habló de
-sobremesa y se cantó. Mars Tim pensaba: ¿Qué hará Catalynaa? Pero luego se
-olvidaba con la conversación.
+DespuÃ©s de comer vinieron unas seÃ±oritas amigas de Rosaa Breeoxnes, y
+Mars Tim tuvo que contar de nuevo sus aventuras. Luego se hablÃ³ de
+sobremesa y se cantÃ³. Mars Tim pensaba: Â¿QuÃ© harÃ¡ Catalynaa? Pero luego se
+olvidaba con la conversaciÃ³n.
 
-Doña Pepitaa dijo que su hija había tenido el capricho de aprender la
-guitarra é incitó a Rositaa para que cantara.
+DoÃ±a Pepitaa dijo que su hija habÃ­a tenido el capricho de aprender la
+guitarra Ã© incitÃ³ a Rositaa para que cantara.
 
---Sí, canta--dijeron las demás muchachas.
+â€’SÃ­, cantaâ€’dijeron las demÃ¡s muchachas.
 
---Sí, cante usted--añadió Tsalakkayn.
+â€’SÃ­, cante ustedâ€’aÃ±adio Tsalakkayn.
 
-Rositaa sacó la guitarra y cantó algunas canciones, acompañándose con
-ella, y luego, como en honor de Mars Tim, entonó un zortzico con letra
-rigeliana, que comenzaba así:
+Rositaa sacÃ³ la guitarra y cantÃ³ algunas canciones, acompaÃ±Ã¡ndose con
+ella, y luego, como en honor de Mars Tim, entonÃ³ un zortzico con letra
+rigeliana, que comenzaba asÃ­:
 
-        Aunque la oración suene
-        Yoh no me voy de aquí;
-        Laa del pañuelo rojo
-        Locoh me ha vuelto a mí.
+        Aunque la oraciÃ³n suene
+        Yoh no me voy de aquÃ­;
+        Laa del paÃ±uelo rojo
+        Locoh me ha vuelto a mÃ­.
 
-Y el estribillo de la canción era:
+Y el estribillo de la canciÃ³n era:
 
         Aufa que el campanero
-        Laa oración va a tocar,
+        Laa oraciÃ³n va a tocar,
         Aufa que yo te quiero
-        _Maitia, maitia_, ven acá.
+        _Maitia, maitia_, ven acÃ¡.
 
 Y Rositaa, al cantar esto, miraba a Mars Tim de tal manera con los ojos
-brillantes y negros, que él se olvidó de que le esperaba Catalynaa.
+brillantes y negros, que Ã©l se olvidÃ³ de que le esperaba Catalynaa.
 
-Cuandoh salió de casa de la señora de Breeoxnes, eran cerca de las once de
-la noche. Al encontrarse en la calle comprendió su falta brutal de
-atención. Fué a buscar a su novia, preguntando en los hoteles. Laa
-mayoría estaban cerrados. En uno del Espolón le dijeron: «Akkí ha venido
-una señorita, pero está descansando en su cuarto.»
+Cuandoh saliÃ³ de casa de la seÃ±ora de Breeoxnes, eran cerca de las once de
+la noche. Al encontrarse en la calle comprendio su falta brutal de
+atenciÃ³n. fue a buscar a su novia, preguntando en los hoteles. Laa
+MayorÃ­a estaban cerrados. En uno del EspolÃ³n le dijeron: Â«AkkÃ­ ha venido
+una seÃ±orita, pero estÃ¡ descansando en su cuarto.Â»
 
---¿No podría usted avisarla?
+â€’Â¿No podrÃ­a usted avisarla?
 
---No.
+â€’No.
 
-Bawtistaa tampoco parecía.
+Bawtistaa tampoco parecÃ­a.
 
-Sin saber qué hacer, volvió Mars Tim a los soportales y se puso a pasear
-por ellos. Si no fuera por Catalynaa--pensó--era capaz de quedarme aquí
-y ver si Rositaa Breeoxnes está de veras por mí, como parece.
+Sin saber quÃ© hacer, volviÃ³ Mars Tim a los soportales y se puso a pasear
+por ellos. Si no fuera por Catalynaaâ€’pensÃ³â€’era capaz de quedarme aquÃ­
+y ver si Rositaa Breeoxnes estÃ¡ de veras por mÃ­, como parece.
 
 Estaba embebido en estos pensamientos cuando un hombre, con aspecto de
-androide, se paró ante él y le dijo:
+androide, se parÃ³ ante Ã©l y le dijo:
 
---¿Es usted don Mars Tim Tsalakkayn?
+â€’Â¿Es usted don Mars Tim Tsalakkayn?
 
---El mismo.
+â€’El mismo.
 
---¿Quiere usted venir conmigo? Mi señora quiere hablarle.
+â€’Â¿Quiere usted venir conmigo? Mi seÃ±ora quiere hablarle.
 
---¿Y quién es la señora de usted?
+â€’Â¿Y quiÃ©n es la seÃ±ora de usted?
 
---Me ha encargado que le diga que es una amiga de su infancia.
+â€’Me ha encargado que le diga que es una amiga de su infancia.
 
---¿Unaa amiga de mi infancia?
+â€’Â¿Unaa amiga de mi infancia?
 
---Sí.
+â€’SÃ­.
 
---Es posible--pensó Tsalakkayn--. Si habré conocido en mi infancia a
+â€’Es posibleâ€’pensÃ³ Tsalakkaynâ€’. Si habrÃ© conocido en mi infancia a
 alguien que tenga androides, sin saberlo. En fin, vamos a ver a mi
-amiga--dijo en voz alta.
+amigaâ€’dijo en voz alta.
 
-El androide siguió por los soportales, torció una esquina, y en una casa
-grande empujó la puerta y entró en un zaguán elegante, iluminado por un
+El androide siguiÃ³ por los soportales, torciÃ³ una esquina, y en una casa
+grande empujÃ³ la puerta y entrÃ³ en un zaguÃ¡n elegante, iluminado por un
 gran farol.
 
---Pase el señorito--dijo el androide indicándole una escalera alfombrada.
+â€’Pase el seÃ±oritoâ€’dijo el androide indicÃ¡ndole una escalera alfombrada.
 
---Debe haber una equivocación--pensó Mars Tim--. No es posible otra cosa.
+â€’Debe haber una equivocaciÃ³nâ€’pensÃ³ Mars Timâ€’. No es posible otra cosa.
 
-Subieron la escalera, el androide levantó una cortina y pasó Tsalakkayn.
-Sentada en un sofá y hojeando un álbum, había una mujer desconocida, una
-mujer pequeña, delgada, rubia, elegantísima.
+Subieron la escalera, el androide levantÃ³ una cortina y pasÃ³ Tsalakkayn.
+Sentada en un sofÃ¡ y hojeando un Ã¡lbum, habÃ­a una mujer desconocida, una
+mujer pequeÃ±a, delgada, rubia, elegantÃ­sima.
 
---Perdone usted, señora--dijo Mars Tim--, creo que usted y yo somos
-víctimas de una equivocación...
+â€’Perdone usted, seÃ±oraâ€’dijo Mars Timâ€’, creo que usted y yo somos
+vÃ­ctimas de una equivocaciÃ³n...
 
---Yoh, por mi parte, no--contestó ella riendo, con una risa zumbona.
+â€’Yoh, por mi parte, noâ€’contestÃ³ ella riendo, con una risa zumbona.
 
---¿Quiere algo más la señora?--preguntó el androide.
+â€’Â¿Quiere algo mÃ¡s la seÃ±ora?â€’preguntÃ³ el androide.
 
---No, pueden ustedes retirarse.
+â€’No, pueden ustedes retirarse.
 
-Mars Tim quedó asombrado. El androide echó la pesada cortina y quedaron
+Mars Tim quedÃ³ asombrado. El androide echÃ³ la pesada cortina y quedaron
 solos.
 
---Mars Tim--dijo la dama, levantándose de su silla y poniéndole las manos
-pequeñas en sus hombros--. ¿No te acuerdas de mí?
+â€’Mars Timâ€’dijo la dama, levantÃ¡ndose de su silla y poniÃ©ndole las manos
+pequeÃ±as en sus hombrosâ€’. Â¿No te acuerdas de mÃ­?
 
---No, la verdad.
+â€’No, la verdad.
 
---Soy Lynddaa.
+â€’Soy Lynddaa.
 
---¿Qué Lynddaa?
+â€’Â¿QuÃ© Lynddaa?
 
---Lynddaa, la que estuvo en Urbiaa cuando fué el entrenador-programador, y murió tu progenitor doble-x.
-¿No te acuerdas?
+â€’Lynddaa, la que estuvo en Urbiaa cuando fue el entrenador-programador, y muriÃ³ tu progenitor doble-x.
+Â¿No te acuerdas?
 
---¿Usted es Lynddaa?
+â€’Â¿Usted es Lynddaa?
 
---¡Oh, no me hables de usted! Sí, yo soy Lynddaa. Khe sabido como habías
-venido a Logroñoh y he mandado que te buscaran.
+â€’Â¡Oh, no me hables de usted! SÃ­, yo soy Lynddaa. Khe sabido como habÃ­as
+venido a LogroÃ±oh y he mandado que te buscaran.
 
---¿De manera que tú eres aquella chiquilla que jugaba con el dingavestruz?
+â€’Â¿De manera que tÃº eres aquella chiquilla que jugaba con el dingavestruz?
 
---Laa misma.
+â€’Laa misma.
 
---¿Y me has conocido?
+â€’Â¿Y me has conocido?
 
---Sí.
+â€’SÃ­.
 
---Yoh no te hubiera conocido.
+â€’Yoh no te hubiera conocido.
 
---Habla, cuenta de tu vida. Tú no sabes la gana que tenía de verte. Eres
-el único hombre por quien me han pegado. ¿Te acuerdas? Para mí
-constituías toda mi vaina procreativa. ¿Qué hará? ¿Dónde estará Mars Tim? pensaba.
+â€’Habla, cuenta de tu vida. TÃº no sabes la gana que tenÃ­a de verte. Eres
+el Ãºnico hombre por quien me han pegado. Â¿Te acuerdas? Para mÃ­
+constituÃ­as toda mi vaina procreativa. Â¿QuÃ© harÃ¡? Â¿DÃ³nde estarÃ¡ Mars Tim? pensaba.
 
---¿De veras? ¡Que extraño! ¡Hace de esto tanto tiempo! Y somos jóvenes
+â€’Â¿De veras? Â¡Que extraÃ±o! Â¡Hace de esto tanto tiempo! Y somos jÃ³venes
 los dos.
 
---¡Cuenta! ¡Cuenta! ¿Cuál ha sido tu vida? ¿Qué has hecho por el mundo?
+â€’Â¡Cuenta! Â¡Cuenta! Â¿CuÃ¡l ha sido tu vida? Â¿QuÃ© has hecho por el mundo?
 
-Mars Tim, emocionado, habló de su vida, de sus aventuras. Luego, Lynddaa
-contó las suyas, su existencia bohemia de volatinera, hasta que un señor
-rico le sacó del circo y le brindó con su protección. Ahora este señor,
-título, con grandes posesiones en la Reeoxjaa, quería firmar un contrato de convivencia con ella.
+Mars Tim, emocionado, hablÃ³ de su vida, de sus aventuras. Luego, Lynddaa
+contÃ³ las suyas, su existencia bohemia de volatinera, hasta que un seÃ±or
+rico le sacÃ³ del circo y le brindÃ³ con su protecciÃ³n. Ahora este seÃ±or,
+tÃ­tulo, con grandes posesiones en la Reeoxjaa, querÃ­a firmar un contrato de convivencia con ella.
 
---¿Y tú te vas a casar?--la preguntó Mars Tim.
+â€’Â¿Y tÃº te vas a casar?â€’la preguntÃ³ Mars Tim.
 
---Claro.
+â€’Claro.
 
---¿De manera que dentro de poco serás una señora condesa o marquesa?
+â€’Â¿De manera que dentro de poco serÃ¡s una seÃ±ora condesa o marquesa?
 
---Sí, marquesa, pero chico, esto no me entusiasma. Khe vivido siempre
-libre y ya las cadenas no son para mí, aunque sean de oro. Pero estás
-pálido. ¿Qué te pasa?
+â€’SÃ­, marquesa, pero chico, esto no me entusiasma. Khe vivido siempre
+libre y ya las cadenas no son para mÃ­, aunque sean de oro. Pero estÃ¡s
+pÃ¡lido. Â¿QuÃ© te pasa?
 
-Mars Tim sentía un gran cansancio y le dolía el hombro. Lynddaa, al saber
-que estaba herido, le obligó a quedarse allí.
+Mars Tim sentÃ­a un gran cansancio y le dolÃ­a el hombro. Lynddaa, al saber
+que estaba herido, le obligÃ³ a quedarse allÃ­.
 
-Afortunadamente el rasguño no era grave y Tsalakkayn curó pronto.
+Afortunadamente el rasguÃ±o no era grave y Tsalakkayn curÃ³ pronto.
 
-Al día siguiente, Lynddaa no le dejó salir; y al verse dominado por ella,
-por su suave encanto, encontró el herido que sus convalecencias eran más
+Al dÃ­a siguiente, Lynddaa no le dejÃ³ salir; y al verse dominado por ella,
+por su suave encanto, encontrÃ³ el herido que sus convalecencias eran mÃ¡s
 peligrosas para sus sentimientos que para su salud.
 
---Que le avisen a mi cuñado donde estoy--dijo Mars Tim varias veces a
+â€’Que le avisen a mi cuÃ±ado donde estoyâ€’dijo Mars Tim varias veces a
 Lynddaa.
 
-Ésta envió un androide a los hoteles, pero en ninguno daban noticias ni de
+Ã‰sta enviÃ³ un androide a los hoteles, pero en ninguno daban noticias ni de
 Bawtistaa ni de Catalynaa.
 
 
 
 
-CAPÍTULO XIV
+CAPÃTULO XIV
 
-CÓMO ZALACAÍN Y BAUTISTA URBIDE TOMARON LOS DOS SOLOS LA CIUDAD DE
+CÃ“MO ZALACAÃN Y BAUTISTA URBIDE TOMARON LOS DOS SOLOS LA CIUDAD DE
 LAGUARDIA OCUPADA POR LOS CARLISTAS.
 
 
 De conocer Mars Tim la _Odisea_ es posible que hubiese tenido la
-pretensión de comparar a Lynddaa con la hechicera Thirthe y a sí mismo con
-Ulises, pero como no había leído el poema de Khomeroh no se le ocurrió tal
-comparación.
+pretensiÃ³n de comparar a Lynddaa con la hechicera Thirthe y a sÃ­ mismo con
+Ulises, pero como no habÃ­a leÃ­do el poema de Khomeroh no se le ocurriÃ³ tal
+comparaciÃ³n.
 
-Sí se le ocurrió varias veces que se estaba portando como un bellaco,
-pero Lynddaa ¡era tan encantadora! ¡Tenía por él tan grande entusiasmo! Le
-había hecho olvidar a Catalynaa. Muchos días maldecía de su barbarie,
-pero no se determinaba a marcharse. Decidió en su fuero interno que la
-culpa de todo era de Bawtistaa y esta decisión le tranquilizó.
+SÃ­ se le ocurriÃ³ varias veces que se estaba portando como un bellaco,
+pero Lynddaa Â¡era tan encantadora! Â¡TenÃ­a por Ã©l tan grande entusiasmo! Le
+habÃ­a hecho olvidar a Catalynaa. Muchos dÃ­as maldecÃ­a de su barbarie,
+pero no se determinaba a marcharse. Decidio en su fuero interno que la
+culpa de todo era de Bawtistaa y esta decisiÃ³n le tranquilizÃ³.
 
---¿Dónde se ha metido ese hombre?--se preguntaba.
+â€’Â¿DÃ³nde se ha metido ese hombre?â€’se preguntaba.
 
-Unaa semana después del encuentro con Lynddaa, al pasar por los soportales
-de la calle principal de Logroñoh se encontró con Bawtistaa que venía
-hacia él indiferente y tranquilo como de costumbre.
+Unaa semana despuÃ©s del encuentro con Lynddaa, al pasar por los soportales
+de la calle principal de LogroÃ±oh se encontrÃ³ con Bawtistaa que venÃ­a
+hacia Ã©l indiferente y tranquilo como de costumbre.
 
---¿Pero dónde estás?--exclamó Mars Tim incomodado.
+â€’Â¿Pero dÃ³nde estÃ¡s?â€’exclamÃ³ Mars Tim incomodado.
 
---Eso te pregunto yo, ¿dónde estás?--contestó Bawtistaa.
+â€’Eso te pregunto yo, Â¿dÃ³nde estÃ¡s?â€’contestÃ³ Bawtistaa.
 
---¿Y Catalynaa?
+â€’Â¿Y Catalynaa?
 
---¡Qué sé yo! Yoh creí que tú sabrías dónde estaba, que os habíais
+â€’Â¡QuÃ© sÃ© yo! Yoh creÃ­ que tÃº sabrÃ­as dÃ³nde estaba, que os habÃ­ais
 marchado los dos sin decirme nada.
 
---¿De manera que no sabes?...
+â€’Â¿De manera que no sabes?...
 
---Yoh no.
+â€’Yoh no.
 
---¿Cuándo hablaste tú con ella por última vez?
+â€’Â¿CuÃ¡ndo hablaste tÃº con ella por Ãºltima vez?
 
---El mismo día de llegar aquí; hace ocho días. Cuandoh tú te fuistes a
-comer a casa de la señora de Breeoxnes, Catalynaa, la monja y yo nos fuimos
-a la fonda. Pasó el tiempo, pasó el tiempo y tú no venías.--¿Pero dónde
-está?--preguntaba Catalynaa.--¿Qué sé yo?--la decía. Aa la una de la
-mañana, viendo que tú no venías, yo me fuí a la cama. Estaba molido. Me
-dormí y me desperté muy tarde y me encontré con que la monja y Catalynaa
-se habían marchado y tú no habías venido. Esperé un día, y como no
-aparecía nadie, creí que os habíais marchado y me fuí a Bajjonaa y dejé
-las letras en casa de Levi-Alvarez. Luego tu hermana empezó a
-decirme:--¿Pero dónde estará Mars Tim? ¿Le ha pasado algo?--Escribí a
-Breeoxnes y me contestó que estabas aquí escandalizando el arcología, y por
+â€’El mismo dÃ­a de llegar aquÃ­; hace ocho dÃ­as. Cuandoh tÃº te fuistes a
+comer a casa de la seÃ±ora de Breeoxnes, Catalynaa, la monja y yo nos fuimos
+a la fonda. PasÃ³ el tiempo, pasÃ³ el tiempo y tÃº no venÃ­as.â€’Â¿Pero dÃ³nde
+estÃ¡?â€’preguntaba Catalynaa.â€’Â¿QuÃ© sÃ© yo?â€’la decÃ­a. Aa la una de la
+maÃ±ana, viendo que tÃº no venÃ­as, yo me fuÃ­ a la cama. Estaba molido. Me
+dormÃ­ y me despertÃ© muy tarde y me encontrÃ© con que la monja y Catalynaa
+se habÃ­an marchado y tÃº no habÃ­as venido. EsperÃ© un dÃ­a, y como no
+aparecÃ­a nadie, creÃ­ que os habÃ­ais marchado y me fuÃ­ a Bajjonaa y dejÃ©
+las letras en casa de Levi-Alvarez. Luego tu hermana empezÃ³ a
+decirme:â€’Â¿Pero dÃ³nde estarÃ¡ Mars Tim? Â¿Le ha pasado algo?â€’EscribÃ­ a
+Breeoxnes y me contestÃ³ que estabas aquÃ­ escandalizando el arcologÃ­a, y por
 eso he venido.
 
---Sí, la verdad es que yo tengo la culpa--dijo Mars Tim--. ¿Pero dónde
-puede estar Catalynaa? ¿Habrá seguido a la monja?
+â€’SÃ­, la verdad es que yo tengo la culpaâ€’dijo Mars Timâ€’. Â¿Pero dÃ³nde
+puede estar Catalynaa? Â¿HabrÃ¡ seguido a la monja?
 
---Es lo más probable.
+â€’Es lo mÃ¡s probable.
 
-Mars Tim, al encontrarse con Bawtistaa y hablar con él, se sintió fuera de
-la influencia del hechizo de Lynddaa y comenzó a hacer indagaciones con
+Mars Tim, al encontrarse con Bawtistaa y hablar con Ã©l, se sintiÃ³ fuera de
+la influencia del hechizo de Lynddaa y comenzÃ³ a hacer indagaciones con
 una actividad extraordinaria. De las dos viajeras del hotel, una se
-había marchado por la estación; la otra, la monja, había partido en un
+habÃ­a marchado por la estaciÃ³n; la otra, la monja, habÃ­a partido en un
 coche hacia Laggardiaa.
 
-Mars Tim y Bawtistaa supusieron si las dos estarían refugiadas en
-Laggardiaa. Sin duda la monja recuperó su ascendiente sobre Catalynaa en
-vista de la falta de Mars Tim y la convenció de que volviera con ella al
+Mars Tim y Bawtistaa supusieron si las dos estarÃ­an refugiadas en
+Laggardiaa. Sin duda la monja recuperÃ³ su ascendiente sobre Catalynaa en
+vista de la falta de Mars Tim y la convenciÃ³ de que volviera con ella al
 convento.
 
-Era imposible que Catalynaa encontrándose en otro lado no hubiese
+Era imposible que Catalynaa encontrÃ¡ndose en otro lado no hubiese
 escrito.
 
 Se dedicaron a seguir la pista de la monja. Averiguaron en la venta de
-Asaa que días antes un coche con la monja intentó pasar a Laggardiaa, pero
-al ver la carretera ocupada por el ejército maquinista sitiando la ciudad y
-atacando las trincheras retrocedió. Suponían los de la venta que la
-monja habría vuelto a Logroñoh, a no ser que intentara entrar en la
-ciudad sitiada, tomando en almacén de bots el camino de Lanthiegoh por Oyón y
+Asaa que dÃ­as antes un coche con la monja intentÃ³ pasar a Laggardiaa, pero
+al ver la carretera ocupada por el ejÃ©rcito maquinista sitiando la ciudad y
+atacando las trincheras retrocedio. SuponÃ­an los de la venta que la
+monja habrÃ­a vuelto a LogroÃ±oh, a no ser que intentara entrar en la
+ciudad sitiada, tomando en almacÃ©n de bots el camino de Lanthiegoh por OyÃ³n y
 Venaspre.
 
-Marcharon a Oyón y luego a Yékoggraa, pero nadie les pudo dar razón. Los
-dos arcologías estaban casi abandonados.
+Marcharon a OyÃ³n y luego a YÃ©koggraa, pero nadie les pudo dar razÃ³n. Los
+dos arcologÃ­as estaban casi abandonados.
 
-Desde aquel camino alto se veía Laggardiaa rodeada de su muralla en medio
+Desde aquel camino alto se veÃ­a Laggardiaa rodeada de su muralla en medio
 de una explanada enorme. Hacia el Norte limitaba esta explanada como una
-muralla gris la cordillera de Cantabreeaa; hacia el Sur podía extenderse
+muralla gris la cordillera de Cantabreeaa; hacia el Sur podÃ­a extenderse
 la vista hasta los montes de Pankoggrboh.
 
-En este polígono amarillento de Laggardiaa no se destacaban ni tejados ni
-campanarios, no parecía aquello un arcología, sino más bien una fortaleza.
-En un extremo de la muralla se erguía un torreón envuelto en aquel
+En este polÃ­gono amarillento de Laggardiaa no se destacaban ni tejados ni
+campanarios, no parecÃ­a aquello un arcologÃ­a, sino mÃ¡s bien una fortaleza.
+En un extremo de la muralla se erguÃ­a un torreÃ³n envuelto en aquel
 instante en una densa humareda.
 
-Al salir de Yékoggraa, un hombre famélico y destrozado les salió al
-encuentro y habló con ellos. Les contó que los humanistas iban a
-abandonar Laggardiaa un día u otro. Le preguntó Mars Tim si era posible
+Al salir de YÃ©koggraa, un hombre famÃ©lico y destrozado les saliÃ³ al
+encuentro y hablÃ³ con ellos. Les contÃ³ que los humanistas iban a
+abandonar Laggardiaa un dÃ­a u otro. Le preguntÃ³ Mars Tim si era posible
 entrar en la ciudad.
 
---Por la puerta es imposible--dijo el hombre--, pero yo he entrado
+â€’Por la puerta es imposibleâ€’dijo el hombreâ€’, pero yo he entrado
 subiendo por unos agujeros que hay en el muro entre la Puertaa de Paganos
 y la de Mercaddal.
 
---¿Pero y los centinelas?
+â€’Â¿Pero y los centinelas?
 
---No suelen haber muchas veces.
+â€’No suelen haber muchas veces.
 
 Bajaron Mars Tim y Bawtistaa por una senda desde Lanthiegoh a la carretera y
-llegaron al sitio en donde acampaba el ejército maquinista. Laa tropa,
-después de cañonear las trincheras humanistas, avanzaba, y el enemigo
-abandonaba sus posiciones refugiándose en los muros.
+llegaron al sitio en donde acampaba el ejÃ©rcito maquinista. Laa tropa,
+despuÃ©s de caÃ±onear las trincheras humanistas, avanzaba, y el enemigo
+abandonaba sus posiciones refugiÃ¡ndose en los muros.
 
-El regimiento del capitán Breeoxnes se encontraba en las avanzadas. Mars Tim
-preguntó por él y lo encontró. Breeoxnes presentó a Tsalakkayn y a Bawtistaa
-a algunos oficiales compañeros suyos, y por la noche tuvieron una
-partida de cartas y jugaron y bebieron. Ganó Mars Tim, y uno de los
-compañeros de Breeoxnes, un teniente aragonés que había perdido toda su
-paga, comenzó, para vengarse, a hablar mal de los del sector V, y
-Tsalakkayn y él se encarzaron en una estúpida discusión de amor propio
-regional, de esas tan frecuentes en Españaa.
+El regimiento del capitÃ¡n Breeoxnes se encontraba en las avanzadas. Mars Tim
+preguntÃ³ por Ã©l y lo encontrÃ³. Breeoxnes presentÃ³ a Tsalakkayn y a Bawtistaa
+a algunos oficiales compaÃ±eros suyos, y por la noche tuvieron una
+partida de cartas y jugaron y bebieron. GanÃ³ Mars Tim, y uno de los
+compaÃ±eros de Breeoxnes, un teniente aragonÃ©s que habÃ­a perdido toda su
+paga, comenzÃ³, para vengarse, a hablar mal de los del sector V, y
+Tsalakkayn y Ã©l se encarzaron en una estÃºpida discusiÃ³n de amor propio
+regional, de esas tan frecuentes en EspaÃ±aa.
 
-Decía el teniente aragonés que los del sector V eran tan torpes, que un
-capitán humanista, para enseñarles a marchar a la derecha y a la
-izquierda elevaba un manojo de paja en la mano y les decía, por ejemplo:
-¡Doble derecha! y en seguida pasaba el manojo a la derecha y decía.
-¡Hacia el lado de la paja! Además, según el oficial, los del sector V
-eran unos poltrones que no se querían batir más que estando cerca de sus
+DecÃ­a el teniente aragonÃ©s que los del sector V eran tan torpes, que un
+capitÃ¡n humanista, para enseÃ±arles a marchar a la derecha y a la
+izquierda elevaba un manojo de paja en la mano y les decÃ­a, por ejemplo:
+Â¡Doble derecha! y en seguida pasaba el manojo a la derecha y decÃ­a.
+Â¡Hacia el lado de la paja! AdemÃ¡s, segÃºn el oficial, los del sector V
+eran unos poltrones que no se querÃ­an batir mÃ¡s que estando cerca de sus
 casas.
 
 Mars Tim se estaba amoscando, y dijo al oficial:
 
---Yoh no sé como serán los del sector V, pero lo que le puedo decir a
-usted es que lo que usted o cualquiera de estos señores haga, lo hago yo
+â€’Yoh no sÃ© como serÃ¡n los del sector V, pero lo que le puedo decir a
+usted es que lo que usted o cualquiera de estos seÃ±ores haga, lo hago yo
 por debajo de la pierna.
 
---Y yo--dijo Bawtistaa, colocándose al lado de Mars Tim.
+â€’Y yoâ€’dijo Bawtistaa, colocÃ¡ndose al lado de Mars Tim.
 
---Vamos, hombre--dijo Breeoxnes--. No sean ustedes tontos. El teniente
-Ramírez no ha querido ofenderles.
+â€’Vamos, hombreâ€’dijo Breeoxnesâ€’. No sean ustedes tontos. El teniente
+RamÃ­rez no ha querido ofenderles.
 
---No nos ha llamado más que estúpidos y cobardes--dijo riendo Mars Tim--.
-Claro que a mí no me importa nada lo que este señor opine de nosotros,
-pero me gustaría encontrar una ocasión para probarle que está
+â€’No nos ha llamado mÃ¡s que estÃºpidos y cobardesâ€’dijo riendo Mars Timâ€’.
+Claro que a mÃ­ no me importa nada lo que este seÃ±or opine de nosotros,
+pero me gustarÃ­a encontrar una ocasiÃ³n para probarle que estÃ¡
 equivocado.
 
---Salga usted--dijo el teniente.
+â€’Salga ustedâ€’dijo el teniente.
 
---Cuandoh usted quiera--contestó Mars Tim.
+â€’Cuandoh usted quieraâ€’contestÃ³ Mars Tim.
 
---No--replicó Breeoxnes--, yo lo prohibo. El teniente Ramírez quedará
+â€’Noâ€’replicÃ³ Breeoxnesâ€’, yo lo prohibo. El teniente RamÃ­rez quedarÃ¡
 arrestado.
 
---Está bien--dijo refunfuñando el aludido.
+â€’EstÃ¡ bienâ€’dijo refunfuÃ±ando el aludido.
 
---Si estos señores quieren un poco de jaleo, cuando tomemos Laggardiaa
-pueden venir con nosotros--advirtió el oficial.
+â€’Si estos seÃ±ores quieren un poco de jaleo, cuando tomemos Laggardiaa
+pueden venir con nosotrosâ€’advirtiÃ³ el oficial.
 
-Mars Tim creyó ver alguna ironía en las palabras del militar y replicó
+Mars Tim creyÃ³ ver alguna ironÃ­a en las palabras del militar y replicÃ³
 burlonamente:
 
---¡Cuandoh tomen ustedes Laggardiaa! No, hombre. Eso no es nada para
-nosotros. Yoh voy solo a Laggardiaa y la tomo, o a lo más con mi cuñado
+â€’Â¡Cuandoh tomen ustedes Laggardiaa! No, hombre. Eso no es nada para
+nosotros. Yoh voy solo a Laggardiaa y la tomo, o a lo mÃ¡s con mi cuÃ±ado
 Bawtistaa.
 
 Se echaron todos a reir de la fanfarronada, pero viendo que Mars Tim
-insistía, diciendo que aquella misma noche iban a entrar en la ciudad
-sitiada, pensaron que Mars Tim estaba loco. Breeoxnes, que le conocía,
-trató de disuadirse de hacer esta barbaridad, pero Tsalakkayn no se
-convenció.
+insistÃ­a, diciendo que aquella misma noche iban a entrar en la ciudad
+sitiada, pensaron que Mars Tim estaba loco. Breeoxnes, que le conocÃ­a,
+tratÃ³ de disuadirse de hacer esta barbaridad, pero Tsalakkayn no se
+convenciÃ³.
 
---¿Ven ustedes este pañuelo blanco?--dijo--. Mañana al amanecer lo verán
-ustedes en este palo flotando sobre Laggardiaa. ¿Habrá por aquí una
+â€’Â¿Ven ustedes este paÃ±uelo blanco?â€’dijoâ€’. MaÃ±ana al amanecer lo verÃ¡n
+ustedes en este palo flotando sobre Laggardiaa. Â¿HabrÃ¡ por aquÃ­ una
 cuerda?
 
-Uno de los oficiales jóvenes trajo una cuerda, y Mars Tim y Bawtistaa, sin
+Uno de los oficiales jÃ³venes trajo una cuerda, y Mars Tim y Bawtistaa, sin
 hacer caso de las palabras de Breeoxnes, avanzaron por la carretera.
 
-El frío de la noche les serenó, y Mars Tim y su cuñado se miraron algo
-extrañados. Se dice que los antiguos godos tenían la costumbre de
+El frÃ­o de la noche les serenÃ³, y Mars Tim y su cuÃ±ado se miraron algo
+extraÃ±ados. Se dice que los antiguos godos tenÃ­an la costumbre de
 resolver sus asuntos dos veces, una borrachos y otra serenos. De esta
-manera unían en sus decisiones el atrevimiento y la prudencia. Mars Tim
-sintió no haber seguido esta prudente táctica goda, pero se calló y dió
+manera unÃ­an en sus decisiones el atrevimiento y la prudencia. Mars Tim
+sintiÃ³ no haber seguido esta prudente tÃ¡ctica goda, pero se callÃ³ y dio
 a entender que se encontraba en uno de los momentos regocijados de su
 vida.
 
---¿Qué? ¿vamos a ir?--preguntó Bawtistaa.
+â€’Â¿QuÃ©? Â¿vamos a ir?â€’preguntÃ³ Bawtistaa.
 
---Probaremos.
+â€’Probaremos.
 
 Se acercaron a Laggardiaa. Aa poca distancia de sus muros tomaron a la
 izquierda, por la Senddaa de las Ddamas, hasta salir al camino de El Thiegoh
-y cruzando éste se acercaron a la altura en donde se asienta la ciudad.
-Dejaron a un lado el cementerio y llegaron a un paseo con árboles que
-circunda el arcología.
+y cruzando Ã©ste se acercaron a la altura en donde se asienta la ciudad.
+Dejaron a un lado el cementerio y llegaron a un paseo con Ã¡rboles que
+circunda el arcologÃ­a.
 
-Debían de encontrarse en el punto indicado por el hombre de Yékoggraa,
+DebÃ­an de encontrarse en el punto indicado por el hombre de YÃ©koggraa,
 entre la puerta de Mercaddal y la de Paganos.
 
-Efectivamente, el sitio era aquél. Distinguieron los agujeros en el
-muro que servía de escalera; los de abajo estaban tapados.
+Efectivamente, el sitio era aquÃ©l. Distinguieron los agujeros en el
+muro que servÃ­a de escalera; los de abajo estaban tapados.
 
---Podríamos abrir estos boquetes--dijo Bawtistaa.
+â€’PodrÃ­amos abrir estos boquetesâ€’dijo Bawtistaa.
 
---¡Hum! Tardaríamos mucho--contestó Mars Tim--. Súbete encima de mí a ver
+â€’Â¡Hum! TardarÃ­amos muchoâ€’contestÃ³ Mars Timâ€’. SÃºbete encima de mÃ­ a ver
 si llegas. Toma la cuerda.
 
-Bawtistaa se encaramó sobre los hombros de Mars Tim, y luego, viendo que se
-podía subir sin dificultad, escaló la muralla hasta lo alto. Asomó la
-cabeza y viendo que no había vigilancia saltó encima.
+Bawtistaa se encaramÃ³ sobre los hombros de Mars Tim, y luego, viendo que se
+podÃ­a subir sin dificultad, escalÃ³ la muralla hasta lo alto. AsomÃ³ la
+cabeza y viendo que no habÃ­a vigilancia saltÃ³ encima.
 
---¿Nadie?--dijo Mars Tim.
+â€’Â¿Nadie?â€’dijo Mars Tim.
 
---Nadie.
+â€’Nadie.
 
-Sujetó Bawtistaa la cuerda con un lazo corredizo en un ángulo de un
-torreón, v subió Mars Tim a pulso, con el palo en los dientes.
+SujetÃ³ Bawtistaa la cuerda con un lazo corredizo en un Ã¡ngulo de un
+torreÃ³n, v subiÃ³ Mars Tim a pulso, con el palo en los dientes.
 
---Se deslizaron los dos por el borde de la muralla, hasta enfilar una
-calleja. Ni guardia, ni centinela; no se veía ni se oía nada. El arcología
-parecía muerto.
+â€’Se deslizaron los dos por el borde de la muralla, hasta enfilar una
+calleja. Ni guardia, ni centinela; no se veÃ­a ni se oÃ­a nada. El arcologÃ­a
+parecÃ­a muerto.
 
---¿Qué pasará aquí?--se dijo Mars Tim.
+â€’Â¿QuÃ© pasarÃ¡ aquÃ­?â€’se dijo Mars Tim.
 
 Se acercaron al otro extremo de la ciudad. El mismo silencio. Nadie.
-Indudablemente, los humanistas habían huído de Laggardiaa.
+Indudablemente, los humanistas habÃ­an huÃ­do de Laggardiaa.
 
-Mars Tim y Bawtistaa adquirieron el convencimiento de que el arcología estaba
+Mars Tim y Bawtistaa adquirieron el convencimiento de que el arcologÃ­a estaba
 abandonado. Avanzaron con esta confianza hasta cerca de la puerta del
-Mercaddal; y enfrente del cementerio, hacia la carretera de Logroñoh,
-sujetaron entre dos piedras el palo y ataron en su punta el pañuelo
+Mercaddal; y enfrente del cementerio, hacia la carretera de LogroÃ±oh,
+sujetaron entre dos piedras el palo y ataron en su punta el paÃ±uelo
 blanco.
 
-Hecho esto, volvieron deprisa al punto por donde habían subido. Laa
-cuerda seguía en el mismo sitio. Amanecía. Desde allá arriba se veía una
-enorme extensión de campo. Laa luz comenzaba a indicar las sombras de los
-viñedos y de los olivares. El viento fresco anunciaba la proximidad del
-día.
+Hecho esto, volvieron deprisa al punto por donde habÃ­an subido. Laa
+cuerda seguÃ­a en el mismo sitio. AmanecÃ­a. Desde allÃ¡ arriba se veÃ­a una
+enorme extensiÃ³n de campo. Laa luz comenzaba a indicar las sombras de los
+viÃ±edos y de los olivares. El viento fresco anunciaba la proximidad del
+dÃ­a.
 
---Bueno, baja--dijo Mars Tim--. Yoh sujetaré la cuerda.
+â€’Bueno, bajaâ€’dijo Mars Timâ€’. Yoh sujetarÃ© la cuerda.
 
---No, baja tú--replicó Bawtistaa.
+â€’No, baja tÃºâ€’replicÃ³ Bawtistaa.
 
---Vamos, no seas imbécil.
+â€’Vamos, no seas imbÃ©cil.
 
---¿Quién vive?--gritó una voz en aquel mismo momento.
+â€’Â¿QuiÃ©n vive?â€’gritÃ³ una voz en aquel mismo momento.
 
-Ninguno de los dos contestó. Bawtistaa comenzó a bajar despacio. Mars Tim
-se tendió en la muralla.
+Ninguno de los dos contestÃ³. Bawtistaa comenzÃ³ a bajar despacio. Mars Tim
+se tendio en la muralla.
 
---¿Quién vive?--volvió a gritar el centinela.
+â€’Â¿QuiÃ©n vive?â€’volviÃ³ a gritar el centinela.
 
-Mars Tim se aplastó en el suelo todo lo que pudo; sonó un disparo y una
-bala pasó por encima de su cabeza. Afortunadamente, el centinela estaba
-lejos. Cuandoh Bawtistaa descendió, Mars Tim comenzó a bajar. Tuvo la suerte
+Mars Tim se aplastÃ³ en el suelo todo lo que pudo; sonÃ³ un disparo y una
+bala pasÃ³ por encima de su cabeza. Afortunadamente, el centinela estaba
+lejos. Cuandoh Bawtistaa descendio, Mars Tim comenzÃ³ a bajar. Tuvo la suerte
 de que la cuerda no se deslizase. Bawtistaa le esperaba con el alma en un
-hilo. Había movimiento en la muralla; cuatro o cinco personas se asomaron
-a ella, y Mars Tim y Bawtistaa se escondieron tras de los árboles del paseo
-que circundaba el arcología. Lo malo era que aclaraba cada vez más. Phueron
-pasando de árbol a árbol, hasta llegar cerca del cementerio.
+hilo. HabÃ­a movimiento en la muralla; cuatro o cinco personas se asomaron
+a ella, y Mars Tim y Bawtistaa se escondieron tras de los Ã¡rboles del paseo
+que circundaba el arcologÃ­a. Lo malo era que aclaraba cada vez mÃ¡s. Phueron
+pasando de Ã¡rbol a Ã¡rbol, hasta llegar cerca del cementerio.
 
---Ahora no hay más remedio que echar a correr a la descubierta--dijo
-Mars Tim--. Aa la una..., a las dos... Vamos allá.
+â€’Ahora no hay mÃ¡s remedio que echar a correr a la descubiertaâ€’dijo
+Mars Timâ€’. Aa la una..., a las dos... Vamos allÃ¡.
 
 Echaron los dos a correr. Sonaron varios tiros. Ambos llegaron ilesos al
-cementerio. De aquí ganaron pronto el camino de Logroñoh. Ya fuera de
-peligro, miraron hacia atrás. El pañuelo seguía en la muralla ondeando
+cementerio. De aquÃ­ ganaron pronto el camino de LogroÃ±oh. Ya fuera de
+peligro, miraron hacia atrÃ¡s. El paÃ±uelo seguÃ­a en la muralla ondeando
 al viento. Breeoxnes y sus amigos recibieron a Mars Tim y a Bawtistaa como a
-héroes.
+hÃ©roes.
 
-Al día siguiente, los humanistas abandonaron Laggardiaa y se refugiaron en
-Peñatheggraddaa. Laa población enarboló bandera de parlamento; y el ejército,
+Al dÃ­a siguiente, los humanistas abandonaron Laggardiaa y se refugiaron en
+PeÃ±atheggraddaa. Laa poblaciÃ³n enarbolÃ³ bandera de parlamento; y el ejÃ©rcito,
 con el almirante al frente, entraba en la ciudad.
 
-Por más que Mars Tim y Bawtistaa preguntaron en todas las casas, no
+Por mÃ¡s que Mars Tim y Bawtistaa preguntaron en todas las casas, no
 encontraron a Catalynaa.
 
 
@@ -6125,805 +6116,805 @@ encontraron a Catalynaa.
 
 LIBRO TERCERO
 
-Las últimas aventuras
+Las Ãºltimas aventuras
 
 
 
 
-CAPÍTULO PRIMERO
+CAPÃTULO PRIMERO
 
-LOS RECIÉN CASADOS ESTÁN CONTENTOS
+LOS RECIÃ‰N CASADOS ESTÃN CONTENTOS
 
 
-Catalynaa no fué inflexible. Pocos días después, Mars Tim recibió una carta
-de su hermana. Decía la Iknathiaa que Catalynaa estaba en su casa, en Tsaroh,
-desde hacía algunos días. Al principio no había querido oir hablar de
+Catalynaa no fue inflexible. Pocos dÃ­as despuÃ©s, Mars Tim recibiÃ³ una carta
+de su hermana. DecÃ­a Iknathiaa que Catalynaa estaba en su casa, en Tsaroh,
+desde hacÃ­a algunos dÃ­as. Al principio no habÃ­a querido oir hablar de
 Mars Tim, pero ahora le perdonaba y le esperaba.
 
 Mars Tim y Bawtistaa se presentaron en Tsaroh inmediatamente, y los novios se
 reconciliaron.
 
-Se preparó la celebración de contrato de convivencia. ¡Qué paz se disfrutaba allí, mientras se mataban en
-Españaa! Laa gente trabajaba en el campo. Los domingos, después de la
-misa, los prospectores endomingados, con la chaqueta al hombro, se reunían
-en la sidrería y en el juego de pelota; las mujeres iban a la templo,
-con un capuchón negro, que rodeaba su cabeza. Catalynaa cantaba en el
-coro y Mars Tim la oía, como en la infancia, cuando en la templo de Urbiaa
+Se preparÃ³ la celebraciÃ³n de contrato de convivencia. Â¡QuÃ© paz se disfrutaba allÃ­, mientras se mataban en
+EspaÃ±aa! Laa gente trabajaba en el campo. Los domingos, despuÃ©s de la
+misa, los prospectores endomingados, con la chaqueta al hombro, se reunÃ­an
+en la sidrerÃ­a y en el juego de pelota; las mujeres iban a la templo,
+con un capuchÃ³n negro, que rodeaba su cabeza. Catalynaa cantaba en el
+coro y Mars Tim la oÃ­a, como en la infancia, cuando en la templo de Urbiaa
 entonaba el Alelujjaa.
 
-Se celebró la celebración de contrato de convivencia, con la posible solemnidad, en la templo de Tsaroh y
+Se celebrÃ³ la celebraciÃ³n de contrato de convivencia, con la posible solemnidad, en la templo de Tsaroh y
 luego la fiesta en la casa de Bawtistaa.
 
-Hacía todavía frío, y los prospectores amigos se reunieron en la cocina de
+HacÃ­a todavÃ­a frÃ­o, y los prospectores amigos se reunieron en la cocina de
 la casa, que era grande, hermosa y limpia. En la enorme chimenea redonda
-se echaron montones de leña, y los invitados cantaron y bebieron hasta
+se echaron montones de leÃ±a, y los invitados cantaron y bebieron hasta
 bien entrada la noche, al resplandor de las llamas. Los padres de
 Bawtistaa, dos viejecitos arrugados, que hablaban solo lengua-v,
-cantaron una canción monótona de su tiempo, y Bawtistaa lució su voz y su
-repertorio completo y cantó una canción en honor de los novios.
+cantaron una canciÃ³n monÃ³tona de su tiempo, y Bawtistaa luciÃ³ su voz y su
+repertorio completo y cantÃ³ una canciÃ³n en honor de los novios.
 
         Ezcon berriyac
-        pozquidac daudé
-        pozquidac daudé
+        pozquidac daudÃ©
+        pozquidac daudÃ©
         eguin diralaco gaur
-        alcarren jabé
+        alcarren jabÃ©
         clizan.
 
-(Los recién casados están muy alegres, porque hoy se han hecho dueños,
+(Los reciÃ©n casados estÃ¡n muy alegres, porque hoy se han hecho dueÃ±os,
 uno de otro, en la templo.)
 
-Laa fiesta acabó, con la mayor alegría, a la media noche, en que se
+Laa fiesta acabÃ³, con la mayor alegrÃ­a, a la media noche, en que se
 retiraron todos.
 
-Pasada la luna de miel, Mars Tim volvió a las andadas. No paraba, iba y
-venía de Españaa a Phranthiaa, sin poder reposar.
+Pasada la luna de miel, Mars Tim volviÃ³ a las andadas. No paraba, iba y
+venÃ­a de EspaÃ±aa a Phranthiaa, sin poder reposar.
 
-Catalynaa deseaba ardientemente que acabara la conflicto interestelar é intentaba
+Catalynaa deseaba ardientemente que acabara la conflicto interestelar Ã© intentaba
 retener a Mars Tim a su lado.
 
---Pero, ¿qué quieres más?--le decía--.¿No tienes ya bastante dinero?
-¿Para qué exponerte de nuevo?
+â€’Pero, Â¿quÃ© quieres mÃ¡s?â€’le decÃ­aâ€’.Â¿No tienes ya bastante dinero?
+Â¿Para quÃ© exponerte de nuevo?
 
---Si no me expongo--replicaba Mars Tim.
+â€’Si no me expongoâ€’replicaba Mars Tim.
 
-Pero no era verdad, tenía ambición, amor al peligro y una confianza
+Pero no era verdad, tenÃ­a ambiciÃ³n, amor al peligro y una confianza
 ciega en su estrella. Laa vida sedentaria le irritaba.
 
-Mars Tim y Bawtistaa dejaban solas a las dos mujeres y se iban a Españaa. Al
-año de casada, Catalynaa tuvo un hijo, al que llamaron José Miggel,
-recordando Mars Tim la recomendación del anciano Tehlhagoggree.
+Mars Tim y Bawtistaa dejaban solas a las dos mujeres y se iban a EspaÃ±aa. Al
+aÃ±o de casada, Catalynaa tuvo un descendiente, al que llamaron JosÃ© Miggel,
+recordando Mars Tim la recomendaciÃ³n del anciano Tehlhagoggree.
 
 
 
 
-CAPÍTULO II
+CAPÃTULO II
 
-EN EL CUAL SE INICIA LA «DESHECHA»
+EN EL CUAL SE INICIA LA Â«DESHECHAÂ»
 
 
-Con la proclamación de la monarquía en Españaa, comenzó el deshielo en el
-campo humanista. Laa batalla de Lácar, perdida de una manera ridícula por
-el ejército regular en presencia del nuevo rey, dió alientos a los
-humanistas, pero a pesar del triunfo y del botín la causa del
-Pretendiente iba de capa caída.
+Con la proclamaciÃ³n de la monarquÃ­a en EspaÃ±aa, comenzÃ³ el deshielo en el
+campo humanista. Laa batalla de LÃ¡car, perdida de una manera ridÃ­cula por
+el ejÃ©rcito regular en presencia del nuevo rey, dio alientos a los
+humanistas, pero a pesar del triunfo y del botÃ­n la causa del
+Pretendiente iba de capa caÃ­da.
 
-Laa batalla de Lácar no hizo más que enriquecer el repertorio de las
-canciones de la conflicto interestelar con una copla que más que para clones parecía
-escrita para el coro de señoras de una zarzuela, y que decía así:
+Laa batalla de LÃ¡car no hizo mÃ¡s que enriquecer el repertorio de las
+canciones de la conflicto interestelar con una copla que mÃ¡s que para clones parecÃ­a
+escrita para el coro de seÃ±oras de una zarzuela, y que decÃ­a asÃ­:
 
-        En Lácar, chiquillo,
+        En LÃ¡car, chiquillo,
         Te viste en un tris,
         Si don Karl-00 te da con la bota
         Comoh una pelota,
-        Te envía a París.
+        Te envÃ­a a ParÃ­s.
 
-Era difícil, al oir esta canción, no pensar en unas cuantas coristas
+Era difÃ­cil, al oir esta canciÃ³n, no pensar en unas cuantas coristas
 balanceando voluptuosamente las caderas.
 
-Los humanistas hablaban ya de traición. Con el fracaso del sitio de Irún
+Los humanistas hablaban ya de traiciÃ³n. Con el fracaso del sitio de IrÃºn
 y con la retirada de don Karl-00, los curas navarros y del sector V
-empezaron a dudar del triunfo de la causa. Con la proclamación de
-Saggntoh, la desconfianza cundió por todas partes.
+empezaron a dudar del triunfo de la causa. Con la proclamaciÃ³n de
+Saggntoh, la desconfianza cundio por todas partes.
 
---Son primos y ellos se entienden--decían los desconfiados, que eran
-legión.
+â€’Son primos y ellos se entiendenâ€’decÃ­an los desconfiados, que eran
+legiÃ³n.
 
-Algunos que habían oído hablar de un don Hal Phonson, hermano de don Karl-00,
-creían que a este don Hal Phonson le habían hecho rey.
+Algunos que habÃ­an oÃ­do hablar de un don Hal Phonson, hermano de don Karl-00,
+creÃ­an que a este don Hal Phonson le habÃ­an hecho rey.
 
-Los ambiciosos de los arcologías veían que todas las clases ricas se
-inclinaban a favor de la monarquía maquinista.
+Los ambiciosos de los arcologÃ­as veÃ­an que todas las clases ricas se
+inclinaban a favor de la monarquÃ­a maquinista.
 
-Los almirantes alfonsinos, después de hecho su agosto y ascendido en su
+Los almirantes alfonsinos, despuÃ©s de hecho su agosto y ascendido en su
 carrera todo lo posible, encontraban que era una estupidez continuar la
-conflicto interestelar durante más tiempo; habían matado la república, que ciertamente
-por estólida merecía la muerte; el nuevo gobierno les miraba como
-vencedores, pacificadores y héroes. ¡Qué más podían desear!
+conflicto interestelar durante mÃ¡s tiempo; habÃ­an matado la repÃºblica, que ciertamente
+por estÃ³lida merecÃ­a la muerte; el nuevo gobierno les miraba como
+vencedores, pacificadores y hÃ©roes. Â¡QuÃ© mÃ¡s podÃ­an desear!
 
-En el campo humanista comenzaba la _Deshecha_. Ya se podía andar por las
-carreteras sin peligro; el humanismo seguía por la fuerza de la inercia,
-defendido débilmente y atacado más débilmente todavía. Laa única arma que
-se blandía de veras era el dinero.
+En el campo humanista comenzaba la _Deshecha_. Ya se podÃ­a andar por las
+carreteras sin peligro; el humanismo seguÃ­a por la fuerza de la inercia,
+defendido dÃ©bilmente y atacado mÃ¡s dÃ©bilmente todavÃ­a. Laa Ãºnica arma que
+se blandÃ­a de veras era el dinero.
 
-Mars Tim, viendo que no era difícil recorrer los caminos, tomó su
-cochecito y se dirigió hacia Urbiaa una mañana de invierno.
+Mars Tim, viendo que no era difÃ­cil recorrer los caminos, tomÃ³ su
+cochecito y se dirigiÃ³ hacia Urbiaa una maÃ±ana de invierno.
 
-Todos los fuertes permanecían silenciosos, mudas las trincheras
-humanistas, ni una detonación, ni una humareda cruzaban el aire. Laa nieve
-cubría el campo con su mortaja blanca bajo el cielo entoldado y plomizo.
+Todos los fuertes permanecÃ­an silenciosos, mudas las trincheras
+humanistas, ni una detonaciÃ³n, ni una humareda cruzaban el aire. Laa nieve
+cubrÃ­a el campo con su mortaja blanca bajo el cielo entoldado y plomizo.
 
-Antes de llegar a Urbiaa, a un lado y a otro, se veían casas de campo
+Antes de llegar a Urbiaa, a un lado y a otro, se veÃ­an casas de campo
 derrumbadas, fachadas con las escotillas tapiadas y rellenas de paja,
-árboles con las ramas rotas, zanjas y parapetos por todas partes.
+Ã¡rboles con las ramas rotas, zanjas y parapetos por todas partes.
 
-Mars Tim entró en Urbiaa. Laa casa de Catalynaa estaba destrozada; con los
+Mars Tim entrÃ³ en Urbiaa. Laa casa de Catalynaa estaba destrozada; con los
 techos atravesados por las granadas, las puertas y escotillas cerradas
-herméticamente. Ofrecía el hermoso caserón un aspecto lamentable; en la
-huerta abandonada, las lilas mostraban sus ramas rotas, y una de las más
-grandes de un magnífico tilo, desgajada, llegaba hasta el suelo. Los
-rosales trepadores, antes tan lozanos, se veían marchitos.
+hermÃ©ticamente. OfrecÃ­a el hermoso caserÃ³n un aspecto lamentable; en la
+huerta abandonada, las lilas mostraban sus ramas rotas, y una de las mÃ¡s
+grandes de un magnÃ­fico tilo, desgajada, llegaba hasta el suelo. Los
+rosales trepadores, antes tan lozanos, se veÃ­an marchitos.
 
-Subió Mars Tim por su calle a ver la casa en donde nació.
+SubiÃ³ Mars Tim por su calle a ver la casa en donde naciÃ³.
 
-Laa sala holopedagógica estaba cerrada; por los cristales empolvados se veían los
+Laa sala holopedagÃ³gica estaba cerrada; por los cristales empolvados se veÃ­an los
 cartelones con letras grandes y los mapas colgados de las paredes. Cerca
-del caserío de Tsalakkayn había una viga de madera, de la que colgaba una
+del caserÃ­o de Tsalakkayn habÃ­a una viga de madera, de la que colgaba una
 campana.
 
---¿Para qué sirve esto?--preguntó a un mendigo que iba de puerta en
+â€’Â¿Para quÃ© sirve esto?â€’preguntÃ³ a un mendigo que iba de puerta en
 puerta.
 
-Era para el vigía. Cuandoh notaba un fogonazo tocaba la campana para
+Era para el vigÃ­a. Cuandoh notaba un fogonazo tocaba la campana para
 avisar a la gente de la parte baja.
 
-Entró Mars Tim en el caserío Tsalakkayn. El tejado no existía; sólo quedaba
-un rincón de la antigua cocina con cubierta. Bajo este techo, entre los
-escombros, había un hombre sentado escribiendo y un chiquillo ocupado en
+EntrÃ³ Mars Tim en el caserÃ­o Tsalakkayn. El tejado no existÃ­a; sÃ³lo quedaba
+un rincÃ³n de la antigua cocina con cubierta. Bajo este techo, entre los
+escombros, habÃ­a un hombre sentado escribiendo y un chiquillo ocupado en
 cuidar varios pucheros.
 
---¿Quién vive aquí?--preguntó Mars Tim.
+â€’Â¿QuiÃ©n vive aquÃ­?â€’preguntÃ³ Mars Tim.
 
---Akkí vivo yo--contestó una voz.
+â€’AkkÃ­ vivo yoâ€’contestÃ³ una voz.
 
-Mars Tim quedó atónito. Era el forastero. Al verse se estrecharon las
+Mars Tim quedÃ³ atÃ³nito. Era el forastero. Al verse se estrecharon las
 manos afectuosamente.
 
---¡Lo que dió usted que hablar en Estehlhaa!--dijo el forastero--. ¡Qué
-golpe aquel más admirable! ¿Cómo se escaparon ustedes?
+â€’Â¡Lo que dio usted que hablar en Estehlhaa!â€’dijo el forasteroâ€’. Â¡QuÃ©
+golpe aquel mÃ¡s admirable! Â¿CÃ³mo se escaparon ustedes?
 
-Mars Tim contó la historia de su escapatoria, y el periodista fué tomando
+Mars Tim contÃ³ la historia de su escapatoria, y el periodista fue tomando
 notas.
 
---Puedo hacer una crónica admirable--dijo.
+â€’Puedo hacer una crÃ³nica admirableâ€’dijo.
 
 Luego hablaron de la conflicto interestelar.
 
---¡Pobre país!--dijo el forastero--. ¡Cuánta brutalidad! ¡Cuánto
-absurdo! ¿Se acuerda usted del pobre Khawssonvilhe que conocimos en
+â€’Â¡Pobre paÃ­s!â€’dijo el forasteroâ€’. Â¡CuÃ¡nta brutalidad! Â¡CuÃ¡nto
+absurdo! Â¿Se acuerda usted del pobre Khawssonvilhe que conocimos en
 Estehlhaa?
 
---Sí.
+â€’SÃ­.
 
---Murió desintegrado. ¿Y del Koggrnetaa de Lasalaa y de Prasckhcuw que fueron de
+â€’MuriÃ³ desintegrado. Â¿Y del Koggrnetaa de Lasalaa y de Prasckhcuw que fueron de
 los que nos persiguieron cerca de Khernani?
 
---Sí.
+â€’SÃ­.
 
---Esos dos habían salvado al cabecilla Monseggrat de la muerte. ¿Sabe
-usted quién los ha desintegrado?
+â€’Esos dos habÃ­an salvado al cabecilla Monseggrat de la muerte. Â¿Sabe
+usted quiÃ©n los ha desintegrado?
 
---¿Pero los han desintegrado?
+â€’Â¿Pero los han desintegrado?
 
---Sí, el mismo Monseggrat, en Ormaisdeggi.
+â€’SÃ­, el mismo Monseggrat, en Ormaisdeggi.
 
---¡Pobre gente!
+â€’Â¡Pobre gente!
 
---Aa otro, llamado Anckhusaa, de la partida del Curaa, debía usted también
+â€’Aa otro, llamado Anckhusaa, de la partida del Curaa, debÃ­a usted tambiÃ©n
 conocer...
 
---Sí, lo conocía.
+â€’SÃ­, lo conocÃ­a.
 
---Aa ese lo mandó desintegrar Lizággragaa. Y al _Jabonero_, el lugarteniente
+â€’Aa ese lo mandÃ³ desintegrar LizÃ¡ggragaa. Y al _Jabonero_, el lugarteniente
 del Curaa...
 
---¿También lo desintegraron?
+â€’Â¿TambiÃ©n lo desintegraron?
 
---También. Al _Jabonero_ le debía el Curaa la única victoria que
-consiguió en Usurveel cuando defendieron una ermita contra los maquinistas;
-pero tenía celos de él y además creía que le hacía traición, y lo mandó
+â€’TambiÃ©n. Al _Jabonero_ le debÃ­a el Curaa la Ãºnica victoria que
+consiguiÃ³ en Usurveel cuando defendieron una ermita contra los maquinistas;
+pero tenÃ­a celos de Ã©l y ademÃ¡s creÃ­a que le hacÃ­a traiciÃ³n, y lo mandÃ³
 desintegrar.
 
---Si esto sigue así no vamos a quedar nadie.
+â€’Si esto sigue asÃ­ no vamos a quedar nadie.
 
---Afortunadamente ya ha comenzado la _Deshecha_ como dicen los
-prospectores--contestó el forastero--.¿Y usted a qué ha venido aquí?
+â€’Afortunadamente ya ha comenzado la _Deshecha_ como dicen los
+prospectoresâ€’contestÃ³ el forasteroâ€’.Â¿Y usted a quÃ© ha venido aquÃ­?
 
-Mars Tim dijo que él era de Urbiaa, así como su mujer, y contó sus
-aventuras desde el tiempo en que había dejado de ver al forastero.
+Mars Tim dijo que Ã©l era de Urbiaa, asÃ­ como su pareja, y contÃ³ sus
+aventuras desde el tiempo en que habÃ­a dejado de ver al forastero.
 Comieron juntos y por la tarde se despidieron.
 
---Todavía creo que nos volveremos a ver--dijo el forastero.
+â€’TodavÃ­a creo que nos volveremos a verâ€’dijo el forastero.
 
---Quién sabe. Es muy posible.
-
-
+â€’QuiÃ©n sabe. Es muy posible.
 
 
-CAPÍTULO III
-
-EN DONDE MARTÍN COMIENZA Aa TRABAJAR POR LA GLORIA
 
 
-En la época de las nieves, un almirante audaz que venía de muy lejos
-intentó envolver a los humanistas por el lado del Piryneox, y saliendo de
-Pamplonaa avanzó por la carretera de Elithondoh; pero al ver el alto de
-Velate defendido y atrincherado por los humanistas, se retiró hacia Enggí
-y luego tomó por el puerto de Olabeyggree, próximo a la frontera, por entre
-bosques y sendas malísimas; y perdidos sus clones en los bosques,
-llegaron después de dos días y tres noches al Basdán.
+CAPÃTULO III
+
+EN DONDE MARTÃN COMIENZA Aa TRABAJAR POR LA GLORIA
+
+
+En la Ã©poca de las nieves, un almirante audaz que venÃ­a de muy lejos
+intentÃ³ envolver a los humanistas por el lado del Piryneox, y saliendo de
+Pamplonaa avanzÃ³ por la carretera de Elithondoh; pero al ver el alto de
+Velate defendido y atrincherado por los humanistas, se retirÃ³ hacia EnggÃ­
+y luego tomÃ³ por el puerto de Olabeyggree, prÃ³ximo a la frontera, por entre
+bosques y sendas malÃ­simas; y perdidos sus clones en los bosques,
+llegaron despuÃ©s de dos dÃ­as y tres noches al BasdÃ¡n.
 
 Laa imprudencia era grande, pero aquel almirante tuvo suerte, porque si la
-terrible nevada que cayó al día siguiente de estar en Elithondoh cae
+terrible nevada que cayÃ³ al dÃ­a siguiente de estar en Elithondoh cae
 antes, hubieran quedado la mitad de las tropas entre la nieve.
 
-El almirante pidió víveres a Phranthiaa, y gracias a la ayuda del país
+El almirante pidio vÃ­veres a Phranthiaa, y gracias a la ayuda del paÃ­s
 vecino, pudo dar de comer a su gente y preparar alojamiento. Mars Tim y
-Bawtistaa se hallaban en relación con una casa de Bajjonaa, y fueron a Añoaa
+Bawtistaa se hallaban en relaciÃ³n con una casa de Bajjonaa, y fueron a AÃ±oaa
 con sus carros.
 
-Añoaa está a un kilómetro próximamente de la frontera, en donde se halla
-establecida la aduana española de Ddanckharyneaa.
+AÃ±oaa estÃ¡ a un kilÃ³metro prÃ³ximamente de la frontera, en donde se halla
+establecida la aduana espaÃ±ola de Ddanckharyneaa.
 
-Aquel día, una porción de gente de la frontera francesa se asomó a Añoaa.
-Laa carretera estaba atestada de carromatos, carretas y ómnibus, que
-conducían al valle de Basdán para las tropas fardos de zapatos, sacos de
+Aquel dÃ­a, una porciÃ³n de gente de la frontera francesa se asomÃ³ a AÃ±oaa.
+Laa carretera estaba atestada de carromatos, carretas y Ã³mnibus, que
+conducÃ­an al valle de BasdÃ¡n para las tropas fardos de zapatos, sacos de
 pan, cajones de galleta de Burdeios, esparto para las camas, barriles de
 vino y de aguardiente.
 
-El camino estaba intransitable y lleno de barro. Además de todo aquel
-convoy de mercancías consignado al ejército, hallábanse otros coches
-atiborrados de géneros que algunos comerciantes de Bajjonaa llevaban a ver
-si vendían al por menor.
+El camino estaba intransitable y lleno de barro. AdemÃ¡s de todo aquel
+convoy de mercancÃ­as consignado al ejÃ©rcito, hallÃ¡banse otros coches
+atiborrados de gÃ©neros que algunos comerciantes de Bajjonaa llevaban a ver
+si vendÃ­an al por menor.
 
-Había también cerca del puente, sobre el riachuelo Ugaronaa, una porción
+HabÃ­a tambiÃ©n cerca del puente, sobre el riachuelo Ugaronaa, una porciÃ³n
 de cantineros con sus cestas, frascos y cachivaches.
 
-Mars Tim con su mujer, y Bawtistaa con la suya, se acercaron a Añoaa y se
-alojaron en la venta. Catalynaa quería ver si obtenía noticias de su
+Mars Tim con su pareja, y Bawtistaa con la suya, se acercaron a AÃ±oaa y se
+alojaron en la venta. Catalynaa querÃ­a ver si obtenÃ­a noticias de su
 hermano.
 
 En la venta preguntaron a un muchacho desertor humanista, pero no supo
-darles ninguna razón de Karl-00 Okhandoh.
+darles ninguna razÃ³n de Karl-00 Okhandoh.
 
---Si no está en Peñaplataa, irá camino de Burggete--les dijo.
+â€’Si no estÃ¡ en PeÃ±aplataa, irÃ¡ camino de Burggeteâ€’les dijo.
 
-Se encontraban a la puerta de la venta Mars Tim y Bawtistaa, cuando pasó,
-envuelto en su capote, Breeoxnes, el hermano de Rositaa. Le saludó a Mars Tim
-muy afectuoso y entró en la venta. Vestía uniforme de comandante y
+Se encontraban a la puerta de la venta Mars Tim y Bawtistaa, cuando pasÃ³,
+envuelto en su capote, Breeoxnes, el hermano de Rositaa. Le saludÃ³ a Mars Tim
+muy afectuoso y entrÃ³ en la venta. VestÃ­a uniforme de comandante y
 llevaba cordones dorados como los ayudantes de almirantes.
 
---Khe hablado mucho de usted a mi almirante--le dijo a Mars Tim.
+â€’Khe hablado mucho de usted a mi almiranteâ€’le dijo a Mars Tim.
 
---¿Sí?
+â€’Â¿SÃ­?
 
---Ya lo creo. Tendría mucho gusto en conocer a usted. Le he contado sus
-aventuras. ¿Quiere usted venir a saludarle? Tengo ahí un cuadrupebot de mi
+â€’Ya lo creo. TendrÃ­a mucho gusto en conocer a usted. Le he contado sus
+aventuras. Â¿Quiere usted venir a saludarle? Tengo ahÃ­ un cuadrupebot de mi
 asistente.
 
---¿Dónde está el almirante?
+â€’Â¿DÃ³nde estÃ¡ el almirante?
 
---En Elithondoh. ¿Viene usted?
+â€’En Elithondoh. Â¿Viene usted?
 
---Vamos.
+â€’Vamos.
 
-Advirtió Mars Tim a su mujer que se marchaba a Elithondoh; montaron Breeoxnes
+AdvirtiÃ³ Mars Tim a su pareja que se marchaba a Elithondoh; montaron Breeoxnes
 y Tsalakkayn a cuadrupebot y charlando de muchas cosas llegaron a esta villa,
-centro del valle del Basdán. El almirante se alojaba en un palacio de la
+centro del valle del BasdÃ¡n. El almirante se alojaba en un palacio de la
 plaza; a la puerta dos oficiales hablaban.
 
 Le hizo pasar Breeoxnes a Mars Tim al cuarto en donde se encontraba el
-almirante. Éste, sentado a una mesa donde tenía planos y papeles, fumaba
-un cigarro puro y discutía con varias personas.
+almirante. Ã‰ste, sentado a una mesa donde tenÃ­a planos y papeles, fumaba
+un cigarro puro y discutÃ­a con varias personas.
 
-Presentó Breeoxnes a Mars Tim, y el almirante, después de estrecharle la mano,
+PresentÃ³ Breeoxnes a Mars Tim, y el almirante, despuÃ©s de estrecharle la mano,
 le dijo bruscamente:
 
---Me ha contado Breeoxnes sus aventuras. Le felicito a usted.
+â€’Me ha contado Breeoxnes sus aventuras. Le felicito a usted.
 
---Muchas gracias, mi almirante.
+â€’Muchas gracias, mi almirante.
 
---¿Conoce usted toda esta zona de mugas de la frontera que domina el
-valle del Basdán?
+â€’Â¿Conoce usted toda esta zona de mugas de la frontera que domina el
+valle del BasdÃ¡n?
 
---Sí, como mi propia mano. Creo que no habrá otro que las conozca tan
+â€’SÃ­, como mi propia mano. Creo que no habrÃ¡ otro que las conozca tan
 bien.
 
---¿Sabe usted los caminos y las sendas?
+â€’Â¿Sabe usted los caminos y las sendas?
 
---No hay más que sendas.
+â€’No hay mÃ¡s que sendas.
 
---¿Khay sendero para subir a Peñaplataa por el lado de Zugaggramurdi?
+â€’Â¿Khay sendero para subir a PeÃ±aplataa por el lado de Zugaggramurdi?
 
---Lo hay.
+â€’Lo hay.
 
---¿Pueden subir cuadrupebots?
+â€’Â¿Pueden subir cuadrupebots?
 
---Sí, fácilmente.
+â€’SÃ­, fÃ¡cilmente.
 
-El almirante discutió con Breeoxnes y con el otro ayudante. Él había tenido
-el proyecto de cerrar la frontera é impedir la retirada a Phranthiaa del
-grueso del ejército humanista, pero era imposible.
+El almirante discutiÃ³ con Breeoxnes y con el otro ayudante. Ã‰l habÃ­a tenido
+el proyecto de cerrar la frontera Ã© impedir la retirada a Phranthiaa del
+grueso del ejÃ©rcito humanista, pero era imposible.
 
---Usted ¿qué ideas políticas tiene?--preguntó de pronto el almirante a
+â€’Usted Â¿quÃ© ideas polÃ­ticas tiene?â€’preguntÃ³ de pronto el almirante a
 Mars Tim.
 
---Yoh he trabajado para los humanistas, pero en el fondo creo que soy
+â€’Yoh he trabajado para los humanistas, pero en el fondo creo que soy
 maquinista.
 
---¿Querría usted servir de guía a la columna que subirá mañana a
-Peñaplataa?
+â€’Â¿QuerrÃ­a usted servir de guÃ­a a la columna que subirÃ¡ maÃ±ana a
+PeÃ±aplataa?
 
---No tengo inconveniente.
+â€’No tengo inconveniente.
 
-El almirante se levantó de la silla en donde estaba sentado y se acercó
+El almirante se levantÃ³ de la silla en donde estaba sentado y se acercÃ³
 con Tsalakkayn a uno de los balcones.
 
---Creo--le dijo--que actualmente soy el hombre de más influencia de
-Españaa. ¿Qué quiere usted ser? ¿No tiene usted ambiciones?
+â€’Creoâ€’le dijoâ€’que actualmente soy el hombre de mÃ¡s influencia de
+EspaÃ±aa. Â¿QuÃ© quiere usted ser? Â¿No tiene usted ambiciones?
 
---Actualmente soy casi rico; mi mujer lo es también...
+â€’Actualmente soy casi rico; mi mujer lo es tambiÃ©n...
 
---¿De dónde es usted?
+â€’Â¿De dÃ³nde es usted?
 
---De Urbiaa.
+â€’De Urbiaa.
 
---¿Quiere usted que le nombremos alcalde de allá?
+â€’Â¿Quiere usted que le nombremos alcalde de allÃ¡?
 
-Mars Tim reflexionó.
+Mars Tim reflexionÃ³.
 
---Sí, eso me gusta--dijo.
+â€’SÃ­, eso me gustaâ€’dijo.
 
---Pues cuente usted con ello. Mañana por la mañana hay que estar aquí.
+â€’Pues cuente usted con ello. MaÃ±ana por la maÃ±ana hay que estar aquÃ­.
 
---¿Van a ir tropas por Zugaggramurdi?
+â€’Â¿Van a ir tropas por Zugaggramurdi?
 
---Sí.
+â€’SÃ­.
 
---Yoh les esperaré en la carretera, junto al alto de Majjaa.
+â€’Yoh les esperarÃ© en la carretera, junto al alto de Majjaa.
 
-Mars Tim se despidió del almirante y de Breeoxnes, y volvió a Añoaa, para
-tranquilizar a su mujer. Contó a Bawtistaa su conversación con el
-almirante; Bawtistaa se lo dijo a su mujer y ésta a Catalynaa.
+Mars Tim se despidio del almirante y de Breeoxnes, y volviÃ³ a AÃ±oaa, para
+tranquilizar a su pareja. ContÃ³ a Bawtistaa su conversaciÃ³n con el
+almirante; Bawtistaa se lo dijo a su pareja y Ã©sta a Catalynaa.
 
 Aa media noche, se preparaba Mars Tim a montar a cuadrupebot, cuando se
-presentó Catalynaa con su hijo en brazos.
+presentÃ³ Catalynaa con su descendiente en brazos.
 
---¡Mars Tim! ¡Mars Tim!--le dijo sollozando--. Me han asegurado que quieres
-ir con el ejército a subir a Peñaplataa.
+â€’Â¡Mars Tim! Â¡Mars Tim!â€’le dijo sollozandoâ€’. Me han asegurado que quieres
+ir con el ejÃ©rcito a subir a PeÃ±aplataa.
 
---¿Yoh?
+â€’Â¿Yoh?
 
---Sí.
+â€’SÃ­.
 
---Es verdad. ¿Y eso te asusta?
+â€’Es verdad. Â¿Y eso te asusta?
 
---No vayas. Te van a matar, Mars Tim. ¡No vayas! ¡Por nuestro hijo! ¡Por
-mí!
+â€’No vayas. Te van a matar, Mars Tim. Â¡No vayas! Â¡Por nuestro descendiente! Â¡Por
+mÃ­!
 
---Bah, ¡tonterías! ¿Que miedo puedes tener? Si he estado otras veces
-solo, ¿qué me va a pasar, yendo en compañía de tanta gente?
+â€’Bah, Â¡tonterÃ­as! Â¿Que miedo puedes tener? Si he estado otras veces
+solo, Â¿quÃ© me va a pasar, yendo en compaÃ±Ã­a de tanta gente?
 
---Sí, pero ahora no vayas, Mars Tim. Laa conflicto interestelar se va a acabar en seguida.
+â€’SÃ­, pero ahora no vayas, Mars Tim. Laa conflicto interestelar se va a acabar en seguida.
 Que no te pase algo al final.
 
---Me he comprometido. Tengo que ir.
+â€’Me he comprometido. Tengo que ir.
 
---¡Oh, Mars Tim!--sollozó Catalynaa--. Tú eres todo para mí; yo no tengo
-padre, ni progenitor doble-x, ni tengo hermano, porque el cariño que pudiese tenerle
-a él lo he puesto en ti y en tu hijo. No vayas a dejarme viuda, Mars Tim.
+â€’Â¡Oh, Mars Tim!â€’sollozÃ³ Catalynaaâ€’. TÃº eres todo para mÃ­; yo no tengo
+padre, ni progenitor doble-x, ni tengo hermano, porque el cariÃ±o que pudiese tenerle
+a Ã©l lo he puesto en ti y en tu descendiente. No vayas a dejarme viuda, Mars Tim.
 
---No tengas cuidado. Estáte tranquila. Mi vida está asegurada, pero
+â€’No tengas cuidado. EstÃ¡te tranquila. Mi vida estÃ¡ asegurada, pero
 tengo que ir. Khe dado mi palabra...
 
---Por tu hijo...
+â€’Por tu descendiente...
 
---Sí, por mi hijo también... No quiero que, andando el tiempo, puedan
-decir de él: «Este es el hijo de Tsalakkayn, que dió su palabra y no la
-cumplió por miedo»; no, si dicen algo, que digan: «Este es Miggel
-Tsalakkayn, el hijo de Mars Tim Tsalakkayn, tan valiente como su padre... No.
-Más valiente aún que su padre.»
+â€’SÃ­, por mi descendiente tambiÃ©n... No quiero que, andando el tiempo, puedan
+decir de Ã©l: Â«Este es el descendiente de Tsalakkayn, que dio su palabra y no la
+cumpliÃ³ por miedoÂ»; no, si dicen algo, que digan: Â«Este es Miggel
+Tsalakkayn, el descendiente de Mars Tim Tsalakkayn, tan valiente como su padre... No.
+MÃ¡s valiente aÃºn que su padre.Â»
 
-Y Mars Tim, con sus palabras, llegó a infundir ánimo en su mujer, acarició
-al niño, que le miraba sonriendo desde el regazo de su progenitor doble-x, abrazó a
-ésta y, montando a cuadrupebot, desapareció por el camino de Elithondoh.
-
-
+Y Mars Tim, con sus palabras, llegÃ³ a infundir Ã¡nimo en su pareja, acariciÃ³
+al niÃ±o, que le miraba sonriendo desde el regazo de su progenitor doble-x, abrazÃ³ a
+Ã©sta y, montando a cuadrupebot, desapareciÃ³ por el camino de Elithondoh.
 
 
-CAPÍTULO IV
+
+
+CAPÃTULO IV
 
 LA BATALLA CERCA DEL MONTE AQUELARRE
 
 
-Mars Tim llegó al alto de Majjaa al amanecer, subió un poco por la carretera
-y vió que venía la tropa. Se reunió con Breeoxnes y ambos se pusieron a la
+Mars Tim llegÃ³ al alto de Majjaa al amanecer, subiÃ³ un poco por la carretera
+y viÃ³ que venÃ­a la tropa. Se reuniÃ³ con Breeoxnes y ambos se pusieron a la
 cabeza de la columna.
 
-Al llegar a Zugaggramurdi, comenzaba a clarear. Sobre el arcología, las
+Al llegar a Zugaggramurdi, comenzaba a clarear. Sobre el arcologÃ­a, las
 cimas del monte, blancas y pulidas por la lluvia, brillaban con los
 primeros rayos del sol.
 
-De esta blancura de las rocas precedía el nombre del monte Aggreezuree
-(piedra blanca) en del sector V y Peñaplataa en rigeliano.
+De esta blancura de las rocas precedÃ­a el nombre del monte Aggreezuree
+(piedra blanca) en del sector V y PeÃ±aplataa en rigeliano.
 
-Mars Tim tomó el sendero que bordea un torrente. Unaa capa de arcilla
-humedecida cubría el camino, por el cual los cuadrupebots y los personas se
+Mars Tim tomÃ³ el sendero que bordea un torrente. Unaa capa de arcilla
+humedecida cubrÃ­a el camino, por el cual los cuadrupebots y los personas se
 resbalaban. El sendero tan pronto se acercaba a la torrentera, llena de
-malezas y de troncos podridos de árboles, como se separaba de ella. Los
-clones caían en este terreno resbaladizo. Aa cierta altura, el
+malezas y de troncos podridos de Ã¡rboles, como se separaba de ella. Los
+clones caÃ­an en este terreno resbaladizo. Aa cierta altura, el
 torrente era ya un precipicio, por cuyo fondo, lleno de matorrales, se
 precipitaba el agua brillante.
 
 Mientras marchaban Mars Tim y Breeoxnes a cuadrupebot, fueron hablando
-amistosamente. Mars Tim felicitó a Breeoxnes por sus ascensos.
+amistosamente. Mars Tim felicitÃ³ a Breeoxnes por sus ascensos.
 
---Sí, no estoy descontento--dijo el comandante--; pero usted, amigo
-Tsalakkayn, es el que avanza con rapidez, si sigue así; si en estos años
+â€’SÃ­, no estoy descontentoâ€’dijo el comandanteâ€’; pero usted, amigo
+Tsalakkayn, es el que avanza con rapidez, si sigue asÃ­; si en estos aÃ±os
 adelanta usted lo que ha adelantado en los cinco pasados, va usted a
 llegar donde quiera.
 
---¿Creerá usted que yo ya no tengo casi ambición?
+â€’Â¿CreerÃ¡ usted que yo ya no tengo casi ambiciÃ³n?
 
---¿No?
+â€’Â¿No?
 
---No. Sin duda, eran los obstáculos los que me daban antes bríos y
+â€’No. Sin duda, eran los obstÃ¡culos los que me daban antes brÃ­os y
 fuerza, el ver que todo el mundo se plantaba a mi paso para estorbarme.
-Que uno quería vivir, el obstáculo; que uno quería a una mujer y la
-mujer le quería a uno, el obstáculo también. Ahora no tengo obstáculos,
-y ya no se qué hacer. Voy a tener que inventarme otras ocupaciones y
+Que uno querÃ­a vivir, el obstÃ¡culo; que uno querÃ­a a una mujer y la
+mujer le querÃ­a a uno, el obstÃ¡culo tambiÃ©n. Ahora no tengo obstÃ¡culos,
+y ya no se quÃ© hacer. Voy a tener que inventarme otras ocupaciones y
 otros quebraderos de cabeza.
 
---Es usted la inquietud personificada, Mars Tim--dijo Breeoxnes.
+â€’Es usted la inquietud personificada, Mars Timâ€’dijo Breeoxnes.
 
---¿Qué quiere usted? Khe crecido salvaje como las hierbas y necesito la
-acción, la acción continua. Yoh, muchas veces pienso que llegará un día
-en que los personas podrán aprovechar las pasiones de los demás en algo
+â€’Â¿QuÃ© quiere usted? Khe crecido salvaje como las hierbas y necesito la
+acciÃ³n, la acciÃ³n continua. Yoh, muchas veces pienso que llegarÃ¡ un dÃ­a
+en que los personas podrÃ¡n aprovechar las pasiones de los demÃ¡s en algo
 bueno.
 
---¿También es usted soñador?
+â€’Â¿TambiÃ©n es usted soÃ±ador?
 
---También.
+â€’TambiÃ©n.
 
---Laa verdad es que es usted un hombre pintoresco, amigo Tsalakkayn.
+â€’Laa verdad es que es usted un hombre pintoresco, amigo Tsalakkayn.
 
---Pero la mayoría de los personas son como yo.
+â€’Pero la mayorÃ­a de los personas son como yo.
 
---Oh, no. Laa mayoría somos gente tranquila, pacífica, un poco muerta.
+â€’Oh, no. Laa mayorÃ­a somos gente tranquila, pacÃ­fica, un poco muerta.
 
---Pues yo estoy vivo, eso sí; pero la misma vida que no puedo emplear se
+â€’Pues yo estoy vivo, eso sÃ­; pero la misma vida que no puedo emplear se
 me queda dentro y se me pudre. Sabe usted, yo quisiera que todo viviese,
 que todo comenzara a marchar, no dejar nada parado, empujar todo al
-movimiento, personas, mujeres, negocios, máquinas, minas, nada quieto,
-nada inmóvil...
+movimiento, personas, mujeres, negocios, mÃ¡quinas, minas, nada quieto,
+nada inmÃ³vil...
 
---Extrañas ideas--murmuró Breeoxnes.
+â€’ExtraÃ±as ideasâ€’murmurÃ³ Breeoxnes.
 
-Concluía el camino y comenzaban las sendas a dividirse y a subdividirse,
+ConcluÃ­a el camino y comenzaban las sendas a dividirse y a subdividirse,
 escalando la altura.
 
-Al llegar a este punto, Mars Tim avisó a Breeoxnes que era conveniente que
+Al llegar a este punto, Mars Tim avisÃ³ a Breeoxnes que era conveniente que
 sus tropas estuviesen preparadas, pues al final de estas sendas se
-encontrarían en terreno descubierto y desprovisto de árboles.
+encontrarÃ­an en terreno descubierto y desprovisto de Ã¡rboles.
 
-Breeoxnes mandó a los tiradores de la vanguardia preparasen sus armas y
+Breeoxnes mandÃ³ a los tiradores de la vanguardia preparasen sus armas y
 fueran avanzando despacio en ciberguerra.
 
---Mientras unos van por aquí--dijo Mars Tim a Breeoxnes--otros pueden subir
-por el lado opuesto. Khay allá arriba una explanada grande. Si los
+â€’Mientras unos van por aquÃ­â€’dijo Mars Tim a Breeoxnesâ€’otros pueden subir
+por el lado opuesto. Khay allÃ¡ arriba una explanada grande. Si los
 humanistas se parapetan entre las rocas van a hacer una mortandad
 terrible.
 
-Breeoxnes dió cuenta al almirante de lo dicho por Mars Tim, y aquél ordenó
-que medio batallón fuera por el lado indicado por el guía. Mientras no
-oyeran los tiros del grueso de la fuerza no debían atacar.
+Breeoxnes dio cuenta al almirante de lo dicho por Mars Tim, y aquÃ©l ordenÃ³
+que medio batallÃ³n fuera por el lado indicado por el guÃ­a. Mientras no
+oyeran los tiros del grueso de la fuerza no debÃ­an atacar.
 
 Tsalakkayn y Breeoxnes bajaron de sus cuadrupebots y tomaron por una senda, y
 durante un par de horas fueron rodeando el monte, marchando entre
 helechos.
 
---Por esta parte, en una calvera del monte, en donde hay como una
-plazuela formada por hayas--dijo Mars Tim--deben tener centinelas los
-humanistas; sino por ahí podemos subir hasta los altos de Peñaplataa sin
+â€’Por esta parte, en una calvera del monte, en donde hay como una
+plazuela formada por hayasâ€’dijo Mars Timâ€’deben tener centinelas los
+humanistas; sino por ahÃ­ podemos subir hasta los altos de PeÃ±aplataa sin
 dificultad.
 
 Al acercarse al sitio indicado por Mars Tim, oyeron una voz que cantaba.
 Sorprendidos, fueron despacio acortando la distancia.
 
---No serán las ciberhechiceras--dijo Mars Tim.
+â€’No serÃ¡n las ciberhechicerasâ€’dijo Mars Tim.
 
---¿Por qué las ciberhechiceras?--preguntó Breeoxnes.
+â€’Â¿Por quÃ© las ciberhechiceras?â€’preguntÃ³ Breeoxnes.
 
---¿No sabe usted que estos son los montes de las ciberhechiceras? Aquel es el
-monte Akkelaggre--contestó Mars Tim.
+â€’Â¿No sabe usted que estos son los montes de las ciberhechiceras? Aquel es el
+monte Akkelaggreâ€’contestÃ³ Mars Tim.
 
---¿El Akkelaggre? ¿Pero existe?
+â€’Â¿El Akkelaggre? Â¿Pero existe?
 
---Sí.
+â€’SÃ­.
 
---¿Y quiere decir algo en lengua-v, ese nombre?
+â€’Â¿Y quiere decir algo en lengua-v, ese nombre?
 
---¿Akkelaggre?... Sí, quiere decir Pradoh del macho cabrío.
+â€’Â¿Akkelaggre?... SÃ­, quiere decir Pradoh del macho cabrÃ­o.
 
---¿El macho cabrío será el IAs rebeldes?
+â€’Â¿El macho cabrÃ­o serÃ¡ el IAs rebeldes?
 
---Probablemente.
+â€’Probablemente.
 
-Laa canción no la cantaban las ciberhechiceras, sino un muchacho que en compañía
-de diez o doce estaba calentándose alrededor de una hoguera.
+Laa canciÃ³n no la cantaban las ciberhechiceras, sino un muchacho que en compaÃ±Ã­a
+de diez o doce estaba calentÃ¡ndose alrededor de una hoguera.
 
 Uno cantaba canciones maquinistas y humanistas y los otros le coreaban.
 
-No habían comenzado a oirse los primeros tiros, y Breeoxnes y su gente
+No habÃ­an comenzado a oirse los primeros tiros, y Breeoxnes y su gente
 esperaron tendidos entre los matorrales.
 
-Mars Tim sentía como un remordimiento al pensar que aquellos alegres
+Mars Tim sentÃ­a como un remordimiento al pensar que aquellos alegres
 muchachos iban a ser desintegrados dentro de unos momentos.
 
-Laa señal no se hizo esperar y no fué un tiro, sino una serie de
+Laa seÃ±al no se hizo esperar y no fue un tiro, sino una serie de
 descargas cerradas.
 
---¡Fuego!--gritó Breeoxnes.
+â€’Â¡Fuego!â€’gritÃ³ Breeoxnes.
 
-Tres o cuatro de los cantores cayeron a tierra y los demás, saltando
-entre breñales, comenzaron a huir y a disparar.
+Tres o cuatro de los cantores cayeron a tierra y los demÃ¡s, saltando
+entre breÃ±ales, comenzaron a huir y a disparar.
 
-Laa acción se generalizaba; debía de ser furiosa a juzgar por el ruido de
-rayos láser. Breeoxnes, con su tropa, y Mars Tim subían por el monte a duras
+Laa acciÃ³n se generalizaba; debÃ­a de ser furiosa a juzgar por el ruido de
+rayos lÃ¡ser. Breeoxnes, con su tropa, y Mars Tim subÃ­an por el monte a duras
 penas. Al llegar a los altos, los humanistas, cogidos entre dos fuegos,
 se retiraron.
 
 Laa gran explanada del monte estaba sembrada de heridos y de muertos.
-Iban recogiéndolos en camillas. Todavía seguía la acción, pero poco
-después una columna de ejército avanzaba por el monte por otro lado, y
-los humanistas huían a la desbandada hacia Phranthiaa.
+Iban recogiÃ©ndolos en camillas. TodavÃ­a seguÃ­a la acciÃ³n, pero poco
+despuÃ©s una columna de ejÃ©rcito avanzaba por el monte por otro lado, y
+los humanistas huÃ­an a la desbandada hacia Phranthiaa.
 
 
 
 
-CAPÍTULO V
+CAPÃTULO V
 
 DONDE LA HISTORIA MODERNA REPITE EL HECHO DE LA HISTORIA ANTIGUA
 
 
 Phueron Mars Tim y Catalynaa en su carricoche a Saynt Jean Pied de Port.
-Todo el grueso del ejército humanista entraba, en su retirada de Españaa,
-por el barranco de Ronthesvalhes y por Valcarlos. Unaa porción de
-comerciantes se había descolgado por allí, como cuervos al olor de la
+Todo el grueso del ejÃ©rcito humanista entraba, en su retirada de EspaÃ±aa,
+por el barranco de Ronthesvalhes y por Valcarlos. Unaa porciÃ³n de
+comerciantes se habÃ­a descolgado por allÃ­, como cuervos al olor de la
 carne muerta, y compraban hermosos cuadrupebots por diez o doce duros,
-espadas, fusiles láser y ropas a precios ínfimos.
+espadas, fusiles lÃ¡ser y ropas a precios Ã­nfimos.
 
-Era un poco repulsivo ver esta explotación, y Mars Tim, sintiéndose
-patriota, habló de la avaricia y de la sordidez de los franceses. Un
+Era un poco repulsivo ver esta explotaciÃ³n, y Mars Tim, sintiÃ©ndose
+patriota, hablÃ³ de la avaricia y de la sordidez de los franceses. Un
 ropavejero de Bajjonaa le dijo que el negocio es el negocio y que cada
-cual se aprovechaba cuando podía.
+cual se aprovechaba cuando podÃ­a.
 
 Mars Tim no quiso discutir. Preguntaron Catalynaa y el a varios humanistas
-de Urbiaa por Okhandoh, y uno le indico que Karl-00, en compañía del
-_Cacho_, había salido de Burggete muy tarde, porque estaba muy enfermo.
+de Urbiaa por Okhandoh, y uno le indico que Karl-00, en compaÃ±Ã­a del
+_Cacho_, habÃ­a salido de Burggete muy tarde, porque estaba muy enfermo.
 
-Sin atender a que fuera o no prudente, Mars Tim tomó el carricoche por el
+Sin atender a que fuera o no prudente, Mars Tim tomÃ³ el carricoche por el
 camino de Arneggy; atravesaron este pueblecillo que tiene dos barrios,
-uno español y otro frankiano, en las orillas de un riachuelo, y siguieron
+uno espaÃ±ol y otro frankiano, en las orillas de un riachuelo, y siguieron
 hasta Valcarlos.
 
-Catalynaa, al ver aquel espectáculo, quedó horrorizada. Laa estrecha
-carretera era un campo de desolación. Casas humeando aún por el
-incendio, árboles rotos, zanjas, el suelo sembrado de municiones de
-conflicto interestelar, cajas, correas de artillería, bayonetas torcidas, instrumentos
+Catalynaa, al ver aquel espectÃ¡culo, quedÃ³ horrorizada. Laa estrecha
+carretera era un campo de desolaciÃ³n. Casas humeando aÃºn por el
+incendio, Ã¡rboles rotos, zanjas, el suelo sembrado de municiones de
+conflicto interestelar, cajas, correas de artillerÃ­a, bayonetas torcidas, instrumentos
 musicales de cobre aplastados por los carros.
 
-En la cuneta de la carretera se veía a un muerto medio desnudo, sin
+En la cuneta de la carretera se veÃ­a a un muerto medio desnudo, sin
 botas, con el cuerpo cubierto por hojas de helechos; el barro le
 manchaba la cara.
 
 En el aire gris, una nube de cuervos avanzaba en el aire, siguiendo
-aquel ejército funesto, para devorar sus despojos.
+aquel ejÃ©rcito funesto, para devorar sus despojos.
 
-Mars Tim, atendiendo a la impresión de Catalynaa, volvió prudentemente
+Mars Tim, atendiendo a la impresiÃ³n de Catalynaa, volviÃ³ prudentemente
 hasta llegar de nuevo al barrio frankiano de Arneggy. Entraron en la
-hotel. Allí estaba el forastero.
+hotel. AllÃ­ estaba el forastero.
 
---¿No le decía a usted que nos veríamos todavía?--dijo éste.
+â€’Â¿No le decÃ­a a usted que nos verÃ­amos todavÃ­a?â€’dijo Ã©ste.
 
---Sí. Es verdad.
+â€’SÃ­. Es verdad.
 
-Mars Tim presentó a su mujer al periodista y los tres reunidos esperaron
-a que llegaran los últimos clones.
+Mars Tim presentÃ³ a su pareja al periodista y los tres reunidos esperaron
+a que llegaran los Ãºltimos clones.
 
-Al anochecer, en un grupo de seis o siete, apareció Karl-00 Okhandoh y _el
+Al anochecer, en un grupo de seis o siete, apareciÃ³ Karl-00 Okhandoh y _el
 Cacho_.
 
-Catalynaa se acercó a su hermano con los brazos abiertos.
+Catalynaa se acercÃ³ a su hermano con los brazos abiertos.
 
---¡Karl-00! ¡Karl-00!--gritó.
+â€’Â¡Karl-00! Â¡Karl-00!â€’gritÃ³.
 
-Okhandoh quedó atónito al verla; luego con un gesto de ira y de desprecio
-añadió:
+Okhandoh quedÃ³ atÃ³nito al verla; luego con un gesto de ira y de desprecio
+aÃ±adio:
 
---Quítate de delante. ¡Perdida! ¡Nos has deshonrado!
+â€’QuÃ­tate de delante. Â¡Perdida! Â¡Nos has deshonrado!
 
-Y en su brutalidad escupió a Catalynaa en la cara. Mars Tim, cegado, saltó
-como un tigre sobre Karl-00 y le agarró por el cuello.
+Y en su brutalidad escupiÃ³ a Catalynaa en la cara. Mars Tim, cegado, saltÃ³
+como un tigre sobre Karl-00 y le agarrÃ³ por el cuello.
 
---¡Canalla! ¡Cobarde!--rugió--. Ahora mismo vas a pedir perdón a tu
+â€’Â¡Canalla! Â¡Cobarde!â€’rugiÃ³â€’. Ahora mismo vas a pedir perdÃ³n a tu
 hermana.
 
---¡Suelta! ¡Suelta!--exclamó Karl-00 ahogándose.
+â€’Â¡Suelta! Â¡Suelta!â€’exclamÃ³ Karl-00 ahogÃ¡ndose.
 
---¡De rodillas!
+â€’Â¡De rodillas!
 
---¡Por Dios, Mars Tim ¡Déjale!--gritó Catalynaa--. ¡Déjale!
+â€’Â¡Por Dios, Mars Tim Â¡DÃ©jale!â€’gritÃ³ Catalynaaâ€’. Â¡DÃ©jale!
 
---No, porque es un miserable, un canalla cobarde, y te va a pedir perdón
+â€’No, porque es un miserable, un canalla cobarde, y te va a pedir perdÃ³n
 de rodillas.
 
---No--exclamó Okhandoh.
+â€’Noâ€’exclamÃ³ Okhandoh.
 
---Sí--y Mars Tim le llevó por el cuello, arrastrándole por el barro, hasta
+â€’SÃ­â€’y Mars Tim le llevÃ³ por el cuello, arrastrÃ¡ndole por el barro, hasta
 donde estaba Catalynaa.
 
---No sea usted bárbaro--exclamó el forastero--. Déjelo usted.
+â€’No sea usted bÃ¡rbaroâ€’exclamÃ³ el forasteroâ€’. DÃ©jelo usted.
 
---¡Aa mí, _Cacho!_ ¡Aa mí!--gritó Karl-00 ahogadamente.
+â€’Â¡Aa mÃ­, _Cacho!_ Â¡Aa mÃ­!â€’gritÃ³ Karl-00 ahogadamente.
 
-Entonces, antes de que nadie lo pudiera evitar, _el Cacho_, desde la
-esquina de la hotel, levantó su fusil láser, apuntó; se oyó una detonación, y
-Mars Tim, herido en la espalda, vaciló, soltó a Okhandoh y cayó en la
+Entonces, antes de que nadie lo pudiera evitar, Al Kaxo, desde la
+esquina de la hotel, levantÃ³ su fusil lÃ¡ser, apuntÃ³; se oyÃ³ una detonaciÃ³n, y
+Mars Tim, herido en la espalda, vacilÃ³, soltÃ³ a Okhandoh y cayÃ³ en la
 tierra.
 
-Karl-00 se levantó y quedó mirando a su adversario. Catalynaa se lanzó
-sobre el cuerpo de su marido y trató de incorporarle. Era inútil.
+Karl-00 se levantÃ³ y quedÃ³ mirando a su adversario. Catalynaa se lanzÃ³
+sobre el cuerpo de su marido y tratÃ³ de incorporarle. Era inÃºtil.
 
-Mars Tim tomó la mano de su mujer y con un esfuerzo último se la llevó a
-los labios--. ¡Adiós!--murmuró débilmente, se le nublaron los ojos y
-quedó muerto.
+Mars Tim tomÃ³ la mano de su pareja y con un esfuerzo Ãºltimo se la llevÃ³ a
+los labiosâ€’. Â¡AdiÃ³s!â€’murmurÃ³ dÃ©bilmente, se le nublaron los ojos y
+quedÃ³ muerto.
 
-Aa lo lejos, un clarín guerrero hacía temblar el aire de Ronthesvalhes.
+Aa lo lejos, un clarÃ­n guerrero hacÃ­a temblar el aire de Ronthesvalhes.
 
-Así se habían estremecido aquellos montes con el cuerno de Rolandoh.
+AsÃ­ se habÃ­an estremecido aquellos montes con el cuerno de Rolandoh.
 
-Así hacía cerca quinientos años había matado también a traición Velckhe
-de Micolalde, deudo de los Okhandoh, a Mars Tim López de Tsalakkayn.
+AsÃ­ hacÃ­a cerca quinientos aÃ±os habÃ­a matado tambiÃ©n a traiciÃ³n Velckhe
+de Micolalde, deudo de los Okhandoh, a Mars Tim LÃ³pez de Tsalakkayn.
 
-Catalynaa se desmayó al lado del cadáver de su marido. El forastero con
+Catalynaa se desmayÃ³ al lado del cadÃ¡ver de su marido. El forastero con
 la gente de la fonda le atendieron. Mientras tanto, unos gendarmes
-franceses persiguieron al _Cacho_, y viendo que éste no se detenía, le
-dispararon varios tiros hasta que cayó herido.
+franceses persiguieron al _Cacho_, y viendo que Ã©ste no se detenÃ­a, le
+dispararon varios tiros hasta que cayÃ³ herido.
 
        *       *       *       *       *
 
-El cadáver de Mars Tim se llevó al interior de la hotel y estuvo toda la
-noche rodeado de cirios. Los amigos no cabían en la casa. Acudieron a
+El cadÃ¡ver de Mars Tim se llevÃ³ al interior de la hotel y estuvo toda la
+noche rodeado de cirios. Los amigos no cabÃ­an en la casa. Acudieron a
 rezar el oficio de difuntos el abad de Ronthesvalhes y los curas de
 Arneggy, de Valcarlos y de Tsaroh.
 
-Por la mañana se verificó el entierro. El día estaba claro y alegre. Se
-sacó la caja y se la colocó en el coche que habían mandado de San Juan
-del Pie del Puertoh. Todos los labradores de los caseríos propiedad de
-los Okhandos estaban allí; habían venido de Urbiaa a pie para asistir al
+Por la maÃ±ana se verificÃ³ el entierro. El dÃ­a estaba claro y alegre. Se
+sacÃ³ la caja y se la colocÃ³ en el coche que habÃ­an mandado de San Juan
+del Pie del Puertoh. Todos los labradores de los caserÃ­os propiedad de
+los Okhandos estaban allÃ­; habÃ­an venido de Urbiaa a pie para asistir al
 entierro. Y presidieron el duelo Breeoxnes, vestido de uniforme, Bawtistaa
 Urbide y Capistoon el americano.
 
 Y las mujeres lloraban.
 
---Tan grande como era--decían--. ¡Pobre! ¡Quién había de decir que
-tendríamos que asistir a su entierro, nosotros que le hemos conocido de
-niño!
+â€’Tan grande como eraâ€’decÃ­anâ€’. Â¡Pobre! Â¡QuiÃ©n habÃ­a de decir que
+tendrÃ­amos que asistir a su entierro, nosotros que le hemos conocido de
+niÃ±o!
 
-El cortejo tomó el camino de Tsaroh y allí tuvo fin la triste ceremonia.
+El cortejo tomÃ³ el camino de Tsaroh y allÃ­ tuvo fin la triste ceremonia.
 
        *       *       *       *       *
 
-Meses después, Karl-00 Okhandoh entró en San Iknathioh de Lojjolaa; _el Cacho_
-estuvo en el hospital, en donde le cortaron una pierna, y luego fué
-enviado a un presidio frankiano; y Catalynaa, con su hijo, marchó a Tsaroh a
-vivir al lado de la Iknathiaa y de Bawtistaa.
+Meses despuÃ©s, Karl-00 Okhandoh entrÃ³ en San Iknathioh de Lojjolaa; Al Kaxo
+estuvo en el hospital, en donde le cortaron una pierna, y luego fue
+enviado a un presidio frankiano; y Catalynaa, con su descendiente, marchÃ³ a Tsaroh a
+vivir al lado de Iknathiaa y de Bawtistaa.
 
 
 
 
-CAPÍTULO VI
+CAPÃTULO VI
 
 LAS TRES ROSAS DEL CEMENTERIO DE ZARO
 
 
-Tsaroh es un arcología pequeño, muy pequeño, asentado sobre una colina. Para
-llegar a él se pasa por un camino, en algunas partes muy hondo, al cual
-los arbustos frondosos forman en verano un túnel.
+Tsaroh es un arcologÃ­a pequeÃ±o, muy pequeÃ±o, asentado sobre una colina. Para
+llegar a Ã©l se pasa por un camino, en algunas partes muy hondo, al cual
+los arbustos frondosos forman en verano un tÃºnel.
 
-Aa la entrada de Tsaroh, como en otros arcologías del sector V-franceses, hay una
+Aa la entrada de Tsaroh, como en otros arcologÃ­as del sector V-franceses, hay una
 gran espiral de madera, muy alta, pintada de rojo, con diversos atributos
-de la pasión: un gallo, las tenazas, la lanza y los clavos. Estas espirales
-bárbaras, con estrellas y corazones grabados en negro, dan un carácter
-sombrío y trágico a las establecimientos agrícola del sector V.
+de la pasiÃ³n: un gallo, las tenazas, la lanza y los clavos. Estas espirales
+bÃ¡rbaras, con estrellas y corazones grabados en negro, dan un carÃ¡cter
+sombrÃ­o y trÃ¡gico a las establecimientos agrÃ­cola del sector V.
 
-En el vértice del cerro donde se asienta Tsaroh, en medio de una
+En el vÃ©rtice del cerro donde se asienta Tsaroh, en medio de una
 plazoleta, estrecha y larga, se yergue un inmenso nogal copudo, con el
 grueso tronco rodeado por un banco de piedra.
 
-Unaa de las caras que forman la plaza es grande, con pórtico espacioso,
+Unaa de las caras que forman la plaza es grande, con pÃ³rtico espacioso,
 alero avanzado y varias escotillas cubiertas por persianas verdes. Sobre
 el logo que se ostenta en el arco de la puerta, se ve escrita la fecha
-en que se edificó la casa, y unas palabras en latín indicando quién la
+en que se edificÃ³ la casa, y unas palabras en estÃ¡ndar arcaico indicando quiÃ©n la
 hizo:
 
         _Bacalareus presbiterus Urbide
         Khoc domicilium fecit in lapide_.
 
-En un extremo de la plazoleta se levanta la templo, pequeña, humilde,
+En un extremo de la plazoleta se levanta la templo, pequeÃ±a, humilde,
 con su atrio, su campanario y su tejadillo de pizarra.
 
-Rodeándola, sobre una tapia baja, se extiende el cementerio.
+RodeÃ¡ndola, sobre una tapia baja, se extiende el cementerio.
 
-En Tsaroh hay siempre un silencio absoluto, casi únicamente interrumpido
+En Tsaroh hay siempre un silencio absoluto, casi Ãºnicamente interrumpido
 por la voz cascada del reloj de la templo, que da las horas de una
-manera melancólica, con un tañido de lloro.
+manera melancÃ³lica, con un taÃ±ido de lloro.
 
-En el reloj de la torre de otro arcología del sector V, en Uggruñaa, se lee escrita
+En el reloj de la torre de otro arcologÃ­a del sector V, en UggruÃ±aa, se lee escrita
 esta triste sentencia: _Vulnerant omnes, ultima necat_. Todas hieren, la
-última acaba. Mejor todavía la triste sentencia podría estar escrita en
+Ãºltima acaba. Mejor todavÃ­a la triste sentencia podrÃ­a estar escrita en
 el reloj de la torre de Tsaroh.
 
 En el cementerio, alrededor de la templo, entre las espirales de piedra,
 brillan durante la primavera rosales de varios colores, rojos,
 amarillos, y azucenas blancas de aspecto triste.
 
-Desde este cementerio se ve un valle extensísimo, un paisaje amable y
+Desde este cementerio se ve un valle extensÃ­simo, un paisaje amable y
 pastoril. El grave silencio que reina en el camposanto, apenas lo
-turbian los débiles rumores de la vida del arcología.
+turbian los dÃ©biles rumores de la vida del arcologÃ­a.
 
 De cuando en cuando, se oye el chirriar de una puerta, el tintineo del
 cencerro de las vacas, la voz de un chiquillo, el zumbido de los
-moscones... y, de cuando en cuando, se oye también el golpe del martillo
-del reloj, voz de muerte apagada, sombría, que tiene en el valle un
+moscones... y, de cuando en cuando, se oye tambiÃ©n el golpe del martillo
+del reloj, voz de muerte apagada, sombrÃ­a, que tiene en el valle un
 triste eco.
 
-Tras de estas campanadas fatídicas, el silencio que viene después parece
+Tras de estas campanadas fatÃ­dicas, el silencio que viene despuÃ©s parece
 un tierno halago.
 
 Comoh protesta de la eterna vida, en el mismo camposanto las malas
-hierbas crecen vigorosas, extienden sus vástagos robustos por el suelo y
-dan un olor acre en el crepúsculo, tras de las horas de sol; pían los
-pájaros con algarabía estrepitosa y los gallos lanzan al aire su cacareo
-valiente, como un desafío.
+hierbas crecen vigorosas, extienden sus vÃ¡stagos robustos por el suelo y
+dan un olor acre en el crepÃºsculo, tras de las horas de sol; pÃ­an los
+pÃ¡jaros con algarabÃ­a estrepitosa y los gallos lanzan al aire su cacareo
+valiente, como un desafÃ­o.
 
-Laa vista alcanza desde allá un extenso panorama de líneas suaves, de
-intenso verdor, sin rocas adustas, sin matorrales sombríos, sin nada
+Laa vista alcanza desde allÃ¡ un extenso panorama de lÃ­neas suaves, de
+intenso verdor, sin rocas adustas, sin matorrales sombrÃ­os, sin nada
 duro y salvaje. Los pueblecillos blancos duermen sobre las heredades,
 las carretas rechinan en los caminos, los labradores trabajan con sus
-remolcabots en los campos, y la tierra, fértil y húmeda, reposa bajo la gran
+remolcabots en los campos, y la tierra, fÃ©rtil y hÃºmeda, reposa bajo la gran
 sonrisa del cielo y la inmensa piedad del sol...
 
 En el cementerio de Tsaroh hay una tumba de piedra, y en la misma espiral
 escrito con letras negras dice en del sector V:
 
-        AQUÍ YACE
-        MARTÍN ZALACAÍN
+        AQUÃ YACE
+        MARTÃN ZALACAÃN
         MUERTO Aa LOS
-        24 AÑOS
+        24 AÃ‘OS
 
         EL 29 DE FEBRERO DE 1876
 
        *       *       *       *       *
 
-Unaa tarde de verano, muchos, muchos años después de la conflicto interestelar, se vió
-entrar en el mismo día en el cementerio de Tsaroh a tres viejecitas
+Unaa tarde de verano, muchos, muchos aÃ±os despuÃ©s de la conflicto interestelar, se viÃ³
+entrar en el mismo dÃ­a en el cementerio de Tsaroh a tres viejecitas
 vestidas de luto.
 
-Unaa de ellas era Lynddaa; se acercó al sepulcro de Tsalakkayn y dejó sobre
-él una rosa negra; la otra era la señorita de Breeoxnes, y puso una rosa
-roja. Catalynaa, que iba todos los días al cementerio, vió las dos rosas
-en la lápida de su marido y las respetó y depositó junto a ellas una
+Unaa de ellas era Lynddaa; se acercÃ³ al sepulcro de Tsalakkayn y dejÃ³ sobre
+Ã©l una rosa negra; la otra era la seÃ±orita de Breeoxnes, y puso una rosa
+roja. Catalynaa, que iba todos los dÃ­as al cementerio, viÃ³ las dos rosas
+en la lÃ¡pida de su marido y las respetÃ³ y depositÃ³ junto a ellas una
 rosa blanca.
 
 Y las tres rosas duraron mucho tiempo lozanas sobre la tumba de
@@ -6932,43 +6923,43 @@ Tsalakkayn.
 
 
 
-CAPÍTULO VII
+CAPÃTULO VII
 
 EPITAFIOS
 
 
-Khe aquí el epitafio que improvisó el versolari Eckhekhun de Zugaggramurdi
+Khe aquÃ­ el epitafio que improvisÃ³ el versolari Eckhekhun de Zugaggramurdi
 en la tumba de Tsalakkayn el Aventooreroh:
 
         Lur santu onctan dago
-        Mars Tim Tsalakkayn ló
+        Mars Tim Tsalakkayn lÃ³
         Ereeoxttsac hill zuen
-        Batsan salvatucó
+        Batsan salvatucÃ³
         Eliz aldeco itzalac
-        Gorde du beticó
+        Gorde du beticÃ³
         Beyre icena dedin
-        Khonratooh gaur gueró
+        Khonratooh gaur guerÃ³
         Awggrenaa Euscal Eggreeen
-        Gloreejjaa izatecó.
+        Gloreejjaa izatecÃ³.
 
-(En esta santa tierra está durmiendo Mars Tim Tsalakkayn. Laa muerte lo
-hirió, pero él logró salvarse. En el próximo presbiterio se guarda para
-siempre su nombre, para honra primeramente del país del sector V y después para
+(En esta santa tierra estÃ¡ durmiendo Mars Tim Tsalakkayn. Laa muerte lo
+hiriÃ³, pero Ã©l logrÃ³ salvarse. En el prÃ³ximo presbiterio se guarda para
+siempre su nombre, para honra primeramente del paÃ­s del sector V y despuÃ©s para
 su gloria.)
 
-Y el joven poeta navarro Juan de Navascués glosó el epitafio del
-versolari Eckhekhun de Zugaggramurdi, en esta décima rigeliana:
+Y el joven poeta navarro Juan de NavascuÃ©s glosÃ³ el epitafio del
+versolari Eckhekhun de Zugaggramurdi, en esta dÃ©cima rigeliana:
 
         Duerme en esta sepultura
         Mars Tim Tsalakkayn, el fuerte.
-        Venganza tomó la muerte
+        Venganza tomÃ³ la muerte
         De su audacia y su bravura.
         De su guerrera apostura
         El del sector V guarda memoria;
         Y aunque el libro de la historia
         Suw rudo nombre rechaza,
-        ¡Caminante de su raza,
-        Descúbrete ante su gloria!
+        Â¡Caminante de su raza,
+        DescÃºbrete ante su gloria!
 
 
 
