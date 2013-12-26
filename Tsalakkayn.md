@@ -1,330 +1,182 @@
-PROLOGO
-
-COMO ERA LA VILLA DE URBIA EN EL ULTIMO TERCIO DEL SIGLO XIX
-
-
-Una muralla de piedra, negruzca y alta rodea a Urbia. Esta muralla sigue
-a lo largo del camino real, limita el pueblo por el Norte y al llegar al
-rio se tuerce, tropieza con la iglesia, a la que coge, dejando parte del
-abside fuera de su recinto, y despues escala una altura y envuelve la
-ciudad por el Sur.
-
-Hay todavia, en los fosos, terrenos encharcados con hierbajos y
-espadanas, poternas llenas de hierros, garitas desmochadas, escalerillas
-musgosas, y alrededor, en los glacis, altas y romanticas arboledas,
-malezas y boscajes y verdes praderas salpicadas de florecillas. Cerca,
-en la aguda colina a cuyo pie se sienta el pueblo, un castillo sombrio
-se oculta entre gigantescos olmos.
-
-Desde el camino real, Urbia aparece como una agrupacion de casas
-decrepitas, leprosas, inclinadas, con balcones corridos de madera y
-miradores que asoman por encima de la negra pared de piedra que las
-circunda.
-
-Tiene Urbia una barriada vieja y otra nueva. La barriada vieja, la
-_calle_, como se le llama por antonomasia en vascuence, esta formada,
-principalmente, por dos callejuelas estrechas, sinuosas y en cuesta que
-se unen en la plaza.
-
-El pueblo viejo, desde la carretera, traza una linea quebrada de tejados
-torcidos y mugrientos, que va descendiendo desde el Castillo hasta el
-rio. Las casas, encaramadas en la cintura de piedra de la ciudad, parece
-a primera vista que se encuentran en una posicion estrecha e incomoda,
-pero no es asi, sino todo lo contrario, porque, entre el pie de las
-casas y los muros fortificados, existe un gran espacio ocupado por una
-serie de magnificas huertas. Tales huertas, protegidas de los vientos
-frios, son excelentes. En ellas se pueden cultivar plantas de zona
-calida como naranjos y limoneros.
-
-La muralla, por la parte interior que da a las huertas, tiene un camino
-formado por grandes losas, especie de acera de un metro de ancho con su
-barandado de hierro.
-
-En los intersticios de estas losas viejas, y desgastadas por las
-lluvias, crecen la venenosa cicuta y el beleno; junto a las paredes
-brillan, en la primavera, las flores amarillentas del diente del leon y
-del verbasco, los gladiolos de hermoso color carmesi y las digitales
-purpureas. Otros muchos hierbajos, mezclados con ortigas y amapolas, se
-extienden por la muralla y adornan con su verdura y con sus
-constelaciones de flores pequenas y simples las almenas, las aspilleras
-y los matacanes.
-
-Durante el invierno, en las horas de sol, algunos viejos de la vecindad,
-con traje de casa y zapatillas, pasean por la cornisa, y al llegar Marzo
-o Abril contemplan los progresos de los hermosos perales y melocotoneros
-de las huertas.
-
-Observan tambien, disimuladamente, por las aspilleras, si viene algun
-coche o carro al pueblo, si hay novedades en las casas de la barriada
-nueva, no sin cierta hostilidad, porque todos los habitantes del
-interior sienten una obscura y mal explicada antipatia por sus
-convecinos de extra-muros.
-
-La cintura de piedra del pueblo viejo se abre en unos sitios por puertas
-ojivales; en otros se rompe irregularmente, dejando un boquete que por
-dias se ve agrandarse.
-
-En algunas de las puertas, debajo, de la ojiva primitiva, se hizo
-posteriormente, no se sabe con que objeto, un arco de medio punto.
-
-En las piedras de las jambas quedan empotrados hierros que sirvieron
-para las poternas. Los puentes levadizos estan substituidos por montones
-de tierra que rellenan el foso hasta la necesaria altura.
-
-Urbia ofrece aspectos varios segun el sitio de donde se le contemple;
-desde lejos y viniendo desde la carretera, sobre todo al anochecer,
-tiene la apariencia de un castillo feudal; la ciudadela sombria,
-envuelta entre grandes arboles, prolongada despues por el pueblo con sus
-muros fortificados que chorrean agua, presentan un aspecto grave y
-guerrero; en cambio, desde el puente y un dia de sol, Urbia no da
-ninguna impresion fosca, por el contrario, parece una diminuta
-Florencia, asentada en las orillas de un riachuelo claro, pedregoso,
-murmurador y de rapida corriente.
-
-Las dos filas de casas banadas por el rio son casas viejas con galerias
-y miradores negruzcos, en los cuales cuelgan ropas puestas a secar,
-ristras de ajos y de pimientos. Estas galerias tienen en un extremo una
-polea y un cubo para subir agua. Al finalizar las casas, siguiendo las
-orillas del rio, hay algunos huertos, por cuyas tapias verdosas surgen
-cipreses altos, delgados y espirituales, lo que da a este rincon un
-mayor aspecto florentino.
-
-Urbia intra-muros se acaba pronto; fuera de las dos calles largas, solo
-tiene callejones humedos y estrechos y la plaza. Esta es una encrucijada
-lobrega, constituida por una pared de la iglesia con varias rejas
-tapiadas, por la Casa del Ayuntamiento con sus balcones volados y su
-gran porton coronado por el escudo de la villa, y por un caseron enorme
-en cuyo bajo se halla instalado el almacen de Azpillaga.
-
-El almacen de Azpillaga, donde se encuentra de todo, debe dar a los
-aldeanos la impresion de una caja de Pandora, de un mundo inexplorado y
-lleno de maravillas. A la puerta de casa de Azpillaga, colgando de las
-negras paredes, suelen verse chisteras para jugar a la pelota, albardas,
-jaquimas, monturas de estilo andaluz; y en las ventanas, que hacen de
-escaparate frascos con caramelos de color, aparejos complicados de
-pesca, con su corcho rojo y sus canas, redes sujetas a un mango, marcos
-de hojadelata, santos de yeso y de laton y estampas viejas, sucias por
-las moscas.
-
-En el interior hay ropas, mantas, lanas, jamon, botellas de Chartreuse
-falsificado, loza fina... El Museo Britanico no es nada, en variedad, al
-lado de este almacen.
-
-A la puerta suele pasearse Azpillaga, grueso, majestuoso, con su aire
-clerical, unas mangas azules y su boina. Las dos calles principales de
-Urbia son estrechas, tortuosas y en cuesta. La mayoria de los vecinos de
-esas dos calles son labradores, alpargateros y carpinteros de carros.
-Los labradores, por la manana, salen al campo con sus yuntas. Al
-despertar el pueblo, al amanecer, se oyen los mugidos de los bueyes;
-luego, los alpargateros sacan su banco a la acera, y los carpinteros
-trabajan en medio de la calle en compania de los chiquillos, de las
-gallinas y de los perros.
-
-Algunas de las casas de las dos calles principales muestran su escudo,
-otras, sentencias escritas en latin, y la generalidad, un numero, la
-fecha en que se hicieron y el nombre del matrimonio que las mando
-construir...
-
-Hoy, el pueblo lo forma casi exclusivamente la parte nueva, limpia,
-coquetona, un poco presuntuosa. El verano cruzan la carretera un sin fin
-de automoviles y casi todos se paran un momento en la casa de Ohando,
-convertido en Gran Hotel de Urbia. Algunas senoritas, apasionadas por lo
-pintoresco, mientras el grueso papa escribe postales en el hotel, suben
-las escaleras del portal de la Antigua, recorren las dos calles
-principales de la ciudad y sacan fotografias de los rincones que les
-parecen romanticos y de los grupos de alpargateros que se dejan retratar
-sonriendo burlonamente.
-
-Hace cuarenta anos la vida en Urbia era pacifica y sencilla; los
-domingos habia el acontecimiento de la misa mayor, y por la tarde el
-acontecimiento de las visperas. Despues, en un prado anejo a la
-Ciudadela y del cual se habia apoderado la villa, iba el tamborilero y
-la gente bailaba alegremente, al son del pito y del tamboril, hasta que
-el toque del Angelus terminaba con la zambra y los campesinos volvian a
-sus casas despues de hacer una estacion en la taberna.
-
-
-
-
 LIBRO PRIMERO
 
-La infancia de Zalacain
+La infancia de Zalacaín
 
 
 
 
-CAPITULO PRIMERO
+CAPÍTULO PRIMERO
 
-COMO VIVIO Y SE EDUCO MARTIN ZALACAIN
+CÓMO VIVIÓ Y SE EDUCÓ MARTÍN ZALACAÍN
 
 
 Un camino en cuesta baja de la Ciudadela pasa por encima del cementerio
 y atraviesa el portal de Francia. Este camino, en la parte alta, tiene a
 los lados varias cruces de piedra, que terminan en una ermita y por la
-parte baja, despues de entrar en la ciudad, se convierte en calle. A la
-izquierda del camino, antes de la muralla, habia hace anos un caserio
-viejo, medio derruido, con el tejado terrero lleno de pedruscos y la
-piedra arenisca de sus paredes desgastada por la accion de la humedad y
-del aire. En el frente de la decrepita y pobre casa, un agujero indicaba
-donde estuvo en otro tiempo el escudo, y debajo de el se adivinaban, mas
-bien que se leian, varias letras que componian una frase latina: _Post
+parte baja, después de entrar en la ciudad, se convierte en calle. A la
+izquierda del camino, antes de la muralla, había hace años un caserío
+viejo, medio derruído, con el tejado terrero lleno de pedruscos y la
+piedra arenisca de sus paredes desgastada por la acción de la humedad y
+del aire. En el frente de la decrépita y pobre casa, un agujero indicaba
+dónde estuvo en otro tiempo el escudo, y debajo de él se adivinaban, más
+bien que se leían, varias letras que componían una frase latina: _Post
 funera virtus vivit_.
 
-En este caserio nacio y paso los primeros anos de su infancia Martin
-Zalacain de Urbia, el que, mas tarde, habia de ser llamado Zalacain el
-Aventurero; en este caserio sono sus primeras aventuras y rompio los
+En este caserío nació y pasó los primeros años de su infancia Martín
+Zalacaín de Urbia, el que, más tarde, había de ser llamado Zalacaín el
+Aventurero; en este caserío soñó sus primeras aventuras y rompió los
 primeros pantalones.
 
-Los Zalacain vivian a pocos pasos de Urbia, pero ni Martin ni su familia
+Los Zalacaín vivían a pocos pasos de Urbia, pero ni Martín ni su familia
 eran ciudadanos; faltaban a su casa unos metros para formar parte de la
 villa.
 
-El padre de Martin fue labrador, un hombre obscuro y poco comunicativo,
-muerto en una epidemia de viruelas; la madre de Martin tampoco era mujer
-de caracter; vivio en esa obscuridad psicologica normal entre la gente
-del campo, y paso de soltera a casada y de casada a viuda con absoluta
-inconsciencia. Al morir su marido, quedo con dos hijos Martin y una nina
+El padre de Martín fué labrador, un hombre obscuro y poco comunicativo,
+muerto en una epidemia de viruelas; la madre de Martín tampoco era mujer
+de carácter; vivió en esa obscuridad psicológica normal entre la gente
+del campo, y pasó de soltera a casada y de casada a viuda con absoluta
+inconsciencia. Al morir su marido, quedó con dos hijos Martín y una niña
 menor, llamada Ignacia.
 
-El caserio donde habitaban los Zalacain pertenecia a la familia de
-Ohando, familia la mas antigua aristocratica y rica de Urbia.
+El caserío donde habitaban los Zalacaín pertenecía a la familia de
+Ohando, familia la más antigua aristocrática y rica de Urbia.
 
-Vivia la madre de Martin casi de la misericordia de los Ohandos.
+Vivía la madre de Martín casi de la misericordia de los Ohandos.
 
-En tales condiciones de pobreza y de miseria, parecia logico que, por
-herencia y por la accion del ambiente, Martin fuese como su padre y su
-madre, obscuro, timido y apocado; pero el muchacho resulto decidido,
+En tales condiciones de pobreza y de miseria, parecía lógico que, por
+herencia y por la acción del ambiente, Martín fuese como su padre y su
+madre, obscuro, tímido y apocado; pero el muchacho resultó decidido,
 temerario y audaz.
 
-En esta epoca, los chicos no iban tanto a la escuela como ahora, y
-Martin paso mucho tiempo sin sentarse en sus bancos. No sabia de ella
-mas si no que era un sitio obscuro, con unos cartelones blancos en las
-paredes, lo cual no le animaba a entrar. Le alejaba tambien de aquel
-modesto centro de ensenanza el ver que los chicos de la calle no le
+En esta época, los chicos no iban tanto a la escuela como ahora, y
+Martín pasó mucho tiempo sin sentarse en sus bancos. No sabía de ella
+más si no que era un sitio obscuro, con unos cartelones blancos en las
+paredes, lo cual no le animaba a entrar. Le alejaba también de aquel
+modesto centro de enseñanza el ver que los chicos de la calle no le
 consideraban como uno de los suyos, a causa de vivir fuera del pueblo y
 de andar siempre hecho un andrajoso.
 
-Por este motivo les tenia algun odio; asi que cuando algunos chiquillos
-de los caserios de extramuros entraban en la calle y comenzaban a
-pedradas con los ciudadanos, Martin era de los mas encarnizados en el
-combate; capitaneaba las hordas barbaras, las dirigia y hasta las
+Por este motivo les tenía algún odio; así que cuando algunos chiquillos
+de los caseríos de extramuros entraban en la calle y comenzaban a
+pedradas con los ciudadanos, Martín era de los más encarnizados en el
+combate; capitaneaba las hordas bárbaras, las dirigía y hasta las
 dominaba.
 
-Tenia entre los demas chicos el ascendiente de su audacia y de su
-temeridad. No habia rincon del pueblo que Martin no conociera. Para el,
-Urbia era la reunion de todas las bellezas, el compendio de todos los
+Tenía entre los demás chicos el ascendiente de su audacia y de su
+temeridad. No había rincón del pueblo que Martín no conociera. Para él,
+Urbia era la reunión de todas las bellezas, el compendio de todos los
 intereses y magnificencias.
 
-Nadie se ocupaba de el, no compartia con los demas chicos la escuela y
+Nadie se ocupaba de él, no compartía con los demás chicos la escuela y
 huroneaba por todas partes. Su abandono le obligaba a formarse sus ideas
-espontaneamente y a templar la osadia con la prudencia.
+espontáneamente y a templar la osadía con la prudencia.
 
-Mientras los ninos de su edad aprendian a leer, el daba la vuelta a la
+Mientras los niños de su edad aprendían a leer, él daba la vuelta a la
 muralla, sin que le asustasen las piedras derrumbadas, ni las zarzas que
 cerraban el paso.
 
-Sabia donde habia palomas torcaces e intentaba coger sus nidos, robaba
-fruta y cogia moras y fresas silvestres.
+Sabía dónde había palomas torcaces é intentaba coger sus nidos, robaba
+fruta y cogía moras y fresas silvestres.
 
-A los ocho anos, Martin gozaba de una mala fama digna ya de un hombre.
-Un dia, al salir de la escuela, Carlos Ohando, el hijo de la familia
-rica que dejaba por limosna el caserio a la madre de Martin, senalandole
-con el dedo, grito:
+A los ocho años, Martín gozaba de una mala fama digna ya de un hombre.
+Un día, al salir de la escuela, Carlos Ohando, el hijo de la familia
+rica que dejaba por limosna el caserío a la madre de Martín, señalándole
+con el dedo, gritó:
 
---iEse! Ese es un ladron.
+--¡Ese! Ese es un ladrón.
 
---iYo!--exclamo Martin.
+--¡Yo!--exclamó Martín.
 
---Tu, si. El otro dia te vi que estabas robando peras en mi casa. Toda
+--Tú, sí. El otro día te vi que estabas robando peras en mi casa. Toda
 tu familia es de ladrones.
 
-Martin, aunque respecto a el no podia negar la exactitud del cargo,
-creyo no debia permitir este ultraje dirigido a los Zalacain y,
-abalanzandose sobre el joven Ohando, le dio una bofetada morrocotuda.
-Ohando contesto con un punetazo, se agarraron los dos y cayeron al
-suelo, se dieron de trompicones, pero Martin, mas fuerte, tumbaba
+Martín, aunque respecto a él no podía negar la exactitud del cargo,
+creyó no debía permitir este ultraje dirigido a los Zalacaín y,
+abalanzándose sobre el joven Ohando, le dió una bofetada morrocotuda.
+Ohando contestó con un puñetazo, se agarraron los dos y cayeron al
+suelo, se dieron de trompicones, pero Martín, más fuerte, tumbaba
 siempre al contrario. Un alpargatero tuvo que intervenir en la contienda
-y, a puntapies y a empujones, separo a los dos adversarios. Martin se
-separo triunfante y el joven Ohando, magullado y maltrecho, se fue a su
+y, a puntapiés y a empujones, separó a los dos adversarios. Martín se
+separó triunfante y el joven Ohando, magullado y maltrecho, se fué a su
 casa.
 
-La madre de Martin, al saber el suceso, quiso obligar a su hijo a
-presentarse en casa de Ohando y a pedir perdon a Carlos, pero Martin
-afirmo que antes lo matarian. Ella tuvo que encargarse de dar toda clase
+La madre de Martín, al saber el suceso, quiso obligar a su hijo a
+presentarse en casa de Ohando y a pedir perdón a Carlos, pero Martín
+afirmó que antes lo matarían. Ella tuvo que encargarse de dar toda clase
 de excusas y explicaciones a la poderosa familia.
 
-Desde entonces, la madre miraba a su hijo como a un reprobo.
+Desde entonces, la madre miraba a su hijo como a un réprobo.
 
---iDe donde ha salido este chico asi!--decia, y experimentaba al pensar
-en el un sentimiento confuso de amor y de pena, solo comparable con el
-asombro y la desesperacion de la gallina, cuando empolla huevos de pato
+--¡De dónde ha salido este chico así!--decía, y experimentaba al pensar
+en él un sentimiento confuso de amor y de pena, solo comparable con el
+asombro y la desesperación de la gallina, cuando empolla huevos de pato
 y ve que sus hijos se zambullen en el agua sin miedo y van nadando
 valientemente.
 
 
 
 
-CAPITULO II
+CAPÍTULO II
 
-DONDE SE HABLA DEL VIEJO CINICO MIGUEL DE TELLAGORRI
+DONDE SE HABLA DEL VIEJO CÍNICO MIGUEL DE TELLAGORRI
 
 
 Algunas veces, cuando su madre enviaba por vino o por sidra a la taberna
-de Arcale a su hijo Martin, le solia decir:
+de Arcale a su hijo Martín, le solía decir:
 
 --Y si le encuentras, al viejo Tellagorri, no le hables, y si te dice
-algo, respondele a todo que no.
+algo, respóndele a todo que no.
 
-Tellagorri, tio-abuelo de Martin, hermano de la madre de su padre, era
+Tellagorri, tío-abuelo de Martín, hermano de la madre de su padre, era
 un hombre flaco, de nariz enorme y ganchuda, pelo gris, ojos grises, y
 la pipa de barro siempre en la boca. Punto fuerte en la taberna de
-Arcale, tenia alli su centro de operaciones, alli peroraba, discutia y
-mantenia vivo el odio latente que hay entre los campesinos por el
+Arcale, tenía allí su centro de operaciones, allí peroraba, discutía y
+mantenía vivo el odio latente que hay entre los campesinos por el
 propietario.
 
-Vivia el viejo Tellagorri de una porcion de pequenos recursos que el se
-agenciaba, y tenia mala fama entre las personas pudientes del pueblo.
-Era, en el fondo, un hombre de rapina, alegre y jovial, buen bebedor,
+Vivía el viejo Tellagorri de una porción de pequeños recursos que él se
+agenciaba, y tenía mala fama entre las personas pudientes del pueblo.
+Era, en el fondo, un hombre de rapiña, alegre y jovial, buen bebedor,
 buen amigo y en el interior de su alma bastante violento para pegarle un
 tiro a uno o para incendiar el pueblo entero.
 
-La madre de Martin presintio que, dado el caracter de su hijo,
-terminaria haciendose amigo de Tellagorri, a quien ella consideraba como
-un hombre siniestro. Efectivamente, asi fue; el mismo dia en que el
-viejo supo la paliza que su sobrino habia adjudicado al joven Ohando, le
-tomo bajo su proteccion y comenzo a iniciarle en su vida.
+La madre de Martín presintió que, dado el carácter de su hijo,
+terminaría haciéndose amigo de Tellagorri, a quien ella consideraba como
+un hombre siniestro. Efectivamente, así fué; el mismo día en que el
+viejo supo la paliza que su sobrino había adjudicado al joven Ohando, le
+tomó bajo su protección y comenzó a iniciarle en su vida.
 
-El mismo senalado dia en que Martin disfruto de la amistad de
-Tellagorri, obtuvo tambien la benevolencia de _Marques. Marques_ era el
+El mismo señalado día en que Martín disfrutó de la amistad de
+Tellagorri, obtuvo también la benevolencia de _Marqués. Marqués_ era el
 perro de Tellagorri, un perro chiquito, feo, contagiado hasta tal punto
-con las ideas, preocupaciones y manas de su amo, que era como el;
-ladron, astuto, vagabundo, viejo, cinico, insociable e independiente.
-Ademas, participaba del odio de Tellagorri por los ricos, cosa rara en
-un perro. Si _Marques_ entraba alguna vez en la iglesia, era para ver si
-los chicos habian dejado en el suelo de los bancos donde se sentaban
-algun mendrugo de pan, no por otra cosa. No tenia veleidades misticas. A
-pesar de su titulo aristocratico, _Marques_, no simpatizaba ni con el
+con las ideas, preocupaciones y mañas de su amo, que era como él;
+ladrón, astuto, vagabundo, viejo, cínico, insociable é independiente.
+Además, participaba del odio de Tellagorri por los ricos, cosa rara en
+un perro. Si _Marqués_ entraba alguna vez en la iglesia, era para ver si
+los chicos habían dejado en el suelo de los bancos donde se sentaban
+algún mendrugo de pan, no por otra cosa. No tenía veleidades místicas. A
+pesar de su título aristocrático, _Marqués_, no simpatizaba ni con el
 clero ni con la nobleza. Tellagorri le llamaba siempre _Marquesch_,
-alteracion que en vasco parece mas carinosa.
+alteración que en vasco parece más cariñosa.
 
-Tellagorri poseia un huertecillo que no valia nada, segun los
-inteligentes, en el extremo opuesto de su casa, y para ir a el le era
-indispensable recorrer todo el balcon de la muralla. Muchas veces le
-propusieron comprarle el huerto, pero el decia que le venia de familia y
+Tellagorri poseía un huertecillo que no valía nada, según los
+inteligentes, en el extremo opuesto de su casa, y para ir a él le era
+indispensable recorrer todo el balcón de la muralla. Muchas veces le
+propusieron comprarle el huerto, pero él decía que le venía de familia y
 que los higos de sus higueras eran tan excelentes, que por nada del
-mundo venderia aquel pedazo de tierra.
+mundo vendería aquel pedazo de tierra.
 
-Todo el mundo creia que conservaba el huertecillo para tener derecho de
-pasar por la muralla y robar, y esta opinion no se hallaba, ni mucho
+Todo el mundo creía que conservaba el huertecillo para tener derecho de
+pasar por la muralla y robar, y esta opinión no se hallaba, ni mucho
 menos, alejada de la realidad.
 
 Tellagorri era de la familia de los Galchagorris, la familia de los
 pantalones colorados, y este consonante, entre el mote de su familia y
-su nombre habia servido al padre de la sacristana, viejo chusco que
-odiaba a Tellagorri, de motivo a una cancion que hasta los chicos la
-sabian y que mortificaba profundamente a Tellagorri.
+su nombre había servido al padre de la sacristana, viejo chusco que
+odiaba a Tellagorri, de motivo a una canción que hasta los chicos la
+sabían y que mortificaba profundamente a Tellagorri.
 
-La cancion decia asi:
+La canción decía así:
 
         Tellagorri
         Galchagorri
@@ -333,714 +185,714 @@ La cancion decia asi:
         Ostutzale
         Erantzale
         Nescatzale
-        Zu cera.
+        Zu cerá.
 
-(Tellagorri, Galchagorri, bien venido seas aqui. Aficionado a robar,
-aficionado a beber aficionado a las muchachas, eres tu.)
+(Tellagorri, Galchagorri, bien venido seas aquí. Aficionado a robar,
+aficionado a beber aficionado a las muchachas, eres tú.)
 
-Tellagorri, al oir la cancion, fruncia el entrecejo y se ponia serio.
+Tellagorri, al oir la canción, fruncía el entrecejo y se ponía serio.
 
-Tellagorri era un individualista convencido, tenia el individualismo del
+Tellagorri era un individualista convencido, tenía el individualismo del
 vasco reforzado y calafateado por el individualismo de los Tellagorris.
 
---Cada cual que conserve lo que tenga y que robe lo que pueda--decia.
+--Cada cual que conserve lo que tenga y que robe lo que pueda--decía.
 
-Esta era la mas social de sus teorias, las mas insociables se las
+Ésta era la más social de sus teorías, las más insociables se las
 callaba.
 
-Tellagorri no necesitaba de nadie para vivir. El se hacia la ropa, el se
+Tellagorri no necesitaba de nadie para vivir. Él se hacía la ropa, él se
 afeitaba y se cortaba el pelo, se fabrica las abarcas, y no necesitaba
-de nadie, ni de mujer ni de hombre. Asi al menos lo aseguraba el.
+de nadie, ni de mujer ni de hombre. Así al menos lo aseguraba él.
 
-Tellagorri, cuando le tomo por su cuenta a Martin, le enseno toda su
-ciencia. Le explico la manera de acogotar una gallina sin que
-alborotase, le mostro la manera de coger los higos y las ciruelas de las
-huertas sin peligro de ser visto, y le enseno a conocer las setas buenas
-de las venenosas por el color de la hierba en donde se crian.
+Tellagorri, cuando le tomó por su cuenta a Martín, le enseñó toda su
+ciencia. Le explicó la manera de acogotar una gallina sin que
+alborotase, le mostró la manera de coger los higos y las ciruelas de las
+huertas sin peligro de ser visto, y le enseñó a conocer las setas buenas
+de las venenosas por el color de la hierba en donde se crían.
 
-Esta cosecha de setas y la caza de caracoles constituia un ingreso para
+Esta cosecha de setas y la caza de caracoles constituía un ingreso para
 Tellagorri, pero el mayor era otro.
 
-Habia en la Ciudadela, en uno de los lienzos de la muralla, un rellano
-formado por tierra, al cual parecia tan imposible llegar subiendo como
-bajando. Sin embargo, Tellagorri dio con la vereda para escalar aquel
-rincon y, en este sitio recondito y soleado, puso una verdadera
-plantacion de tabaco, cuyas hojas secas vendia al tabernero Arcale.
+Había en la Ciudadela, en uno de los lienzos de la muralla, un rellano
+formado por tierra, al cual parecía tan imposible llegar subiendo como
+bajando. Sin embargo, Tellagorri dió con la vereda para escalar aquel
+rincón y, en este sitio recóndito y soleado, puso una verdadera
+plantación de tabaco, cuyas hojas secas vendía al tabernero Arcale.
 
-El camino que llevaba a la plantacion de tabaco del viejo, partia de una
+El camino que llevaba a la plantación de tabaco del viejo, partía de una
 heredad de los Ohandos y pasaba por un foso de la Ciudadela. Abriendo
-una puerta vieja y carcomida que habia en este foso, por unos escalones
-cubiertos de musgo, se llegaba al rincon de Tellagorri.
+una puerta vieja y carcomida que había en este foso, por unos escalones
+cubiertos de musgo, se llegaba al rincón de Tellagorri.
 
-Este camino subia apoyandose en las gruesas raices de los arboles,
-constituyendo una escalera de desiguales tramos, metida en un tunel de
+Este camino subía apoyándose en las gruesas raíces de los árboles,
+constituyendo una escalera de desiguales tramos, metida en un túnel de
 ramaje.
 
-En verano, las hojas lo cubrian por completo. En los dias calurosos de
-Agosto se podia dormir alli a la sombra, arrullado por el piar de los
-pajaros y el rezongar de los moscones.
+En verano, las hojas lo cubrían por completo. En los días calurosos de
+Agosto se podía dormir allí a la sombra, arrullado por el piar de los
+pájaros y el rezongar de los moscones.
 
-El foso era lugar tambien interesante para Martin; las paredes estaban
-cubiertas de musgos rojos, amarillos y verdes; entre las piedras nacian
-la lechetrezna, el beleno y el yezgo, y los grandes lagartos
-tornasolados se tostaban al sol. En los huecos de la muralla tenian sus
+El foso era lugar también interesante para Martín; las paredes estaban
+cubiertas de musgos rojos, amarillos y verdes; entre las piedras nacían
+la lechetrezna, el beleño y el yezgo, y los grandes lagartos
+tornasolados se tostaban al sol. En los huecos de la muralla tenían sus
 nidos las lechuzas y los mochuelos.
 
-Tellagorri explicaba todo detenidamente a Martin.
+Tellagorri explicaba todo detenidamente a Martín.
 
-Tellagorri era un sabio, nadie conocia la comarca como el, nadie
-dominaba la geografia del rio Ibaya, la fauna y la flora de sus orillas
-y de sus aguas como este viejo cinico.
+Tellagorri era un sabio, nadie conocía la comarca como él, nadie
+dominaba la geografía del río Ibaya, la fauna y la flora de sus orillas
+y de sus aguas como este viejo cínico.
 
 Guardaba, en los agujeros del puente romano, su aparejo y su red para
-cuando la veda; sabia pescar al martillo, procedimiento que se reduce a
-golpear algunas losas del fondo del rio y luego a levantarlas, con lo
-que quedan las truchas que han estado debajo inmoviles y aletargadas.
+cuando la veda; sabía pescar al martillo, procedimiento que se reduce a
+golpear algunas losas del fondo del río y luego a levantarlas, con lo
+que quedan las truchas que han estado debajo inmóviles y aletargadas.
 
-Sabia cazar los peces a tiros; ponia lazos a las nutrias en la cueva de
-Amaviturrieta, que se hunde en el suelo y esta a medias llena de agua;
-echaba las redes en Ocin beltz, el agujero negro en donde el rio se
+Sabía cazar los peces a tiros; ponía lazos a las nutrias en la cueva de
+Amaviturrieta, que se hunde en el suelo y está a medias llena de agua;
+echaba las redes en Ocin beltz, el agujero negro en donde el río se
 embalsa; pero no empleaba nunca la dinamita porque, aunque vagamente,
-Tellagorri amaba la Naturaleza y no queria empobrecerla.
+Tellagorri amaba la Naturaleza y no quería empobrecerla.
 
-Le gustaba tambien a este viejo embromar a la gente: decia que nada
-gustaba tanto a las nutrias como un periodico con buenas noticias, y
-aseguraba que si se dejaba un papel a la orilla del rio, estos animales
+Le gustaba también a este viejo embromar a la gente: decía que nada
+gustaba tanto a las nutrias como un periódico con buenas noticias, y
+aseguraba que si se dejaba un papel a la orilla del río, estos animales
 salen a leerlo; contaba historias extraordinarias de la inteligencia de
 los salmones y de otros peces. Para Tellagorri, los perros si no
-hablaban era porque no querian, pero el los consideraba con tanta
-inteligencia como una persona. Este entusiasmo por los canes le habia
+hablaban era porque no querían, pero él los consideraba con tanta
+inteligencia como una persona. Este entusiasmo por los canes le había
 impulsado a pronunciar esta frase irrespetuosa:
 
---"Yo le saludo con mas respeto a un perro de aguas, que al senor
-parroco."
+--«Yo le saludo con más respeto a un perro de aguas, que al señor
+párroco.»
 
-La tal frase escandalizo el pueblo.
+La tal frase escandalizó el pueblo.
 
-Habia gente que comenzaba a creer que Tellagorri y Voltaire eran los
+Había gente que comenzaba a creer que Tellagorri y Voltaire eran los
 causantes de la impiedad moderna.
 
-Cuando no tenian, el viejo y el chico, nada que hacer, iban de caza con
+Cuando no tenían, el viejo y el chico, nada que hacer, iban de caza con
 _Marquesch_ al monte. Arcale le prestaba a Tellagorri su escopeta.
 Tellagorri, sin motivo conocido, comenzaba a insultar a su perro. Para
-esto siempre tenia que emplear el castellano:
+esto siempre tenía que emplear el castellano:
 
---iCanalla! iGranuja!--le decia--. iViejo cochino! iCobarde!
+--¡Canalla! ¡Granuja!--le decía--. ¡Viejo cochino! ¡Cobarde!
 
-_Marques_ contestaba a los insultos con un ladrido suave, que parecia
-una quejumbrosa protesta, movia la cola como un pendulo y se ponia a
-andar en zig-zag, olfateando por todas partes. De pronto veia que
-algunas hierbas se movian y se lanzaba a ellas como una flecha.
+_Marqués_ contestaba a los insultos con un ladrido suave, que parecía
+una quejumbrosa protesta, movía la cola como un péndulo y se ponía a
+andar en zig-zag, olfateando por todas partes. De pronto veía que
+algunas hierbas se movían y se lanzaba a ellas como una flecha.
 
-Martin se divertia muchisimo con estos espectaculos. Tellagorri lo tenia
-como acompanante para todo, menos para ir a la taberna; alli no le
-queria a Martin. Al anochecer, solia decirle, cuando el iba a perorar al
+Martín se divertía muchísimo con estos espectáculos. Tellagorri lo tenía
+como acompañante para todo, menos para ir a la taberna; allí no le
+quería a Martín. Al anochecer, solía decirle, cuando él iba a perorar al
 parlamento de casa de Arcale:
 
---Anda, vete a mi huerta y coge unas peras de alli, del rincon, y
-llevatelas a casa. Manana me daras la llave.
+--Anda, vete a mi huerta y coge unas peras de allí, del rincón, y
+llévatelas a casa. Mañana me darás la llave.
 
 Y le entregaba un pedazo de hierro que pesaba media tonelada por lo
 menos.
 
-Martin recorria el balcon de la muralla. Asi sabia que en casa de Tal
-habian plantado alcachofas y en la de Cual judias. El ver las huertas y
+Martín recorría el balcón de la muralla. Así sabía que en casa de Tal
+habían plantado alcachofas y en la de Cual judías. El ver las huertas y
 las casas ajenas desde lo alto de la muralla, y el contemplar los
-trabajos de los demas, iba dando a Martin cierta inclinacion a la
-filosofia y al robo.
+trabajos de los demás, iba dando a Martín cierta inclinación a la
+filosofía y al robo.
 
-Como en el fondo el joven Zalacain era agradecido y de buena pasta,
-sentia por su viejo Mentor un gran entusiasmo y un gran respeto.
-Tellagorri lo sabia, aunque daba a entender que lo ignoraba; pero en
-buena reciprocidad, todo lo que comprendia que le gustaba al muchacho o
-servia para su educacion, lo hacia si estaba en su mano.
+Como en el fondo el joven Zalacaín era agradecido y de buena pasta,
+sentía por su viejo Mentor un gran entusiasmo y un gran respeto.
+Tellagorri lo sabía, aunque daba a entender que lo ignoraba; pero en
+buena reciprocidad, todo lo que comprendía que le gustaba al muchacho o
+servía para su educación, lo hacía si estaba en su mano.
 
-iY que rincones conocia Tellagorri! Como buen vagabundo era aficionado a
-la contemplacion de la Naturaleza. El viejo y el muchacho subian a las
-alturas de la Ciudadela, y alla, tendidos sobre la hierba y las aliagas,
+¡Y qué rincones conocía Tellagorri! Como buen vagabundo era aficionado a
+la contemplación de la Naturaleza. El viejo y el muchacho subían a las
+alturas de la Ciudadela, y allá, tendidos sobre la hierba y las aliagas,
 contemplaban el extenso paisaje. Sobre todo, las tardes de primavera era
-una maravilla. El rio Ibaya, limpio, claro, cruzaba el valle por entre
-heredades verdes, por entre filas de alamos altisimos, ensanchandose y
-saltando sobre las piedras, estrechandose despues, convirtiendose en
+una maravilla. El río Ibaya, limpio, claro, cruzaba el valle por entre
+heredades verdes, por entre filas de álamos altísimos, ensanchándose y
+saltando sobre las piedras, estrechándose después, convirtiéndose en
 cascada de perlas al caer por la presa del molino. Cerraban el horizonte
-montes cenudos y en los huertos se veian arboledas y bosquecillos de
+montes ceñudos y en los huertos se veían arboledas y bosquecillos de
 frutales.
 
 El sol daba en los grandes olmos de follaje espeso de la Ciudadela y los
-enrojecia y los coloreaba con un tono de cobre.
+enrojecía y los coloreaba con un tono de cobre.
 
 Bajando desde lo alto, por senderos de cabras, se llegaba a un camino
-que corria junto a las aguas claras del Ibaya. Cerca del pueblo,
-algunos pescadores de cana, se pasaban la tarde sentados en la orilla y
-las lavanderas, con las piernas desnudas metidas en el rio, sacudian las
+que corría junto a las aguas claras del Ibaya. Cerca del pueblo,
+algunos pescadores de caña, se pasaban la tarde sentados en la orilla y
+las lavanderas, con las piernas desnudas metidas en el río, sacudían las
 ropas y cantaban.
 
-Tellagorri conocia de lejos a los pescadores.--Alli estan Tal y Tal,
-decia--. Seguramente no han pescado nada. No se reunia con ellos; el
-sabia un rincon perfumado por las flores de las acacias y de los espinos
-que caia sobre un sitio en donde el rio estaba en sombra y a donde
-afluian los peces.
+Tellagorri conocía de lejos a los pescadores.--Allí están Tal y Tal,
+decía--. Seguramente no han pescado nada. No se reunía con ellos; él
+sabía un rincón perfumado por las flores de las acacias y de los espinos
+que caía sobre un sitio en donde el río estaba en sombra y a donde
+afluían los peces.
 
-Tellagorri le curtia a Martin, le hacia andar, correr, subirse a los
-arboles, meterse en los agujeros como un huron, le educaba a su manera,
-por el sistema pedagogico de los Tellagorris que se parecia bastante al
+Tellagorri le curtía a Martín, le hacía andar, correr, subirse a los
+árboles, meterse en los agujeros como un hurón, le educaba a su manera,
+por el sistema pedagógico de los Tellagorris que se parecía bastante al
 salvajismo.
 
-Mientras los demas chicos estudiaban la doctrina y el caton, el
-contemplaba los espectaculos de la Naturaleza, entraba en la cueva de
-Erroitza en donde hay salones inmensos llenos de grandes murcielagos que
-se cuelgan de las paredes por las unas de sus alas membranosas, se
-banaba en Ocin beltz, a pesar de que todo el pueblo consideraba este
-remanso peligrosisimo, cazaba y daba grandes viajatas.
+Mientras los demás chicos estudiaban la doctrina y el catón, él
+contemplaba los espectáculos de la Naturaleza, entraba en la cueva de
+Erroitza en donde hay salones inmensos llenos de grandes murciélagos que
+se cuelgan de las paredes por las uñas de sus alas membranosas, se
+bañaba en Ocin beltz, a pesar de que todo el pueblo consideraba este
+remanso peligrosísimo, cazaba y daba grandes viajatas.
 
-Tellagorri hacia que su nieto entrara en el rio cuando llevaban a banar
+Tellagorri hacía que su nieto entrara en el río cuando llevaban a bañar
 los caballos de la diligencia, montado en uno de ellos.
 
---iMas adentro! iMas cerca de la presa, Martin!--le decia.
+--¡Más adentro! ¡Más cerca de la presa, Martín!--le decía.
 
-Y Martin, riendo, llevaba los caballos hasta la misma presa.
+Y Martín, riendo, llevaba los caballos hasta la misma presa.
 
-Algunas noches, Tellagorri, le llevo a Zalacain al cementerio.
+Algunas noches, Tellagorri, le llevó a Zalacaín al cementerio.
 
---Esperame aqui un momento--le dijo.
+--Espérame aquí un momento--le dijo.
 
 --Bueno.
 
-Al cabo de media hora, al volver por alli le pregunto:
+Al cabo de media hora, al volver por allí le preguntó:
 
---?Has tenido miedo, Martin?
+--¿Has tenido miedo, Martín?
 
---?Miedo de que?
+--¿Miedo de qué?
 
---_iArrayua!_ Asi hay que ser--decia Tellagorri--. Hay que estar firmes,
+--_¡Arrayua!_ Así hay que ser--decía Tellagorri--. Hay que estar firmes,
 siempre firmes.
 
 
 
 
-CAPITULO III
+CAPÍTULO III
 
-LA REUNION DE LA POSADA DE ARCALE
+LA REUNIÓN DE LA POSADA DE ARCALE
 
 
-La posada de Arcale estaba en la calle del castillo y hacia esquina al
-callejon Oquerra. Del callejon se salia al portal de la Antigua;
-hendidura estrecha y lobrega de la muralla que bajaba por una rampa en
-zig-zag al camino real. La casa de Arcale era un caseron de piedra hasta
-el primer piso, y lo demas de ladrillo, que dejaba ver sus vigas
+La posada de Arcale estaba en la calle del castillo y hacía esquina al
+callejón Oquerra. Del callejón se salía al portal de la Antigua;
+hendidura estrecha y lóbrega de la muralla que bajaba por una rampa en
+zig-zag al camino real. La casa de Arcale era un caserón de piedra hasta
+el primer piso, y lo demás de ladrillo, que dejaba ver sus vigas
 cruzadas y ennegrecidas por la humedad. Era, al mismo tiempo, posada y
-taberna con honores de club, pues alli por la noche se reunian varios
+taberna con honores de club, pues allí por la noche se reunían varios
 vecinos de la _calle_ y algunos campesinos a hablar y a discutir y los
-domingos a emborracharse. El zaguan negro tenia un mostrador y un
+domingos a emborracharse. El zaguán negro tenía un mostrador y un
 armario repleto de vinos y licores; a un lado estaba la taberna, con
-mesas de pino largas que podian levantarse y sujetarse a la pared, y en
+mesas de pino largas que podían levantarse y sujetarse a la pared, y en
 el fondo la cocina. Arcale era un hombre grueso y activo, excosechero,
-extratante de caballos y contrabandista. Tenia cuentas complicadas con
+extratante de caballos y contrabandista. Tenía cuentas complicadas con
 todo el mundo, administraba las diligencias, chalaneaba, gitaneaba, y
-los dias de fiesta anadia a sus oficios el de cocinero. Siempre estaba
-yendo y viniendo, hablando, gritando, rinendo a su mujer y a su hermano,
+los días de fiesta añadía a sus oficios el de cocinero. Siempre estaba
+yendo y viniendo, hablando, gritando, riñendo a su mujer y a su hermano,
 a los criados y a los pobres; no paraba nunca de hacer algo.
 
-La tertulia de la noche en la taberna de Arcale la sostenian Tellagorri
-y Pichia. Pichia, digno compinche de Tellagorri, le servia de contraste.
-Tellagorri era flaco, Pichia gordo; Tellagorri vestia de obscuro,
-Pichia, quiza para poner mas en evidencia su volumen, de claro;
-Tellagorri pasaba por pobre, Pichia era rico; Tellagorri era liberal,
-Pichia carlista; Tellagorri no pisaba la iglesia, Pichia estaba siempre
-en ella, pero a pesar de tantas divergencias Tellagorri y Pichia se
-sentian almas gemelas que fraternizaban ante un vaso de buen vino.
+La tertulia de la noche en la taberna de Arcale la sostenían Tellagorri
+y Pichía. Pichía, digno compinche de Tellagorri, le servía de contraste.
+Tellagorri era flaco, Pichía gordo; Tellagorri vestía de obscuro,
+Pichía, quizá para poner más en evidencia su volumen, de claro;
+Tellagorri pasaba por pobre, Pichía era rico; Tellagorri era liberal,
+Pichía carlista; Tellagorri no pisaba la iglesia, Pichía estaba siempre
+en ella, pero a pesar de tantas divergencias Tellagorri y Pichía se
+sentían almas gemelas que fraternizaban ante un vaso de buen vino.
 
-Tenian estos dos oradores de la taberna de Arcale hablando en castellano
-un caracter comun y era que invariablemente trabucaban las efes y las
-pes. No habia medio de que las pronunciasen a derechas.
+Tenían estos dos oradores de la taberna de Arcale hablando en castellano
+un carácter común y era que invariablemente trabucaban las efes y las
+pes. No había medio de que las pronunciasen a derechas.
 
---?Que te _farece_ a ti el medico nuevo?--le preguntaba Pichia a
+--¿Qué te _farece_ a tí el médico nuevo?--le preguntaba Pichía a
 Tellagorri.
 
---!Pse!--contestaba el otro--. La _fratica_ es lo que le _palta_.
+--!Psé!--contestaba el otro--. La _frática_ es lo que le _palta_.
 
 --Pues es hombre listo, hombre de alguna _portuna,_ tiene su _fiano_ en
 casa.
 
-No habia manera de que uno u otro pronunciaran estas letras bien.
+No había manera de que uno u otro pronunciaran estas letras bien.
 
-Tellagorri se sentia poco aficionado a las cosas de iglesia, tenia poca
-_apicion_, como hubiera dicho el, y cuando bebia dos copas de mas la
-primera gente de quien empezaba a hablar mal era de los curas. Pichia
-parecia natural que se indignara y no solo no se indignaba como cerero y
-religioso, sino que azuzaba a su amigo para que dijera cosas mas fuertes
-contra el vicario, los coadjutores, el sacristan o la cerora.
+Tellagorri se sentía poco aficionado a las cosas de iglesia, tenía poca
+_apición_, como hubiera dicho él, y cuando bebía dos copas de más la
+primera gente de quien empezaba a hablar mal era de los curas. Pichía
+parecía natural que se indignara y no sólo no se indignaba como cerero y
+religioso, sino que azuzaba a su amigo para que dijera cosas más fuertes
+contra el vicario, los coadjutores, el sacristán o la cerora.
 
 Sin embargo, Tellagorri respetaba al vicario de Arbea, a quien los
-clericales acusaban de liberal y de loco. El tal vicario tenia la
+clericales acusaban de liberal y de loco. El tal vicario tenía la
 costumbre de coger su sueldo, cambiarlo en plata y dejarlo encima de la
-mesa formando un monton, no muy grande, porque el sueldo no era mucho,
-de duros y de pesetas. Luego, a todo el que iba a pedirle algo, despues
-de renirle rudamente y de reprocharle sus vicios y de insultarle a
-veces, le daba lo que le parecia, hasta que a mediados del mes se le
-acababa el monton de pesetas y entonces daba maiz o habichuelas siempre
-refunfunando e insultando.
+mesa formando un montón, no muy grande, porque el sueldo no era mucho,
+de duros y de pesetas. Luego, a todo el que iba a pedirle algo, después
+de reñirle rudamente y de reprocharle sus vicios y de insultarle a
+veces, le daba lo que le parecía, hasta que a mediados del mes se le
+acababa el montón de pesetas y entonces daba maíz o habichuelas siempre
+refunfuñando é insultando.
 
-Tellagorri decia:--Esos son curas, no como los de aqui, que no quieren
-mas que vivir bien y buenas _profinas_.
+Tellagorri decía:--Esos son curas, no como los de aquí, que no quieren
+más que vivir bien y buenas _profinas_.
 
 Toda la torpeza de Tellagorri hablando castellano se trocaba en
 facilidad, en rapidez y en gracia cuando peroraba en vascuence. Sin
-embargo, el preferia hablar en castellano porque le parecia mas
+embargo, él prefería hablar en castellano porque le parecía más
 elegante.
 
-Cualquier cosa llegaba a ser graciosa en boca de aquel viejo truhan;
+Cualquier cosa llegaba a ser graciosa en boca de aquel viejo truhán;
 cuando pasaba por delante de la taberna alguna chica bonita, Tellagorri
-lanzaba un ronquido tan socarron que todo el mundo reia.
+lanzaba un ronquido tan socarrón que todo el mundo reía.
 
-Otro, haciendo lo mismo, hubiese parecido ordinario y grosero; el, no;
-Tellagorri tenia una elegancia y una delicadeza innata que le alejaban
-de la groseria.
+Otro, haciendo lo mismo, hubiese parecido ordinario y grosero; él, no;
+Tellagorri tenía una elegancia y una delicadeza innata que le alejaban
+de la grosería.
 
-Era tambien hombre de refranes, y cuando estaba borracho cantaba muy
-mal, sin afinacion alguna, pero dando a las palabras mucha malicia.
+Era también hombre de refranes, y cuando estaba borracho cantaba muy
+mal, sin afinación alguna, pero dando a las palabras mucha malicia.
 
-Las dos canciones favoritas suyas eran dos hibridas de vascuence y
-castellano; traducidas literalmente no querian decir gran cosa, pero en
-sus labios significaban todo. Una, probablemente de su invencion, era
-asi:
+Las dos canciones favoritas suyas eran dos híbridas de vascuence y
+castellano; traducidas literalmente no querían decir gran cosa, pero en
+sus labios significaban todo. Una, probablemente de su invención, era
+así:
 
         Ba dala sargentua
         Ba dala quefia.
-        Erreguinen bizcarretic
+        Erreguiñen bizcarretic
         Artzen ditu cafia.
 
-(Ya sea sargento, ya sea jefe, a costa de la reina, toma su cafe).
+(Ya sea sargento, ya sea jefe, a costa de la reina, toma su café).
 
-Esto, en boca de Tellagori, quieria decir que todo el mundo era un
+Esto, en boca de Tellagori, quiería decir que todo el mundo era un
 pillo.
 
-La otra cancion la tenia el viejo para los momentos solemnes, y era asi:
+La otra canción la tenía el viejo para los momentos solemnes, y era así:
 
         Manuelacho, escasayozu
-        Barcasiyua Andresi.
+        Barcasiyua Andresí.
 
-(Manolita, pidele perdon a Andres).
+(Manolita, pídele perdón a Andrés).
 
-Y hacia, al decir esto Tellagorri, una reverencia comica, y continuaa
+Y hacía, al decir esto Tellagorri, una reverencia cómica, y continuaa
 con voz gangosa:
 
         Beti orrela ibilli gabe
-        majo sharraren iguesi.
+        majo sharraren iguesí.
 
 (Sin andar siempre, de esa manera, huyendo de un viejecito tan majo).
 
-Y despues, como una consecuencia grave de lo que habia dicho antes,
-anadia:
+Y después, como una consecuencia grave de lo que había dicho antes,
+añadía:
 
         Napoleonen pauso gaiztoac
-        ondo dituzu icasi.
+        ondó dituzu icasi.
 
-(Los malos pasos de Napoleon, bien los has aprendido).
+(Los malos pasos de Napoleón, bien los has aprendido).
 
-No era facil comprender que malos pasos de Napoleon habria aprendido
-Manolita. Probablemente Manolita no tendria ni la mas remota idea de la
-existencia del heroe de Austerlitz, pero esto no era obstaculo para que
-la cancion en boca de Tellagorri tuviese muchisima gracia.
+No era fácil comprender qué malos pasos de Napoleón habría aprendido
+Manolita. Probablemente Manolita no tendría ni la más remota idea de la
+existencia del héroe de Austerlitz, pero esto no era obstáculo para que
+la canción en boca de Tellagorri tuviese muchísima gracia.
 
 Para los momentos en que Tellagorri estaba un tanto excitado o
-borracho, tenia otra cancion bilinguee, en que se celebraba el abrazo de
-Vergara y que concluia asi:
+borracho, tenía otra canción bilingüe, en que se celebraba el abrazo de
+Vergara y que concluía así:
 
-        iViva Espartero! iViva erreguina!
-        iOjala de repente ilcobalizaque
-        Bere ama ciquina!
+        ¡Viva Espartero! ¡Viva erreguiña!
+        ¡Ojalá de repente ilcobalizaque
+        Bere ama ciquiña!
 
-(iViva Espartero! iViva la reina! Ojala de repente se muriese su sucia
+(¡Viva Espartero! ¡Viva la reina! Ojalá de repente se muriese su sucia
 madre!).
 
-Este adjetivo, dirigido a la madre de Isabel II, indicaba como habia
-llegado el odio por Maria Cristina hasta los mas alejados rincones de
-Espana.
+Este adjetivo, dirigido a la madre de Isabel II, indicaba cómo había
+llegado el odio por María Cristina hasta los más alejados rincones de
+España.
 
 
 
 
-CAPITULO IV
+CAPÍTULO IV
 
 QUE SE REFIERE A LA NOBLE CASA DE OHANDO
 
 
 A la entrada del pueblo nuevo, en la carretera, y por lo tanto, fuera de
-las murallas, estaba la casa mas antigua y linajuda de Urbia: la casa de
+las murallas, estaba la casa más antigua y linajuda de Urbia: la casa de
 Ohando.
 
-Los Ohandos constituyeron durante mucho tiempo la unica aristocracia de
+Los Ohandos constituyeron durante mucho tiempo la única aristocracia de
 la villa; fueron en tiempo remoto grandes hacendados y fundadores de
-capellanias, luego algunos reveses de fortuna y la guerra civil,
-amenguaron sus rentas y la llegada de otras familias ricas les quito la
-preponderancia absoluta que habian tenido.
+capellanías, luego algunos reveses de fortuna y la guerra civil,
+amenguaron sus rentas y la llegada de otras familias ricas les quitó la
+preponderancia absoluta que habían tenido.
 
 La casa Ohando estaba en la carretera, lo bastante retirada de ella para
-dejar sitio a un hermoso jardin, en el cual, como haciendo guardia, se
-levantaban seis magnificos tilos. Entre los grandes troncos de estos
-arboles crecian viejos rosales que formaban guirnaldas en la primavera
+dejar sitio a un hermoso jardín, en el cual, como haciendo guardia, se
+levantaban seis magníficos tilos. Entre los grandes troncos de estos
+árboles crecían viejos rosales que formaban guirnaldas en la primavera
 cuajadas de flores.
 
-Otro rosal trepador, de retorcidas ramas y rosas de color de te, subia
-por la fachada extendiendose como una parra y daba al viejo casaron un
-tono delicado y aereo. Tenia ademas este jardin, en el lado que se unia
-con la huerta, un bosquecillo de lilas y saucos. En los meses de Abril y
-Mayo, estos arbustos florecian y mezclaban sus tirsos perfumados, sus
+Otro rosal trepador, de retorcidas ramas y rosas de color de té, subía
+por la fachada extendiéndose como una parra y daba al viejo casarón un
+tono delicado y aéreo. Tenía además este jardín, en el lado que se unía
+con la huerta, un bosquecillo de lilas y saúcos. En los meses de Abril y
+Mayo, estos arbustos florecían y mezclaban sus tirsos perfumados, sus
 corolas blancas y sus racimillos azules.
 
-En la casa solar, sobre el gran balcon del centro, campeaba el escudo de
-los fundadores tallado en arenisca roja; se veian esculpidos en el dos
+En la casa solar, sobre el gran balcón del centro, campeaba el escudo de
+los fundadores tallado en arenisca roja; se veían esculpidos en él dos
 lobos rampantes con unas manos cortadas en la boca y un roble en el
-fondo. En el lenguaje heraldico, el lobo indica encarnizamiento con los
-enemigos; el roble, venerable antigueedad.
+fondo. En el lenguaje heráldico, el lobo indica encarnizamiento con los
+enemigos; el roble, venerable antigüedad.
 
-A juzgar por el blason de los Ohandos, estos eran de una familia
-antigua, feroz con los enemigos. Si habia que dar credito a algunas
-viejas historias, el escudo decia unicamente la verdad.
+A juzgar por el blasón de los Ohandos, estos eran de una familia
+antigua, feroz con los enemigos. Si había que dar crédito a algunas
+viejas historias, el escudo decía únicamente la verdad.
 
-La parte de atras de la casa de los hidalgos daba a una hondonada; tenia
-una gran galeria de cristales y estaba hecha de ladrillo con entramado
-negro; enfrente se erguia un monte de dos mil pies, segun el mapa de la
-provincia, con algunos caserios en la parte baja, y en la alta, desnudo
-de vegetacion, y solo cubierto a trechos por encinas y carrascas.
+La parte de atrás de la casa de los hidalgos daba a una hondonada; tenía
+una gran galería de cristales y estaba hecha de ladrillo con entramado
+negro; enfrente se erguía un monte de dos mil pies, según el mapa de la
+provincia, con algunos caseríos en la parte baja, y en la alta, desnudo
+de vegetación, y sólo cubierto a trechos por encinas y carrascas.
 
-Por un lado, el jardin se continuaba con una magnifica huerta en
-declive, orientada al mediodia.
+Por un lado, el jardín se continuaba con una magnífica huerta en
+declive, orientada al mediodía.
 
-La familia de los Ohandos se componia de la madre, dona Agueda, y de
+La familia de los Ohandos se componía de la madre, doña Águeda, y de
 sus hijos Carlos y Catalina.
 
-Dona Agueda, mujer debil, fanatica y entermiza, de muy poco caracter,
+Doña Águeda, mujer débil, fanática y entermiza, de muy poco carácter,
 estaba dominada constantemente en las cuestiones de la casa por alguna
 criada antigua y en las cuestiones espirituales por el confesor.
 
-En esta epoca, el confesor era un curita joven llamado don Felix, hombre
+En esta época, el confesor era un curita joven llamado don Félix, hombre
 de apariencia tranquila y dulce que ocultaba vagas ambiciones de dominio
-bajo una capa de mansedumbre evangelica.
+bajo una capa de mansedumbre evangélica.
 
-Carlos de Ohando el hijo mayor de dona Agueda, era un muchacho cerril,
-obscuro, timido y de pasiones violentas. El odio y la envidia se
-convertian en el en verdaderas enfermedades.
+Carlos de Ohando el hijo mayor de doña Águeda, era un muchacho cerril,
+obscuro, tímido y de pasiones violentas. El odio y la envidia se
+convertían en el en verdaderas enfermedades.
 
-A Martin Zalacain le habia odiado desde pequeno cuando Martin le calento
-las costillas al salir de la escuela, el odio de Carlos se convirtio en
-furor. Cuando le veia a Martin andar a caballo y entrar en el rio, le
+A Martín Zalacaín le había odiado desde pequeño cuando Martín le calentó
+las costillas al salir de la escuela, el odio de Carlos se convirtió en
+furor. Cuando le veía a Martín andar a caballo y entrar en el río, le
 deseaba un desliz peligroso.
 
-Le odiaba freneticamente.
+Le odiaba frenéticamente.
 
 Catalina, en vez de ser obscura y cerril como su hermano Carlos, era
 pizpireta, sonriente, alegre y muy bonita. Cuando iba a la escuela con
 su carita sonrosada, un traje gris y una boina roja en la cabeza rubia,
-todas las mujeres del pueblo la acariciaban, las demas chicas querian
-siempre andar con ella y decian que, a pesar de su posicion
+todas las mujeres del pueblo la acariciaban, las demás chicas querían
+siempre andar con ella y decían que, a pesar de su posición
 privilegiada, no era nada orgullosa.
 
-Una de sus amigas era Ignacita, la hermana de Martin.
+Una de sus amigas era Ignacita, la hermana de Martín.
 
-Catalina y Martin se encontraban muchas veces y se hablaban; el la veia
+Catalina y Martín se encontraban muchas veces y se hablaban; él la veía
 desde lo alto de la muralla, en el mirador de la casa, sentadita y muy
 formal, jugando o aprendiendo a hacer media. Ella siempre estaba oyendo
-hablar de las calaveradas de Martin.
+hablar de las calaveradas de Martín.
 
---Ya esta ese diablo ahi en la muralla--decia dona Agueda--. Se va a
-matar el mejor dia. iQue demonio de chico! iQue malo es!
+--Ya está ese diablo ahí en la muralla--decía doña Águeda--. Se va a
+matar el mejor día. ¡Qué demonio de chico! ¡Qué malo es!
 
-Catalina ya sabia que diciendo ese demonio, o ese diablo, se referian a
-Martin.
+Catalina ya sabía que diciendo ese demonio, o ese diablo, se referían a
+Martín.
 
-Carlos alguna vez le habia dicho a su hermana:
+Carlos alguna vez le había dicho a su hermana:
 
---No hables con ese ladron.
+--No hables con ese ladrón.
 
-Pero a Catalina no le parecia ningun crimen que Martin cogiera frutas de
-los arboles y se las comiese, ni que corriese por la muralla. A ella se
-le antojaban extravagancias, porque desde nina tenia un instinto de
-orden y tranquilidad y le parecia mal que Martin fuese tan loco.
+Pero a Catalina no le parecía ningún crimen que Martín cogiera frutas de
+los árboles y se las comiese, ni que corriese por la muralla. A ella se
+le antojaban extravagancias, porque desde niña tenía un instinto de
+orden y tranquilidad y le parecía mal que Martín fuese tan loco.
 
-Los Ohandos eran duenos de un jardin proximo al rio, con grandes
+Los Ohandos eran dueños de un jardín próximo al río, con grandes
 magnolias y tilos y cercado por un seto de zarzas.
 
-Cuando Catalina solia ir alli con la criada a coger flores, Martin las
-seguia muchas veces y se quedaba a la entrada del seto.
+Cuando Catalina solía ir allí con la criada a coger flores, Martín las
+seguía muchas veces y se quedaba a la entrada del seto.
 
---Entra si quieres--le decia Catalina.
+--Entra si quieres--le decía Catalina.
 
---Bueno--y Martin entraba y hablaba de sus correrias, de las
-barbaridadas que iba a hacer y exponia las opiniones de Tellagorri, que
-le parecian articulos de fe.
+--Bueno--y Martín entraba y hablaba de sus correrías, de las
+barbaridadas que iba a hacer y exponía las opiniones de Tellagorri, que
+le parecían artículos de fe.
 
---iMas te valia ir a la escuela!--le decia Catalina.
+--¡Más te valía ir a la escuela!--le decía Catalina.
 
---iYo! iA la escuela!--exclamaba Martin--. Yo me ire a America o me ire
+--¡Yo! ¡A la escuela!--exclamaba Martín--. Yo me iré a América o me iré
 a la guerra.
 
-Catalina y la criada entraban por un sendero del jardin lleno de rosales
-y hacian ramos de flores. Martin las veia y contemplaba la presa, cuyas
-aguas brillaban al sol como perlas y se deshacian en espumas
-blanquisimas.
+Catalina y la criada entraban por un sendero del jardín lleno de rosales
+y hacían ramos de flores. Martín las veía y contemplaba la presa, cuyas
+aguas brillaban al sol como perlas y se deshacían en espumas
+blanquísimas.
 
---Ya andaria por ahi, si tuviera una lancha--decia Martin.
+--Ya andaría por ahí, si tuviera una lancha--decía Martín.
 
 Catalina protestaba.
 
---?No se te van a ocurrir mas que tonterias siempre? ?Por que no eres
-como los demas chicos?
+--¿No se te van a ocurrir más que tonterías siempre? ¿Por qué no eres
+como los demás chicos?
 
---Yo les pego a todos--contestaba Martin, como si esto fuera una razon.
+--Yo les pego a todos--contestaba Martín, como si esto fuera una razón.
 
-...En la primavera, el camino proximo al rio era una delicia. Las hojas
+...En la primavera, el camino próximo al río era una delicia. Las hojas
 nuevas de las hayas comenzaban a verdear, el helecho lanzaba al aire sus
 enroscados tallos, los manzanos y los perales de las huertas ostentaban
-sus copas nevadas por la flor y se oian los cantos de las malvices y de
-los ruisenores en las enramadas. El cielo se mostraba azul, de un azul
-suave, un poco palido y solo alguna nube blanca, de contornos duros,
-como si fuera de marmol, aparecia en el cielo.
+sus copas nevadas por la flor y se oían los cantos de las malvices y de
+los ruiseñores en las enramadas. El cielo se mostraba azul, de un azul
+suave, un poco pálido y sólo alguna nube blanca, de contornos duros,
+como si fuera de mármol, aparecía en el cielo.
 
-Los sabados por la tarde, durante la primavera y el verano, Catalina y
-otras chicas del pueblo, en compania de alguna buena mujer, iban al
-campo santo. Llevaba cada una un cestito de flores, hacian una escobilla
-con los hierbajos secos, limpiaban el suelo de las lapidas en donde
+Los sábados por la tarde, durante la primavera y el verano, Catalina y
+otras chicas del pueblo, en compañía de alguna buena mujer, iban al
+campo santo. Llevaba cada una un cestito de flores, hacían una escobilla
+con los hierbajos secos, limpiaban el suelo de las lápidas en donde
 estaban enterrados los muertos de su familia y adornaban las cruces con
-rosas y con azucenas. Al volver hacia casa todas juntas, veian como en
+rosas y con azucenas. Al volver hacia casa todas juntas, veían cómo en
 el cielo comenzaban a brillar las estrellas y escuchaban a los sapos,
 que lanzaban su misteriosa nota de flauta en el silencio del
-crepusculo...
+crepúsculo...
 
-Muchas veces, en el mes de Mayo, cuando pasaban Tellagorri y Martin por
-la orilla del rio, al cruzar por detras de la iglesia, llegaba hasta
-ellos las voces de las ninas, que cantaban en el coro las flores de
-Maria.
+Muchas veces, en el mes de Mayo, cuando pasaban Tellagorri y Martín por
+la orilla del río, al cruzar por detrás de la iglesia, llegaba hasta
+ellos las voces de las niñas, que cantaban en el coro las flores de
+María.
 
         Emenche gauzcatzu ama
 
-(Aqui nos tienes, madre.)
+(Aquí nos tienes, madre.)
 
-Escuchaban un momento, y Martin distinguia la voz de Catalina, la chica
+Escuchaban un momento, y Martín distinguía la voz de Catalina, la chica
 de Ohando.
 
---Es _Catalin_, la de Ohando--decia Martin.
+--Es _Cataliñ_, la de Ohando--decía Martín.
 
---Si no eres tonto tu, te casaras con ella--replicaba Tellagorri.
+--Si no eres tonto tú, te casarás con ella--replicaba Tellagorri.
 
-Y Martin se echaba a reir.
-
-
+Y Martín se echaba a reir.
 
 
-CAPITULO V
 
-DE COMO MURIO MARTIN LOPEZ DE ZALACAIN, EN EL ANO DE GRACIA
+
+CAPÍTULO V
+
+DE CÓMO MURIÓ MARTÍN LÓPEZ DE ZALACAÍN, EN EL AÑO DE GRACIA
 DE MIL CUATROCIENTOS Y DOCE.
 
 
-Uno de los vecinos que con mas frecuencia paseaba por la acera de la
-muralla era un senor viejo, llamado don Fermin Soraberri. Durante
-muchisimos anos, don Fermin desempeno el cargo de secretario del
-Ayuntamiento de Urbia, hasta que se retiro, cuando su hija se caso con
-un labrador de buena posicion.
+Uno de los vecinos que con más frecuencia paseaba por la acera de la
+muralla era un señor viejo, llamado don Fermín Soraberri. Durante
+muchísimos años, don Fermín desempeñó el cargo de secretario del
+Ayuntamiento de Urbia, hasta que se retiró, cuando su hija se casó con
+un labrador de buena posición.
 
-El senor don Fermin Soraberri era un hombre alto, grueso, pesado, con
-los parpados edematosos y la cara hinchada. Solia llevar una gorrita con
-dos cintas colgantes por detras, una esclavina azul y zapatillas. La
-especialidad de don Fermin era la de ser distraido. Se olvidaba de todo.
-Sus relaciones estaban cortadas por este patron:
+El señor don Fermín Soraberri era un hombre alto, grueso, pesado, con
+los párpados edematosos y la cara hinchada. Solía llevar una gorrita con
+dos cintas colgantes por detrás, una esclavina azul y zapatillas. La
+especialidad de don Fermín era la de ser distraído. Se olvidaba de todo.
+Sus relaciones estaban cortadas por este patrón:
 
---Una vez en Onate... (para el senor Soraberri, Onate era la Atenas
-moderna.--En Espana hay veinte o treinta Atenas modernas.) Una vez en
-Onate pude presenciar una cosa sumamente interesante. Estabamos reunidos
-el senor vicario, un senor profesor de primera ensenanza y...--y el
-senor Soraberri miraba a todas partes, como espantado, con sus grandes
-ojos turbios, y decia:--?En que iba?... Pues... se me ha olvidado la
+--Una vez en Oñate... (para el señor Soraberri, Oñate era la Atenas
+moderna.--En España hay veinte o treinta Atenas modernas.) Una vez en
+Oñate pude presenciar una cosa sumamente interesante. Estábamos reunidos
+el señor vicario, un señor profesor de primera enseñanza y...--y el
+señor Soraberri miraba a todas partes, como espantado, con sus grandes
+ojos turbios, y decía:--¿En qué iba?... Pues... se me ha olvidado la
 especie.
 
-Al senor Soraberri siempre se le olvidaba la especie. Casi todos los
-dias el exsecretario se encontraba con Tellagorri y cambiaban un saludo
-y algunas palabras acerca del tiempo y de la marcha de los arboles
-frutales. Al comenzar a verle acompanado de Martin, el senor Soraberri
-se extrano y miraba al muchacho con su aire de elefante hinchado y
+Al señor Soraberri siempre se le olvidaba la especie. Casi todos los
+días el exsecretario se encontraba con Tellagorri y cambiaban un saludo
+y algunas palabras acerca del tiempo y de la marcha de los árboles
+frutales. Al comenzar a verle acompañado de Martín, el señor Soraberri
+se extrañó y miraba al muchacho con su aire de elefante hinchado y
 reblandecido.
 
-Penso en dirigirle alguna pregunta, pero tardo varios dias, porque el
-senor Soraberri era tardo en todo. Al ultimo le dijo, con su majestuosa
+Pensó en dirigirle alguna pregunta, pero tardó varios días, porque el
+señor Soraberri era tardo en todo. Al último le dijo, con su majestuosa
 lentitud:
 
---?De quien es este nino, amigo Tellagorri?
+--¿De quién es este niño, amigo Tellagorri?
 
---?Este chico? Es un pariente mio.
+--¿Este chico? Es un pariente mío.
 
---?Algun Tellagorri?
+--¿Algún Tellagorri?
 
---No; se llama Martin Zalacain.
+--No; se llama Martín Zalacaín.
 
---iHombre! iHombre! Martin Lopez de Zalacain.
+--¡Hombre! ¡Hombre! Martín López de Zalacaín.
 
---No, Lopez no--dijo Tellagorri.
+--No, López no--dijo Tellagorri.
 
---Yo se lo que me digo. Este nino se llama realmente Martin Lopez de
-Zalacain y sera de ese caserio que esta ahi cerca del portal de Francia.
+--Yo sé lo que me digo. Este niño se llama realmente Martín López de
+Zalacaín y será de ese caserío que está ahí cerca del portal de Francia.
 
---Si, senor; de ahi es.
+--Sí, señor; de ahí es.
 
---Pues conozco su historia, y Lopez de Zalacain ha sido y Lopez de
-Zalacain sera, y si quiere usted manana vaya usted a mi casa y le leere
-a usted un papel que copie del archivo del Ayuntamiento acerca de esa
-cuestion.
+--Pues conozco su historia, y López de Zalacaín ha sido y López de
+Zalacaín será, y si quiere usted mañana vaya usted a mi casa y le leeré
+a usted un papel que copié del archivo del Ayuntamiento acerca de esa
+cuestión.
 
-Tellagorri dijo que iria y, efectivamente, al dia siguiente, pensando
-que quiza lo dicho por el exsecretario tuviese alguna importancia, se
-presento con Martin en su casa.
+Tellagorri dijo que iría y, efectivamente, al día siguiente, pensando
+que quizá lo dicho por el exsecretario tuviese alguna importancia, se
+presentó con Martín en su casa.
 
-Al senor Soraberri se le habia olvidado la especie, pero recordo pronto
-de que se trataba; encargo a su hija que trajese un vaso de vino para
-Tellagorri, entro el en su despacho y volvio poco despues con unos
-papeles viejos en la mano; se puso los anteojos, carraspeo, revolvio sus
+Al señor Soraberri se le había olvidado la especie, pero recordó pronto
+de qué se trataba; encargó a su hija que trajese un vaso de vino para
+Tellagorri, entró él en su despacho y volvió poco después con unos
+papeles viejos en la mano; se puso los anteojos, carraspeó, revolvió sus
 notas, y dijo:
 
---iAh! Aqui estan. Esto--anadio--es una copia de una narracion que hace
-el cronista Inigo Sanchez de Ezpeleta acerca de como fue vertida la
+--¡Ah! Aquí están. Esto--añadió--es una copia de una narración que hace
+el cronista Iñigo Sánchez de Ezpeleta acerca de cómo fué vertida la
 primera sangre en la guerra de los linajes, en Urbia, entre el solar de
-Ohando y el de Zalacain, y supone que estas luchas comenzaron en nuestra
+Ohando y el de Zalacaín, y supone que estas luchas comenzaron en nuestra
 villa a fines del siglo XIV o a principios del XV.
 
---?Y hace mucho tiempo de eso?--pregunto Tellagorri.
+--¿Y hace mucho tiempo de eso?--preguntó Tellagorri.
 
---Cerca de quinientos anos.
+--Cerca de quinientos años.
 
---?Y ya existian Zalacain entonces?
+--¿Y ya existían Zalacaín entonces?
 
---No solo existian, sino que eran nobles.
+--No sólo existían, sino que eran nobles.
 
---Oye, oye--dijo Tellagorri dando un codazo a Martin, que se distraia.
+--Oye, oye--dijo Tellagorri dando un codazo a Martín, que se distraía.
 
---?Quieren ustedes que lea lo que dice el cronista?
+--¿Quieren ustedes que lea lo que dice el cronista?
 
---Si, si.
+--Sí, sí.
 
---Bueno. Pues dice asi: "Titulo: De como murio Martin Lopez de Zalacain,
-en el ano de gracia de mil cuatrocientos y doce."
+--Bueno. Pues dice así: «Título: De cómo murió Martín López de Zalacaín,
+en el año de gracia de mil cuatrocientos y doce.»
 
-Leido esto, Soraberri tosio, escupio y comenzo esta relacion con gran
+Leído esto, Soraberri tosió, escupió y comenzó esta relación con gran
 solemnidad:
 
-"Enemistad antigua senalada avya entre el solar d'Ohando, que es del
-reino de Navarra, e el de Zalacain, que es en tierra de la Borte. E
-dicese que la causa della foe sobre envidia e a cual valia mas, e
-ficieron muchos malheficios e los de Zalacain quemaron vivo al senyor de
-Sant Pedro en una pelea que ovyeron en el llano del Somo e porque no
-dexo fijo el dicho senyor de Sant Pedro casaron una su fija con Martin
-Lopez de Zalacain, home muy andariego.
+«Enemistad antigua señalada avya entre el solar d'Ohando, que es del
+reino de Navarra, é el de Zalacaín, que es en tierra de la Borte. E
+dícese que la causa della foe sobre envidia é a cual valía mas, é
+ficieron muchos malheficios é los de Zalacaín quemaron vivo al senyor de
+Sant Pedro en una pelea que ovyeron en el llano del Somo é porque no
+dexo fijo el dicho senyor de Sant Pedro casaron una su fija con Martín
+López de Zalacaín, home muy andariego.
 
-E dicho Martin Lopez seyendo venido a la billa d'Urbia foe desafiado por
+E dicho Martín López seyendo venido a la billa d'Urbia foe desafiado por
 Mosen de Sant Pedro, del solar d'Ohando, que era sobrino del otro senyor
-de Sant Pedro e que habia fecho muchos malheficios, acechanzas e rrobos.
+de Sant Pedro é que había fecho muchos malheficios, acechanzas é rrobos.
 
-E Martin Lopez contestole a su desafiamiento: Como vos sabedes yo so
-contado aqui por el mas esforzado ome y ardite en el fecho de las armas
-en toda esta tierra y paresce que los d'Ohando a vos han traido por la
+E Martín López contestole a su desafiamiento: Como vos sabedes yo so
+contado aquí por el mas esforzado ome y ardite en el fecho de las armas
+en toda esta tierra y paresce que los d'Ohando a vos han traído por la
 mejor lanza de Navarra por vengar la muertte de mi suegro que foe en la
-pelea peleada con lealtad en el Somo e como el cuibdaba matar a mi, yo a
+pelea peleada con lealtad en el Somo é como el cuibdaba matar a mi, yo a
 el.
 
-E por ende si a vos pluguiese que nos probemos vos e yo, uno para otro,
-fasta que uno de nos o ambos por ventura muramos, a mi plasera mucho e
-aqui presto.
+E por ende si a vos pluguiese que nos probemos vos é yo, uno para otro,
+fasta que uno de nos o ambos por ventura muramos, a mi plasera mucho é
+aquí presto.
 
-E respondiole Mosen de Sant Pedro que le plasia e se citaron en el prado
-de Sant Ana. En esta sazon venya dicho Martin Lopez encima de su cavallo
-como esforzado cavallero e antes de pelear con Mosen de Sant Pedro foe
-ferido de una saeta que le entro por un ojo e cayo muertto del cavallo
-en medio del prado. E lo desjarretaron. E preparo la asechanza e armo la
-ballestta e la disparo Velche de Micolalde, deudo e amigo de Mosen de
-Sant Pedro d'Ohando. E los omes de Martin Lopez como lo veyeron muertto
-e eran pocos enfrente de los de Ohando, ovyeron muy grant miedo e
+E respondiole Mosen de Sant Pedro que le plasia é se citaron en el prado
+de Sant Ana. En esta sazon venya dicho Martín López encima de su cavallo
+como esforzado cavallero é antes de pelear con Mosen de Sant Pedro foe
+ferido de una saeta que le entró por un ojo é cayo muertto del cavallo
+en medio del prado. E lo desjarretaron. E preparo la asechanza é armo la
+ballestta é la disparo Velche de Micolalde, deudo é amigo de Mosen de
+Sant Pedro d'Ohando. E los omes de Martín López como lo veyeron muertto
+é eran pocos enfrente de los de Ohando, ovyeron muy grant miedo é
 comenzaron todos a fugir.
 
-E cuando lo supo la muger de Martin Lopez fue la triste al prado de Sant
-Ana, e cuando vido el cuerpo de su marido, sangriento y mutilado, se
-afinojo, prisole en sus brazos e comenzo a llorar, maldiciendo la guerra
-e su mala fortuna. E esto pataba en el ano de Nuestro Senyor de mil
-cuatrociensos y doce."
+E cuando lo supo la muger de Martín López fué la triste al prado de Sant
+Ana, é cuando vido el cuerpo de su marido, sangriento y mutilado, se
+afinojó, prísole en sus brazos é comenzó a llorar, maldiciendo la guerra
+é su mala fortuna. E esto pataba en el año de Nuestro Senyor de mil
+cuatrociensos y doce.»
 
-Cuando concluyo el senor Soraberri, miro a traves de sus anteojos a sus
-dos oyentes. Martin no se habia enterado de nada; Tellagorri dijo:
+Cuando concluyó el señor Soraberri, miro a través de sus anteojos a sus
+dos oyentes. Martín no se había enterado de nada; Tellagorri dijo:
 
---Si, esos Ohandos es gente _palsa_. Mucho ir a la iglesia, pero luego
-matan a traicion.
+--Sí, esos Ohandos es gente _palsa_. Mucho ir a la iglesia, pero luego
+matan a traición.
 
-Soraberri recomendo eficazmente a su amigo Tellagorri que no hiciera
-nunca juicios aventurados y temerarios, y con este motivo comenzo a
-contar una historia, precisamente ocurrida en Onate, pero al ir a
-especificar los que habian intervenido en su historia, se le olvido la
-especie, y lo sintio, verdaderamente lo sintio, porque, segun dijo,
-tenia la seguridad de que el hecho era sumamente interesante y, ademas,
-muy digno de mencion.
-
-
+Soraberri recomendó eficazmente a su amigo Tellagorri que no hiciera
+nunca juicios aventurados y temerarios, y con este motivo comenzó a
+contar una historia, precisamente ocurrida en Oñate, pero al ir a
+especificar los que habían intervenido en su historia, se le olvidó la
+especie, y lo sintió, verdaderamente lo sintió, porque, según dijo,
+tenía la seguridad de que el hecho era sumamente interesante y, además,
+muy digno de mención.
 
 
-CAPITULO VI
-
-DE COMO LLEGARON UNOS TITIRITEROS Y DE LO QUE SUCEDIO DESPUES
 
 
-Un dia de Mayo, al anochecer, se presentaron en el camino real tres
+CAPÍTULO VI
+
+DE CÓMO LLEGARON UNOS TITIRITEROS Y DE LO QUE SUCEDIÓ DESPUÉS
+
+
+Un día de Mayo, al anochecer, se presentaron en el camino real tres
 carros, tirados por caballos flacos, llenos de mataduras y de
 esparavanes. Cruzaron la parte nueva del pueblo y se detuvieron en lo
 alto del prado de Santa Ana.
 
-No podia Tellagorri, gaceta de la taberna de Arcale, quedar sin saber en
-seguida de que se trataba; asi que se presento al momento en el lugar,
-seguido de _Marques_.
+No podía Tellagorri, gaceta de la taberna de Arcale, quedar sin saber en
+seguida de qué se trataba; así que se presentó al momento en el lugar,
+seguido de _Marqués_.
 
-Trabo inmediatamente conversacion con el jefe de la caravana, y despues
-de varias preguntas y respuestas y de decir el hombre que era frances y
-domador de fieras, Tellagorri se lo llevo a la taberna de Arcale.
+Trabó inmediatamente conversación con el jefe de la caravana, y después
+de varias preguntas y respuestas y de decir el hombre que era francés y
+domador de fieras, Tellagorri se lo llevó a la taberna de Arcale.
 
-Martin se entero tambien de la llegada de los domadores con sus fieras
-enjauladas, y a la manana siguiente, al levantarse, lo primero que hizo
-fue dirigirse al prado de Santa Ana.
+Martín se enteró también de la llegada de los domadores con sus fieras
+enjauladas, y a la mañana siguiente, al levantarse, lo primero que hizo
+fué dirigirse al prado de Santa Ana.
 
-Comenzaba a salir el sol cuando llego al campamento del domador.
+Comenzaba a salir el sol cuando llegó al campamento del domador.
 
 Uno de los carros era la casa de los saltimbanquis. Acababan de salir de
-dentro el domador, su mujer, un viejo, un chico y una chica. Solo una
-nina de pocos meses quedo en la carreta-choza jugando con un perro.
+dentro el domador, su mujer, un viejo, un chico y una chica. Sólo una
+niña de pocos meses quedó en la carreta-choza jugando con un perro.
 
-El domador no ofrecia ese aire, entre petulante y grotesco, tan comun a
-los acrobatas de barracas y gentes de feria; era sombrio, joven, con
+El domador no ofrecía ese aire, entre petulante y grotesco, tan común a
+los acróbatas de barracas y gentes de feria; era sombrío, joven, con
 aspecto de gitano, el pelo negro y rizoso, los ojos verdes, el bigote
-alargado en las puntas por una especie de patillas pequenas y la
-expresion de maldad siniestra y repulsiva.
+alargado en las puntas por una especie de patillas pequeñas y la
+expresión de maldad siniestra y repulsiva.
 
-El viejo, la mujer y los chicos tenian solo caracter de pobres, eran de
+El viejo, la mujer y los chicos tenían sólo carácter de pobres, eran de
 esos tipos y figuras borrosas que el troquel de la miseria produce a
 millares.
 
-El hombre, ayudado por el viejo y por el chico, trazo con una cuerda un
-circulo en la tierra y en el centro planto un palo grande, de cuya punta
-partian varias cuerdas que se ataban en estacas clavadas fuertemente en
+El hombre, ayudado por el viejo y por el chico, trazó con una cuerda un
+círculo en la tierra y en el centro plantó un palo grande, de cuya punta
+partían varias cuerdas que se ataban en estacas clavadas fuertemente en
 el suelo.
 
-El domador busco a Tellagorri para que le proporcionara una escalera; le
-indico este que habia una en la taberna de Arcale, la sacaron de alli y
-con ella sujetaron las lonas, hasta que formaron una tienda de campana
-de forma conica.
+El domador buscó a Tellagorri para que le proporcionara una escalera; le
+indicó éste que había una en la taberna de Arcale, la sacaron de allí y
+con ella sujetaron las lonas, hasta que formaron una tienda de campaña
+de forma cónica.
 
 Los dos carros con jaulas en donde iban las fieras los colocaron
-dejando entre ellos un espacio que servia de puerta al circo, y encima y
+dejando entre ellos un espacio que servía de puerta al circo, y encima y
 a los lados pusieron los saltimbanquis tres carteles pintarrajeados. Uno
-representaba varios perros lanzandose sobre un oso, el otro una lucha
-entre un leon y un bufalo y el tercero unos indios atacando con lanzas a
-un tigre que les esperaba en la rama de un arbol como si fuera un
+representaba varios perros lanzándose sobre un oso, el otro una lucha
+entre un león y un búfalo y el tercero unos indios atacando con lanzas a
+un tigre que les esperaba en la rama de un árbol como si fuera un
 jilguero.
 
-Dieron los hombres la ultima mano al circo, y el domingo, en el momento
-en que la gente salia de visperas, se presento el domador seguido del
+Dieron los hombres la última mano al circo, y el domingo, en el momento
+en que la gente salía de vísperas, se presentó el domador seguido del
 viejo en la plaza de Urbia, delante de la iglesia. Ante el pueblo
-congregado, el domador comenzo a soplar en un cuerno de caza y su
-ayudante redoblo en el tambor.
+congregado, el domador comenzó a soplar en un cuerno de caza y su
+ayudante redobló en el tambor.
 
 Recorrieron los dos hombres las calles del barrio viejo y luego salieron
 fuera de puertas, y tomando por el puente, seguidos de una turba de
@@ -1049,892 +901,892 @@ barraca y se detuvieron ante ella.
 
 A la entrada la mujer tocaba el bombo con la mano derecha y los
 platillos con la izquierda, y una chica desmelenada agitaba una
-campanilla. Unieronse a estos sonidos discordantes las notas agudisimas
+campanilla. Uniéronse a estos sonidos discordantes las notas agudísimas
 del cuerno de caza y el redoble del tambor, produciendo entre todo una
-algarabia insoportable.
+algarabía insoportable.
 
-Este ruido ceso a una senal imperiosa del domador, que con su
-instrumento de viento en el brazo izquierdo se acerco a una escalera de
-mano proxima a la entrada, subio dos o tres peldanos, tomo una varita y
-senalando las monstruosas figuras pintarrajeadas en los lienzos, dijo
-con voz enfatica:
+Este ruido cesó a una señal imperiosa del domador, que con su
+instrumento de viento en el brazo izquierdo se acercó a una escalera de
+mano próxima a la entrada, subió dos o tres peldaños, tomó una varita y
+señalando las monstruosas figuras pintarrajeadas en los lienzos, dijo
+con voz enfática:
 
---Aqui veran ustedes los osos, los lobos, el leon y otras terribles
-fieras. Veran ustedes la lucha del oso de los Pirineos con los perros
-que saltan sobre el y acaban por sujetarle. Este es el leon del desierto
-cuyos rugidos espantan al mas bravo de los cazadores. Solo su voz pone
-espanto en el corazon mas valiente... iOid!
+--Aquí verán ustedes los osos, los lobos, el león y otras terribles
+fieras. Verán ustedes la lucha del oso de los Pirineos con los perros
+que saltan sobre él y acaban por sujetarle. Este es el león del desierto
+cuyos rugidos espantan al más bravo de los cazadores. Sólo su voz pone
+espanto en el corazón más valiente... ¡Oid!
 
 El domador se detuvo un momento y se oyeron en el interior de la barraca
-terribles rugidos, y como contestandolos, el ladrar feroz de una docena
+terribles rugidos, y como contestándolos, el ladrar feroz de una docena
 de perros.
 
-El publico quedo aterrorizado.
+El público quedó aterrorizado.
 
 --En el desierto...
 
 El domador iba a seguir, pero viendo que el efecto de curiosidad en el
-publico estaba conseguido y que la multitud pretendia pasar sin tardanza
-al interior del circo, grito:
+público estaba conseguido y que la multitud pretendía pasar sin tardanza
+al interior del circo, gritó:
 
---La entrada no cuesta mas que un real. iAdelante, senores! iAdelante!
+--La entrada no cuesta más que un real. ¡Adelante, señores! ¡Adelante!
 
-Y volvio a atacar con el cuerno de caza un aire marcial, mientras el
+Y volvió a atacar con el cuerno de caza un aire marcial, mientras el
 viejo ayudante redoblaba en el tambor.
 
-La mujer abrio la lona que cerraba la puerta y se puso a recoger los
+La mujer abrió la lona que cerraba la puerta y se puso a recoger los
 cuartos de los que iban pasando.
 
-Martin presencio todas estas maniobras con una curiosidad creciente,
-hubiera dado cualquier cosa por entrar, pero no tenia dinero.
+Martín presenció todas estas maniobras con una curiosidad creciente,
+hubiera dado cualquier cosa por entrar, pero no tenía dinero.
 
-Busco una rendija entre las lonas para ver algo, pero no la pudo
-encontrar; se tendio en el suelo y estaba asi con la cara junto a la
-tierra cuando se le acerco la chica haraposa del domador que tocaba la
+Buscó una rendija entre las lonas para ver algo, pero no la pudo
+encontrar; se tendió en el suelo y estaba así con la cara junto a la
+tierra cuando se le acercó la chica haraposa del domador que tocaba la
 campanilla a la puerta.
 
---Eh, tu ?que haces ahi?
+--Eh, tú ¿qué haces ahí?
 
---Mirar--dijo Martin.
+--Mirar--dijo Martín.
 
 --No se puede.
 
---?Y por que no se puede?
+--¿Y por qué no se puede?
 
---Porque no. Si no quedate ahi, ya veras si te pesca mi amo.
+--Porque no. Si no quédate ahí, ya verás si te pesca mi amo.
 
---?Y quien es tu amo?
+--¿Y quién es tu amo?
 
---?Quien ha de ser? El domador.
+--¿Quién ha de ser? El domador.
 
---iAh! ?Pero tu eres de aqui?
+--¡Ah! ¿Pero tú eres de aquí?
 
---Si
+--Sí
 
---?Y no sabes pasar?
+--¿Y no sabes pasar?
 
---Si no dices a nadie nada ya te pasare.
+--Si no dices a nadie nada ya te pasaré.
 
---Yo tambien te traere cerezas.
+--Yo también te traeré cerezas.
 
---?De donde?
+--¿De dónde?
 
---Yo se donde las hay.
+--Yo sé donde las hay.
 
---?Como te llamas?
+--¿Cómo te llamas?
 
---Martin, ?y tu?
+--Martín, ¿y tú?
 
 --Yo, Linda.
 
---Asi se llamaba la perra del medico--dijo poco galantemente Martin.
+--Así se llamaba la perra del médico--dijo poco galantemente Martín.
 
-Linda no protesto de la comparacion; fue detras de la entrada del circo,
-tiro de una lona, abrio un resquicio, y dijo a Martin:
+Linda no protestó de la comparación; fué detrás de la entrada del circo,
+tiró de una lona, abrió un resquicio, y dijo a Martín:
 
 --Anda, pasa.
 
-Se deslizo Martin y luego ella.
+Se deslizó Martín y luego ella.
 
---?Cuando me daras las cerezas?--pregunto la chica.
+--¿Cuando me darás las cerezas?--preguntó la chica.
 
---Cuando esto se concluya ire a buscarlas.
+--Cuando esto se concluya iré a buscarlas.
 
-Martin se coloco entre el publico. El espectaculo que ofrecia el domador
+Martín se colocó entre el público. El espectáculo que ofrecía el domador
 de fieras era realmente repulsivo.
 
 Alrededor del circo, atados a los pies de un banco hecho con tablas,
-habia diez o doce perros flacos y sarnosos. El domador hizo restallar el
-latigo, y todos los perros a una comenzaron a ladrar y a aullar
+había diez o doce perros flacos y sarnosos. El domador hizo restallar el
+látigo, y todos los perros a una comenzaron a ladrar y a aullar
 furiosamente. Luego el hombre vino con un oso atado a una cadena, con la
 cabeza protegida por una cubierta de cuero.
 
-El domador obligo a ponerse de pie varias veces al oso, y a bailar con
-el palo cruzado sobre los hombros y a tocar la pandereta. Luego solto un
-perro que se lanzo sobre el oso, y despues de un momento de lucha se le
-colgo de la piel. Tras de este solto otro perro y luego otro y otro, con
-lo cual el publico se comenzo a cansar.
+El domador obligó a ponerse de pie varias veces al oso, y a bailar con
+el palo cruzado sobre los hombros y a tocar la pandereta. Luego soltó un
+perro que se lanzó sobre el oso, y después de un momento de lucha se le
+colgó de la piel. Tras de éste soltó otro perro y luego otro y otro, con
+lo cual el público se comenzó a cansar.
 
-A Martin no le parecio bien, porque el pobre oso estaba sin defensa
+A Martín no le pareció bien, porque el pobre oso estaba sin defensa
 alguna. Los perros se echaban con tal furia sobre el oso que para
-obligarles a soltar la presa el domador o el viejo tenian que morderles
-la cola. A Martin no le agrado el espectaculo y dijo en voz alta, y
-algunos fueron de su opinion, que el oso atado no podia defenderse.
+obligarles a soltar la presa el domador o el viejo tenían que morderles
+la cola. A Martín no le agradó el espectáculo y dijo en voz alta, y
+algunos fueron de su opinión, que el oso atado no podía defenderse.
 
-Despues todavia martirizaron mas a la pobre bestia. El domador era un
+Después todavía martirizaron más a la pobre bestia. El domador era un
 verdadero canalla y pegaba al animal en los dedos de las patas, y el oso
-babeaba y gemia con unos gemidos ahogados.
+babeaba y gemía con unos gemidos ahogados.
 
---iBasta! iBasta!--grito un indiano que habia estado en California.
+--¡Basta! ¡Basta!--gritó un indiano que había estado en California.
 
---Porque tiene el oso atado hace eso--dijo Martin--, sino no lo haria.
+--Porque tiene el oso atado hace eso--dijo Martín--, sino no lo haría.
 
-El domador se fijo en el muchacho y le lanzo una mirada de odio.
+El domador se fijó en el muchacho y le lanzó una mirada de odio.
 
-Lo que siguio fue mas agradable, la mujer del domador, vestida con un
-traje de lentejuelas, entro en la jaula del leon, jugo con el, le hizo
-saltar y ponerse de pie, y despues Linda dio dos o tres volatines y vino
-con un monillo vestido de rojo a quien obligo a hacer ejercicios
-acrobaticos.
+Lo que siguió fué más agradable, la mujer del domador, vestida con un
+traje de lentejuelas, entró en la jaula del león, jugó con él, le hizo
+saltar y ponerse de pie, y después Linda dió dos o tres volatines y vino
+con un monillo vestido de rojo a quien obligó a hacer ejercicios
+acrobáticos.
 
-El espectaculo concluia. La gente se disponia a salir. Martin vio que el
-domador le miraba. Sin duda se habia fijado en el. Martin se adelanto a
+El espectáculo concluía. La gente se disponía a salir. Martín vió que el
+domador le miraba. Sin duda se había fijado en él. Martín se adelantó a
 salir, y el domador le dijo:
 
---Espera, tu no has pagado. Ahora nos veremos. Te voy a echar los perros
+--Espera, tú no has pagado. Ahora nos veremos. Te voy a echar los perros
 como al oso.
 
-Martin retrocedio espantado; el domador le contemplaba con una sonrisa
-feroz. Martin recordo el sitio por donde entro y empujando violentamente
-la lona la abrio y salio fuera de la barraca. El domador quedo
-chasqueado. Dio despues Martin la vuelta al prado de Santa Ana, hasta
+Martín retrocedió espantado; el domador le contemplaba con una sonrisa
+feroz. Martín recordó el sitio por donde entró y empujando violentamente
+la lona la abrió y salió fuera de la barraca. El domador quedó
+chasqueado. Dió después Martín la vuelta al prado de Santa Ana, hasta
 detenerse prudentemente a quince o veinte metros de la entrada del
 circo.
 
 Al ver a Linda le dijo:
 
---?Quieres venir?
+--¿Quieres venir?
 
 --No puedo.
 
---Pues ahora te traere las cerezas.
+--Pues ahora te traeré las cerezas.
 
-En el momento que hablaban aparecio corriendo el domador, penso sin duda
-en abalanzarse sobre Martin, pero comprendiendo que no le alcanzaria se
-vengo en la nina y le dio una bofetada brutal. La chiquilla cayo al
-suelo. Unas mujeres se interpusieron e impidieron al domador siguiera
+En el momento que hablaban apareció corriendo el domador, pensó sin duda
+en abalanzarse sobre Martín, pero comprendiendo que no le alcanzaría se
+vengó en la niña y le dió una bofetada brutal. La chiquilla cayó al
+suelo. Unas mujeres se interpusieron é impidieron al domador siguiera
 pegando a la pobre Linda.
 
---To lo has metido dentro, ?verdad?--grito el domador en frances.
+--Tó lo has metido dentro, ¿verdad?--gritó el domador en francés.
 
---No; ha sido el que ha entrado.
+--No; ha sido él que ha entrado.
 
---Mentira. Has sido tu. Confiesa o te deslomo.
+--Mentira. Has sido tú. Confiesa o te deslomo.
 
---Si, he sido yo.
+--Sí, he sido yo.
 
---?Y por que?
+--¿Y por qué?
 
---Porque me ha dicho que me traeria cerezas.
+--Porque me ha dicho que me traería cerezas.
 
---Ah, bueno--y el domador se tranquilizo--, que las traiga, pero si te
-las comes te hartare de palos. Ya lo sabes.
+--Ah, bueno--y el domador se tranquilizó--, que las traiga, pero si te
+las comes te hartaré de palos. Ya lo sabes.
 
-Martin, al poco rato, volvio con la boina llena de cerezas. La Linda
-las puso en su delantal y estaba con ellas cuando se presento el domador
-de nuevo. Martin se aparto dando un salto hacia atras.
+Martín, al poco rato, volvió con la boina llena de cerezas. La Linda
+las puso en su delantal y estaba con ellas cuando se presentó el domador
+de nuevo. Martín se apartó dando un salto hacia atrás.
 
---No, no te escapes--dijo el domador con una sonrisa que queria ser
+--No, no te escapes--dijo el domador con una sonrisa que quería ser
 amable.
 
-Martin se quedo. Luego, el hombre le pregunto quien era, y el al saber
+Martín se quedó. Luego, el hombre le preguntó quién era, y él al saber
 su parentesco con Tellagorri, le dijo:
 
---Ven cuando quieras, te dejare pasar.
+--Ven cuando quieras, te dejaré pasar.
 
-Durante los demas dias de la semana, la barraca del domador estuvo
-vacia. El domingo, los saltimbanquis hicieron dar un bando por el
-pregonero diciendo que representarian un numero extraordinario e
-interesantisimo. Martin se lo dijo a su madre y a su hermana. La chica
+Durante los demás días de la semana, la barraca del domador estuvo
+vacía. El domingo, los saltimbanquis hicieron dar un bando por el
+pregonero diciendo que representarían un número extraordinario é
+interesantísimo. Martín se lo dijo a su madre y a su hermana. La chica
 se asustaba al escuchar el relato de las fieras y no quiso ir.
 
-Acudieron solo la madre y el hijo. El numero sensacional era la lucha de
-la Linda con el oso. La chiquilla se presento desnuda de medio cuerpo
-arriba y con unos pantalones de percal rojo. Linda se abrazo al oso y
-hacia que luchaba con el, pero el domador tiraba a cada paso de una
+Acudieron solo la madre y el hijo. El número sensacional era la lucha de
+la Linda con el oso. La chiquilla se presentó desnuda de medio cuerpo
+arriba y con unos pantalones de percal rojo. Linda se abrazó al oso y
+hacía que luchaba con él, pero el domador tiraba a cada paso de una
 cuerda atada a la nariz del plantigrado.
 
-A pesar de que la gente pensaba que no habia peligro para la nina,
-producia una horrible impresion ver las grandes y peludas garras del
-animal sobre las espaldas debiles de la nina.
+A pesar de que la gente pensaba que no había peligro para la niña,
+producía una horrible impresión ver las grandes y peludas garras del
+animal sobre las espaldas débiles de la niña.
 
-Despues del numero sensacional que no entusiasmo al publico, entro la
-mujer en la jaula del leon.
+Después del número sensacional que no entusiasmó al público, entró la
+mujer en la jaula del león.
 
-La fiera debia estar enferma, porque la domadora no hallo medio de que
+La fiera debía estar enferma, porque la domadora no halló medio de que
 hiciese los ejercicios de costumbre.
 
-Viendo semejante fracaso el domador, poseido de una rabiosa furia, entro
-en la jaula, mando salir a la mujer y empezo a latigazos con el leon.
-Este se levanto ensenando los dientes, y lanzando un rugido se echo
-sobre domador; el viejo ayudante metio, por entre los barrotes de la
+Viendo semejante fracaso el domador, poseído de una rabiosa furia, entró
+en la jaula, mandó salir a la mujer y empezó a latigazos con el león.
+Este se levantó enseñando los dientes, y lanzando un rugido se echó
+sobre domador; el viejo ayudante metió, por entre los barrotes de la
 jaula, una palanca de hierro para aislar el hombre de la fiera, pero con
-tan poca fortuna, que la palanca se engancho en las ropas del domador y
-en vez de protegerle le inmovilizo y le dejo entregado a la fiera.
+tan poca fortuna, que la palanca se enganchó en las ropas del domador y
+en vez de protegerle le inmovilizó y le dejó entregado a la fiera.
 
-El publico vio al domador echando sangre, y se levanto despavorido y se
+El público vió al domador echando sangre, y se levantó despavorido y se
 dispuso a huir.
 
-No habia peligro para los espectadores, pero un panico absurdo hizo que
+No había peligro para los espectadores, pero un pánico absurdo hizo que
 todos se lanzasen atropelladamente a la salida; alguien, que luego no se
-supo quien fue, disparo un tiro contra el leon, y en aquel momento
+supo quién fué, disparó un tiro contra el león, y en aquel momento
 insensato de fuga resultaron magullados y contusos varias mujeres y
-ninos.
+niños.
 
-El domador quedo tambien gravemente herido.
+El domador quedó también gravemente herido.
 
 Dos mujeres fueron recogidas con contusiones de importancia, una de
-ellas, una vieja de un caserio lejano que hacia diez anos que no habia
-estado en Urbia, la otra, la madre de Martin, que ademas de las
+ellas, una vieja de un caserío lejano que hacía diez años que no había
+estado en Urbia, la otra, la madre de Martín, que además de las
 magulladuras y golpes, presentaba una herida en el cuello, ocasionada,
-segun dijo el medico, por un trozo del barrote de la jaula, desprendido
+según dijo el médico, por un trozo del barrote de la jaula, desprendido
 al choque de la bala disparada por una persona desconocida.
 
-Se traslado a la madre de Martin a su casa, y fuera que las contusiones
+Se trasladó a la madre de Martín a su casa, y fuera que las contusiones
 y la herida tuviesen gravedad, fuera como dijeron algunos que no
-estuviese bien atendida, el caso fue que la pobre mujer murio a la
-semana del accidente de la barraca, dejando huerfanos a Martin y a la
+estuviese bien atendida, el caso fué que la pobre mujer murió a la
+semana del accidente de la barraca, dejando huérfanos a Martín y a la
 Ignacia.
 
 
 
 
-CAPITULO VII
+CAPÍTULO VII
 
-COMO TELLAGORRI SUPO PROTEGER A LOS SUYOS
+CÓMO TELLAGORRI SUPO PROTEGER A LOS SUYOS
 
 
-A la muerte de la madre de Martin, Tellagorri, con gran asombro del
-pueblo, recogio a sus sobrinos y se los llevo a su casa. La senora de
-Ohando dijo que era una lastima que aquellos ninos fuesen a vivir con un
-hombre desalmado, sin religion y sin costumbres, capaz de decir que
-saludaba con mas respeto a un perro de aguas que al senor parroco.
+A la muerte de la madre de Martín, Tellagorri, con gran asombro del
+pueblo, recogió a sus sobrinos y se los llevó a su casa. La señora de
+Ohando dijo que era una lástima que aquellos niños fuesen a vivir con un
+hombre desalmado, sin religión y sin costumbres, capaz de decir que
+saludaba con más respeto a un perro de aguas que al señor párroco.
 
-La buena senora se lamento, pero no hizo nada, y Tellagorri se encargo
-de cuidar y alimentar a los huerfanos.
+La buena señora se lamentó, pero no hizo nada, y Tellagorri se encargó
+de cuidar y alimentar a los huérfanos.
 
-La Ignacia entro en la posada de Arcale de ninera y hasta los catorce
-anos trabajo alli.
+La Ignacia entró en la posada de Arcale de niñera y hasta los catorce
+años trabajó allí.
 
-Martin frecuento la escuela durante algunos meses, pero le tuvo que
-sacar Tellagorri antes del ano porque se pegaba con todos los chicos y
+Martín frecuentó la escuela durante algunos meses, pero le tuvo que
+sacar Tellagorri antes del año porque se pegaba con todos los chicos y
 hasta quiso zurrar al pasante.
 
-Arcale, que sabia que el muchacho era listo y de genio vivo, le utilizo
-para recadista en el coche de Francia, y cuando aprendio a guiar, de
-recadista le ascendieron a cochero interino y al cabo de un ano le
+Arcale, que sabía que el muchacho era listo y de genio vivo, le utilizó
+para recadista en el coche de Francia, y cuando aprendió a guiar, de
+recadista le ascendieron a cochero interino y al cabo de un año le
 pasaron a cochero en propiedad.
 
-Martin, a los diez y seis anos, ganaba su vida y estaba en sus glorias.
-Se jactaba de ser un poco barbaro y vestia un tanto majo, con la
+Martín, a los diez y seis años, ganaba su vida y estaba en sus glorias.
+Se jactaba de ser un poco bárbaro y vestía un tanto majo, con la
 elegancia garbosa de los antiguos postillones. Llevaba chalecos de
 color, y en la cadena del reloj colgantes de plata. Le gustaba lucirse
-los domingos en el pueblo; pero no le gustaba menos los dias de labor
-marchar en el pescante por la carretera restallando el latigo, entrar en
+los domingos en el pueblo; pero no le gustaba menos los días de labor
+marchar en el pescante por la carretera restallando el látigo, entrar en
 las ventas del camino, contar y oir historias y llevar encargos.
 
-La senora de Ohando y Catalina se los hacian con mucha frecuencia, y le
+La señora de Ohando y Catalina se los hacían con mucha frecuencia, y le
 recomendaban que les trajese de Francia telas, puntillas y algunas veces
 alhajas.
 
---?Que tal, Martin?--le decia Catalina en vascuence.
+--¿Qué tal, Martín?--le decía Catalina en vascuence.
 
---Bien--contestaba el rudamente, haciendose mas el hombre--. ?Y en
+--Bien--contestaba él rudamente, haciéndose más el hombre--. ¿Y en
 vuestra casa?
 
 --Todos buenos. Cuando vayas a Francia, tienes que comprarme una
-puntilla como la otra. ?Sabes?
+puntilla como la otra. ¿Sabes?
 
---Si, si, ya te comprare.
+--Sí, sí, ya te compraré.
 
---?Ya sabes frances?
+--¿Ya sabes francés?
 
 --Ahora empiezo a hablar.
 
-Martin se estaba haciendo un hombreton, alto, fuerte, decidido. Abusaba
-un poco de su fuerza y de su valor, pero nunca atacaba a los debiles. Se
-distinguia tambien como jugador de pelota y era uno de los primeros en
+Martín se estaba haciendo un hombretón, alto, fuerte, decidido. Abusaba
+un poco de su fuerza y de su valor, pero nunca atacaba a los débiles. Se
+distinguía también como jugador de pelota y era uno de los primeros en
 el trinquete.
 
-Un invierno hizo Martin una hazana, de la que se hablo en el pueblo. La
+Un invierno hizo Martín una hazaña, de la que se habló en el pueblo. La
 carretera estaba intransitable por la nieve y no pasaba el coche.
-Zalacain fue a Francia y volvio a pie, por la parte de Navarra, con un
+Zalacaín fué a Francia y volvió a pie, por la parte de Navarra, con un
 vecino de Larrau. Pasaron los dos por el bosque de Iraty y les
-acometieron unos cuantos jabalies.
+acometieron unos cuantos jabalíes.
 
 Ninguno de los hombres llevaba armas, pero a garrotazos mataron tres de
-aquellos furiosos animales, Zalacain dos y el de Larrau otro.
+aquellos furiosos animales, Zalacaín dos y el de Larrau otro.
 
-Cuando Martin volvio triunfante, muerto de fatiga y con sus dos
-jabalies, el pueblo entero le considero como un heroe.
+Cuando Martín volvió triunfante, muerto de fatiga y con sus dos
+jabalíes, el pueblo entero le consideró como un héroe.
 
-Tellagorri tambien fue muy felicitado por tener un sobrino de tanto
-valor y audacia. El viejo, muy contento, aunque haciendose el
-indiferente, decia:
+Tellagorri también fué muy felicitado por tener un sobrino de tanto
+valor y audacia. El viejo, muy contento, aunque haciéndose el
+indiferente, decía:
 
-Este sobrino mio va a dar mucho que hablar. De casta le viene al galgo.
-Porque yo no se si vosotros habreis oido hablar de Lopez de Zalacain.
-?No? Pues preguntadle a ese viejo Soraberri, ya vereis lo que os
+Este sobrino mío va a dar mucho que hablar. De casta le viene al galgo.
+Porque yo no sé si vosotros habréis oído hablar de López de Zalacaín.
+¿No? Pues preguntadle a ese viejo Soraberri, ya veréis lo que os
 cuenta...
 
---?Y que tiene que ver ese Lopez con tu sobrino?--le replicaban.
+--¿Y qué tiene que ver ese López con tu sobrino?--le replicaban.
 
---Pues que es antepasado de Martin. No comprendeis nada.
+--Pues que es antepasado de Martín. No comprendéis nada.
 
-Tellagorri pago caro el triunfo obtenido por su sobrino en la caza de
-los jabalies, porque de tanto beber se puso enfermo.
+Tellagorri pagó caro el triunfo obtenido por su sobrino en la caza de
+los jabalíes, porque de tanto beber se puso enfermo.
 
-La Ignacia y Martin, por consejo del medico, obligaron al viejo a que
+La Ignacia y Martín, por consejo del médico, obligaron al viejo a que
 suprimiese toda bebida, fuese vino o licor; pero Tellagorri, con tal
-procedimiento de abstinencia, languidecia y se iba poniendo triste.
+procedimiento de abstinencia, languidecía y se iba poniendo triste.
 
---Sin vino y sin _patharra_ soy un hombre muerto--decia Tellagorri--; y,
-viendo que el medico no se convencia de esta verdad, hizo que llamaran a
-otro mas joven.
+--Sin vino y sin _patharra_ soy un hombre muerto--decía Tellagorri--; y,
+viendo que el médico no se convencía de esta verdad, hizo que llamaran a
+otro más joven.
 
-Este le dio la razon al borracho, y no solo le recomendo que bebiera
-todos los dias un poco de aguardiente, sino que le receto una medicina
+Éste le dió la razón al borracho, y no sólo le recomendó que bebiera
+todos los días un poco de aguardiente, sino que le recetó una medicina
 hecha con ron. La Ignacia tuvo que guardar la botella del medicamento,
 para que el enfermo no se la bebiera de un trago. A medida que entraba
-el alcohol en el cuerpo de Tellagorri, el viejo se erguia y se animaba.
+el alcohol en el cuerpo de Tellagorri, el viejo se erguía y se animaba.
 
-A la semana de tratamiento se encontraba tan bien, que comenzo a
-levantarse y a ir a la posada de Arcale, pero se creyo en el caso de
-hacer locuras, a pesar de sus anos, y anduvo de noche entre la nieve y
-cogio una pleuresia.
+A la semana de tratamiento se encontraba tan bien, que comenzó a
+levantarse y a ir a la posada de Arcale, pero se creyó en el caso de
+hacer locuras, a pesar de sus años, y anduvo de noche entre la nieve y
+cogió una pleuresía.
 
---De esta no sale usted--le dijo el medico incomodado, al ver que habia
+--De esta no sale usted--le dijo el médico incomodado, al ver que había
 faltado a sus prescripciones.
 
-Tellagorri lo comprendio asi y se puso serio, hizo una confesion
-rapida, arreglo sus cosas y, llamando a Martin, le dijo en vascuence:
+Tellagorri lo comprendió así y se puso serio, hizo una confesión
+rápida, arregló sus cosas y, llamando a Martín, le dijo en vascuence:
 
---Martin, hijo mio, yo me voy. No llores. Por mi lo mismo me da. Eres
+--Martín, hijo mío, yo me voy. No llores. Por mí lo mismo me da. Eres
 fuerte y valiente y eres buen chico. No abandones a tu hermana, ten
 cuidado con ella. Por ahora, lo mejor que puedes hacer es llevarla a
-casa de Ohando. Es un poco coqueta; pero Catalina la tomara. No le
+casa de Ohando. Es un poco coqueta; pero Catalina la tomará. No le
 olvides tampoco a _Marquesch_; es viejo, pero ha cumplido.
 
---No, no le olvidare--dijo Martin sollozando.
+--No, no le olvidaré--dijo Martín sollozando.
 
---Ahora--prosiguio Tellagorri--te voy a decir una cosa y es que antes de
-poco habra guerra. Tu eres valiente, Martin, tu no tendras miedo de las
+--Ahora--prosiguió Tellagorri--te voy a decir una cosa y es que antes de
+poco habrá guerra. Tú eres valiente, Martín, tú no tendrás miedo de las
 balas. Vete a la guerra, pero no vayas de soldado. Ni con los blancos,
-ni con los negros. iAl comercio, Martin! iAl comercio! Venderas a los
-liberales y a los carlistas, haras tu pacotilla y te casaras con la
-chica de Ohando. Si teneis un chico, llamadle como yo, Miguel, o Jose
+ni con los negros. ¡Al comercio, Martín! ¡Al comercio! Venderás a los
+liberales y a los carlistas, harás tu pacotilla y te casarás con la
+chica de Ohando. Si tenéis un chico, llamadle como yo, Miguel, o José
 Miguel.
 
---Bueno--dijo Martin, sin fijarse en lo extravagante de la
-recomendacion.
+--Bueno--dijo Martín, sin fijarse en lo extravagante de la
+recomendación.
 
---Dile a Arcale--siguio diciendo el viejo--donde tengo el tabaco y las
-setas. Ahora acercate mas. Cuando yo me muera, registra mi jergon y
-encontraras en esta punta de la izquierda un calcetin con unas monedas
+--Dile a Arcale--siguió diciendo el viejo--dónde tengo el tabaco y las
+setas. Ahora acércate más. Cuando yo me muera, registra mi jergón y
+encontrarás en esta punta de la izquierda un calcetín con unas monedas
 de oro. Ya te he dicho, no quiero que las emplees en tierras, sino en
-generos de comercio.
+géneros de comercio.
 
---Asi lo hare.
+--Así lo haré.
 
---Creo que te lo he dicho todo. Ahora dame la mano. Firmes, ?eh?
+--Creo que te lo he dicho todo. Ahora dame la mano. Firmes, ¿eh?
 
 --Firmes.
 
 El pobre Tellagorri se olvido de decir _Pirmes_, como hubiera dicho
 estando sano.
 
---A esa sosa de la Ignacia--anadio poco despues el viejo--le puedes dar
+--A esa sosa de la Ignacia--añadió poco después el viejo--le puedes dar
 lo que te parezca cuando se case.
 
-A todo dijo Martin que si. Luego acompano al viejo, contestando a sus
-preguntas, algunas muy extranas, y por la madrugada dejo de vivir Miguel
-de Tellagorri, hombre de mala fama y de buen corazon.
+A todo dijo Martín que sí. Luego acompañó al viejo, contestando a sus
+preguntas, algunas muy extrañas, y por la madrugada dejó de vivir Miguel
+de Tellagorri, hombre de mala fama y de buen corazón.
 
 
 
 
-CAPITULO VIII
+CAPÍTULO VIII
 
-COMO AUMENTO EL ODIO ENTRE MARTIN ZALACAIN Y CARLOS OHANDO
+CÓMO AUMENTÓ EL ODIO ENTRE MARTÍN ZALACAÍN Y CARLOS OHANDO
 
 
-Cuando murio Tellagorri, Catalina de Ohando, ya una senorita, hablo a su
-madre para que recogiera a la Ignacia, la hermana de Martin. Era esta,
-segun se decia, un poco coqueta y estaba acostumbrada a los piropos de
+Cuando murió Tellagorri, Catalina de Ohando, ya una señorita, habló a su
+madre para que recogiera a la Ignacia, la hermana de Martín. Era ésta,
+según se decía, un poco coqueta y estaba acostumbrada a los piropos de
 la gente de casa de Arcale.
 
-La suposicion de que la muchacha, siguiendo en la taberna, pudiese
-echarse a perder, influyo en la senora de Ohando para llevarla a su casa
+La suposición de que la muchacha, siguiendo en la taberna, pudiese
+echarse a perder, influyó en la señora de Ohando para llevarla a su casa
 de doncella. Pensaba sermonearla hasta quitarla todos los malos resabios
-y dirigirla por la senda de la mas estrecha virtud.
+y dirigirla por la senda de la más estrecha virtud.
 
-Con el motivo de ver a su hermana, Martin fue varias veces a casa de
-Ohando y hablo con Catalina y dona Agueda. Catalina seguia hablandole de
-tu y dona Agueda manifestaba por el afecto y simpatia, expresados en un
+Con el motivo de ver a su hermana, Martín fué varias veces a casa de
+Ohando y habló con Catalina y doña Águeda. Catalina seguía hablándole de
+tú y doña Águeda manifestaba por él afecto y simpatía, expresados en un
 sin fin de advertencias y de consejos.
 
-El verano se presento Carlos Ohando, que venia de vacaciones del colegio
-de Onate.
+El verano se presentó Carlos Ohando, que venía de vacaciones del colegio
+de Oñate.
 
-Pronto noto Martin que, con la ausencia, el odio que le profesaba Carlos
-mas habia aumentado que disminuido. Al comprobar este sentimiento de
-hostilidad, dejo de presentarse en casa de Ohando.
+Pronto notó Martín que, con la ausencia, el odio que le profesaba Carlos
+más había aumentado que disminuído. Al comprobar este sentimiento de
+hostilidad, dejó de presentarse en casa de Ohando.
 
---No vas ahora a vernos--le dijo alguna vez que le encontro en la calle,
+--No vas ahora a vernos--le dijo alguna vez que le encontró en la calle,
 Catalina.
 
---No voy, porque tu hermano me odia--contesto claramente Martin.
+--No voy, porque tu hermano me odia--contestó claramente Martín.
 
 --No, no lo creas.
 
---iBah! Yo se lo que me digo.
+--¡Bah! Yo sé lo que me digo.
 
-El odio existia. Se manifesto primeramente en el juego de pelota.
+El odio existía. Se manifestó primeramente en el juego de pelota.
 
-Tenia Martin un rival en un chico navarro, de la Ribera del Ebro, hijo
+Tenía Martín un rival en un chico navarro, de la Ribera del Ebro, hijo
 de un carabinero.
 
 A este rival le llamaban _el Cacho_, porque era zurdo.
 
-Carlos de Ohando y algunos condiscipulos suyos, carlistas que se las
-echaban de aristocratas, comenzaron a proteger al _Cacho_ y a excitarlo
-y a lanzarlo contra Martin.
+Carlos de Ohando y algunos condiscípulos suyos, carlistas que se las
+echaban de aristócratas, comenzaron a proteger al _Cacho_ y a excitarlo
+y a lanzarlo contra Martín.
 
-_El Cacho_ tenia un juego furioso de hombre pequeno e iracundo; el juego
-de Martin, tranquilo y reposado, era del que esta seguro de si mismo.
+_El Cacho_ tenía un juego furioso de hombre pequeño é iracundo; el juego
+de Martín, tranquilo y reposado, era del que está seguro de sí mismo.
 _El Cacho_, si comenzaba a ganar, se exaltaba, llevaba el partido al
 vuelo; en cambio, desanimado, no tiraba una pelota que no fuese falta.
 
-Eran dos tipos, Zalacain y _el Cacho_, completamente distintos; el uno,
-la serenidad y la inteligencia del montanes, el otro, el furor y el brio
-del ribereno.
+Eran dos tipos, Zalacaín y _el Cacho_, completamente distintos; el uno,
+la serenidad y la inteligencia del montañés, el otro, el furor y el brío
+del ribereño.
 
-Semejante rivalidad, explotada por Ohando y los senoritos de su cuerda,
-termino en un partido que propusieron los amigos del _Cacho_. El desafio
-se concerto asi; _el Cacho_ e Isquina, un jugador viejo de Urbia, contra
-Zalacain y el companero que este quisiera tomar. El partido seria a
+Semejante rivalidad, explotada por Ohando y los señoritos de su cuerda,
+terminó en un partido que propusieron los amigos del _Cacho_. El desafío
+se concertó así; _el Cacho_ é Isquiña, un jugador viejo de Urbia, contra
+Zalacaín y el compañero que éste quisiera tomar. El partido sería a
 cesta y a diez juegos.
 
-Martin eligio como zaguero a un muchacho vasco frances que estaba de
-oficial en la panaderia de Archipi y que se llamaba Bautista Urbide.
+Martín eligió como zaguero a un muchacho vasco francés que estaba de
+oficial en la panadería de Archipi y que se llamaba Bautista Urbide.
 
-Bautista era delgado, pero fuerte, sereno y muy dueno de si mismo.
+Bautista era delgado, pero fuerte, sereno y muy dueño de sí mismo.
 
-Se aposto mucho dinero por ambas partes. Casi todo el elemento popular y
-liberal estaba por Zalacain y Urbide; los senoritos, el sacristan y la
-gente carlista de los caserios por _el Cacho_.
+Se apostó mucho dinero por ambas partes. Casi todo el elemento popular y
+liberal estaba por Zalacaín y Urbide; los señoritos, el sacristán y la
+gente carlista de los caseríos por _el Cacho_.
 
-El partido constituyo un acontecimiento en Urbia; el pueblo entero y
-mucha gente de los alrededores se dirigio al juego de pelota a
-presenciar el espectaculo.
+El partido constituyó un acontecimiento en Urbia; el pueblo entero y
+mucha gente de los alrededores se dirigió al juego de pelota a
+presenciar el espectáculo.
 
-La lucha principal iba a ser entre los dos delanteros, entre Zalacain y
-_el Cacho. El Cacho_ ponia de su parte su nerviosidad, su furia, su
-violencia en echar la pelota baja y arrinconada; Zalacain se fiaba en su
+La lucha principal iba a ser entre los dos delanteros, entre Zalacaín y
+_el Cacho. El Cacho_ ponía de su parte su nerviosidad, su furia, su
+violencia en echar la pelota baja y arrinconada; Zalacaín se fiaba en su
 serenidad, en su buena vista y en la fuerza de su brazo, que le
-permitia coger la pelota y lanzarla a lo lejos.
+permitía coger la pelota y lanzarla a lo lejos.
 
-La montana iba a pelear contra la llanura.
+La montaña iba a pelear contra la llanura.
 
-Comenzo el partido en medio de una gran expectacion; los primeros juegos
+Comenzó el partido en medio de una gran expectación; los primeros juegos
 fueron llevados a la carrera por _el Cacho_, que tiraba las pelotas como
-balas unas lineas solamente por encima de la raya, de tal modo que era
+balas unas líneas solamente por encima de la raya, de tal modo que era
 imposible recogerlas.
 
-A cada jugada maestra del navarro, los senoritos y los carlistas
-aplaudian entusiasmados; Zalacain sonreia, y Bautista le miraba con
-cierto mal disimulado panico.
+A cada jugada maestra del navarro, los señoritos y los carlistas
+aplaudían entusiasmados; Zalacaín sonreía, y Bautista le miraba con
+cierto mal disimulado pánico.
 
-Iban cuatro juegos por nada, y ya parecia el triunfo del navarro casi
-seguro cuando la suerte cambio y comenzaron a ganar Zalacain y su
-companero.
+Iban cuatro juegos por nada, y ya parecía el triunfo del navarro casi
+seguro cuando la suerte cambió y comenzaron a ganar Zalacaín y su
+compañero.
 
-Al principio, _el Cacho_ se defendia bien y remataba el juego con golpes
-furiosos, pero luego, como si hubiese perdido el tono, comenzo a hacer
-faltas con una frecuencia lamentable y el partido se igualo.
+Al principio, _el Cacho_ se defendía bien y remataba el juego con golpes
+furiosos, pero luego, como si hubiese perdido el tono, comenzó a hacer
+faltas con una frecuencia lamentable y el partido se igualó.
 
-Desde entonces se vio que _el Cacho_ e Isquina perdian el juego. Estaban
-desmoralizados. _El Cacho_ se tiraba contra la pelota con ira, hacia una
+Desde entonces se vió que _el Cacho_ é Isquiña perdían el juego. Estaban
+desmoralizados. _El Cacho_ se tiraba contra la pelota con ira, hacía una
 falta y se indignaba; pegaba con la cesta en la tierra enfurecido y
 echaba la culpa de todo a su zaguero.
 
-Zalacain y el vasco frances, duenos de la situacion, guardaban una
-serenidad completa, corrian elasticamente y reian.
+Zalacaín y el vasco francés, dueños de la situación, guardaban una
+serenidad completa, corrían elásticamente y reían.
 
---Ahi, Bautista--decia Zalacain--. iBien!
+--Ahí, Bautista--decía Zalacaín--. ¡Bien!
 
---Corre, Martin--gritaba Bautista--. iEso es!
+--Corre, Martín--gritaba Bautista--. ¡Eso es!
 
-El juego termino con el triunfo completo de Zalacain y de Urbide.
+El juego terminó con el triunfo completo de Zalacaín y de Urbide.
 
---_iViva gutarrac_. (iVivan los nuestros!)--gritaron los de la _calle_
+--_¡Viva gutarrac_. (¡Vivan los nuestros!)--gritaron los de la _calle_
 de Urbia aplaudiendo torpemente.
 
-Catalina sonrio a Martin y le felicito varias veces.
+Catalina sonrió a Martín y le felicitó varias veces.
 
---iMuy bien! iMuy bien!
+--¡Muy bien! ¡Muy bien!
 
---Hemos hecho lo que hemos podido--contesto el sonriente.
+--Hemos hecho lo que hemos podido--contestó él sonriente.
 
-Carlos Ohando se acerco a Martin, y le dijo con mal ceno:
+Carlos Ohando se acerco a Martín, y le dijo con mal ceño:
 
 --_El Cacho_ te juega mano a mano.
 
---Estoy cansado--contesto Zalacain.
+--Estoy cansado--contestó Zalacaín.
 
---?No quieres jugar?
+--¿No quieres jugar?
 
---No. Juega tu si quieres.
+--No. Juega tú si quieres.
 
-Carlos, que habia comprobado una vez mas la simpatia de su hermana por
-Martin, sintio avivarse su odio.
+Carlos, que había comprobado una vez mas la simpatía de su hermana por
+Martín, sintió avivarse su odio.
 
-Habia venido aquella vez Carlos Ohando de Onate mas sombrio, mas
-fanatico y mas violento que nunca.
+Había venido aquella vez Carlos Ohando de Oñate más sombrío, más
+fanático y más violento que nunca.
 
-Martin sabia el odio del hermano de Catalina y, cuando lo encontraba por
-casualidad, huia de el, lo cual a Carlos le producia mas ira y mas
+Martín sabía el odio del hermano de Catalina y, cuando lo encontraba por
+casualidad, huía de él, lo cual a Carlos le producía más ira y más
 furor.
 
-Martin estaba preocupado, buscando la manera de seguir los consejos de
-Tellagorri y de dedicarse al comercio; habia dejado su oficio de
+Martín estaba preocupado, buscando la manera de seguir los consejos de
+Tellagorri y de dedicarse al comercio; había dejado su oficio de
 cochero y entrado con Arcale en algunos negocios de contrabando.
 
-Un dia, una vieja criada de casa de Ohando, chismosa y murmuradora, fue
-a buscarle y le conto que la Ignacia, su hermana, coqueteaba con Carlos,
-el senorito de Ohando.
+Un día, una vieja criada de casa de Ohando, chismosa y murmuradora, fué
+a buscarle y le contó que la Ignacia, su hermana, coqueteaba con Carlos,
+el señorito de Ohando.
 
-Si dona Agueda lo notaba iba a despedir a la Ignacia, con lo cual el
-escandalo dejaria a la muchacha en una mala situacion.
+Si doña Águeda lo notaba iba a despedir a la Ignacia, con lo cual el
+escándalo dejaría a la muchacha en una mala situación.
 
-Martin, al saberlo, sintio deseos de presentarse a Carlos y de
+Martín, al saberlo, sintió deseos de presentarse a Carlos y de
 insultarle y desafiarle. Luego, pensando que lo esencial era evitar las
-murmuraciones, ideo varias cosas, hasta que al ultimo le parecio lo
+murmuraciones, ideó varias cosas, hasta que al último le pareció lo
 mejor ir a ver a su amigo Bautista Urbide.
 
-Habia visto al vasco frances muchas veces bailando con la Ignacia y
-creia que tenia alguna inclinacion por ella.
+Había visto al vasco francés muchas veces bailando con la Ignacia y
+creía que tenía alguna inclinación por ella.
 
-El mismo dia que le dieron la noticia se presento en la tahona de
-Archipi en donde Urbide trabajaba. Lo encontro al vasco frances desnudo
+El mismo día que le dieron la noticia se presentó en la tahona de
+Archipi en donde Urbide trabajaba. Lo encontró al vasco francés desnudo
 de medio cuerpo arriba en la boca del horno.
 
 --Oye, Bautista--le dijo.
 
---?Que pasa?
+--¿Qué pasa?
 
 --Te tengo que hablar.
 
---Te escucho--dijo el frances mientras maniobraba con la pala.
+--Te escucho--dijo el francés mientras maniobraba con la pala.
 
---?A ti te gusta la _Inasi_, mi hermana?
+--¿A ti te gusta la _Iñasi_, mi hermana?
 
---iHombre!... si. iQue pregunta!--exclamo Bautista--.?Para eso vienes a
+--¡Hombre!... sí. ¡Qué pregunta!--exclamó Bautista--.¿Para eso vienes a
 verme?
 
---?Te casarias con ella?
+--¿Te casarías con ella?
 
 --Si tuviera dinero para establecerme ya lo creo.
 
---?Cuanto necesitarias?
+--¿Cuánto necesitarías?
 
 --Unos ochenta o cien duros.
 
 --Yo te los doy.
 
---?Y por que es esa prisa? ?Le pasa algo a la Ignacia?
+--¿Y por qué es esa prisa? ¿Le pasa algo a la Ignacia?
 
---No, pero he sabido que Carlos Ohando la esta haciendo el amor. iY como
+--No, pero he sabido que Carlos Ohando la está haciendo el amor. ¡Y como
 la tiene en su casa!...
 
---Nada, nada. Hablale tu y, si ella quiere, ya esta. Nos casamos en
+--Nada, nada. Hablale tú y, si ella quiere, ya está. Nos casamos en
 seguida.
 
-Se despidieron Bautista y Martin, y este, al dia siguiente, llamo a su
-hermana y le reprocho su coqueteria y su estupidez. La Ignacia nego los
-rumores que habian llegado hasta su hermano, pero al ultimo confeso que
-Carlos la pretendia, pero con buen fin.
+Se despidieron Bautista y Martín, y éste, al día siguiente, llamó a su
+hermana y le reprochó su coquetería y su estupidez. La Ignacia negó los
+rumores que habían llegado hasta su hermano, pero al último confesó que
+Carlos la pretendía, pero con buen fin.
 
---iCon buen fin!--exclamo Zalacain--. Pero tu eres idiota, criatura.
+--¡Con buen fin!--exclamó Zalacaín--. Pero tú eres idiota, criatura.
 
---?Por que?
+--¿Por qué?
 
---Porque te quiere enganar, nada mas.
+--Porque te quiere engañar, nada mas.
 
---Me ha dicho que se casara conmigo.
+--Me ha dicho que se casará conmigo.
 
---?Y tu le has creido?
+--¿Y tú le has creído?
 
---iYo! Le he dicho que espere y que te preguntare a ti, pero el me ha
+--¡Yo! Le he dicho que espere y que te preguntaré a ti, pero él me ha
 contestado que no quiere que te diga a ti nada.
 
---Claro. Porque yo echaria abajo sus planes. Te quiere enganar, y
+--Claro. Porque yo echaría abajo sus planes. Te quiere engañar, y
 quiere deshonrarnos, y que el pueblo entero nos desprecie porque me odia
-a mi. Yo no te digo mas que una cosa, que si pasa algo entre ese
-sacristan y tu, te despellejo a ti y a el, y le pego fuego a la casa,
+a mí. Yo no te digo más que una cosa, que si pasa algo entre ese
+sacristán y tú, te despellejo a ti y a él, y le pego fuego a la casa,
 aunque me lleven a presidio para toda la vida.
 
-La Ignacia se echo a llorar, pero cuando Martin le dijo que Bautista se
-queria casar con ella y que tenia dinero, se secaron pronto sus
-lagrimas.
+La Ignacia se echó a llorar, pero cuando Martín le dijo que Bautista se
+quería casar con ella y que tenía dinero, se secaron pronto sus
+lágrimas.
 
---?Bautista quiere casarse?--pregunto la Ignacia asombrada.
+--¿Bautista quiere casarse?--preguntó la Ignacia asombrada.
 
---Si.
+--Sí.
 
---iPero si no tiene dinero!
+--¡Pero si no tiene dinero!
 
 --Pues ahora lo ha encontrado.
 
-La idea del casamiento con Bautista no solo consolo a la muchacha, sino
-que parecio ofrecerle un halagador porvenir.
+La idea del casamiento con Bautista no soló consoló a la muchacha, sino
+que pareció ofrecerle un halagador porvenir.
 
---?Y que quieres que haga? ?Salir de la casa?--pregunto la Ignacia,
-secandose las lagrimas y sonriendo.
+--¿Y qué quieres que haga? ¿Salir de la casa?--preguntó la Ignacia,
+secándose las lágrimas y sonriendo.
 
---No, por de pronto sigue ahi, es lo mejor, y dentro de unos dias
-Bautista ira a ver a dona Agueda y a decirla que se casa contigo.
+--No, por de pronto sigue ahí, es lo mejor, y dentro de unos días
+Bautista irá a ver a doña Águeda y a decirla que se casa contigo.
 
-Se hizo lo acordado por los dos hermanos. En los dias siguientes, Carlos
-Ohando vio que su conquista no seguia adelante, y el domingo, en la
+Se hizo lo acordado por los dos hermanos. En los días siguientes, Carlos
+Ohando vió que su conquista no seguía adelante, y el domingo, en la
 plaza, pudo comprobar que la Ignacia se inclinaba definitivamente del
 lado de Bautista. Bailaron la muchacha y el panadero toda la tarde con
 gran entusiasmo.
 
-Carlos espero a que la Ignacia se encontrara sola y la insulto y la echo
-en cara su coqueteria y su falsedad. La muchacha, que no tenia gran
-inclinacion por Carlos, al verle tan violento cobro por el desvio y
+Carlos esperó a que la Ignacia se encontrara sola y la insultó y la echó
+en cara su coquetería y su falsedad. La muchacha, que no tenía gran
+inclinación por Carlos, al verle tan violento cobró por él desvío y
 miedo.
 
-Poco despues, Bautista Urbide se presento en casa de Ohando, hablo a
-dona Agueda, se celebro la boda, y Bautista y la Ignacia fueron a vivir
-a Zaro, un pueblecillo del pais vasco frances.
+Poco después, Bautista Urbide se presentó en casa de Ohando, habló a
+doña Águeda, se celebró la boda, y Bautista y la Ignacia fueron a vivir
+a Zaro, un pueblecillo del país vasco francés.
 
 
 
 
-CAPITULO IX
+CAPÍTULO IX
 
-COMO INTENTO VENGARSE CARLOS DE MARTIN ZALACAIN
+CÓMO INTENTÓ VENGARSE CARLOS DE MARTÍN ZALACAÍN
 
 
-Carlos Ohando enfermo de colera y de rabia. Su naturaleza, violenta y
-orgullosa, no podia soportar la humillacion de ser vencido; solo el
-pensarlo le mortificaba y le corroia el alma.
+Carlos Ohando enfermó de cólera y de rabia. Su naturaleza, violenta y
+orgullosa, no podía soportar la humillación de ser vencido; sólo el
+pensarlo le mortificaba y le corroía el alma.
 
-Al intentar seducir Carlos a la Ignacia, casi podia mas en el su odio
-contra Martin que su inclinacion por la chica. Deshonrarle a ella y
-hacerle a el la vida triste, era lo que le encantaba. En el fondo, el
-aplomo de Zalacain, su contento por vivir, su facilidad para
-desenvolverse, ofendian a este hombre sombrio y fanatico.
+Al intentar seducir Carlos a la Ignacia, casi podía más en él su odio
+contra Martín que su inclinación por la chica. Deshonrarle a ella y
+hacerle a él la vida triste, era lo que le encantaba. En el fondo, el
+aplomo de Zalacaín, su contento por vivir, su facilidad para
+desenvolverse, ofendían a este hombre sombrío y fanático.
 
-Ademas, en Carlos la idea de orden, de categoria, de subordinacion, era
-esencial, fundamental, y Martin intentaba marchar por la vida sin
-cuidarse gran cosa de las clasificaciones y de las categorias sociales.
+Además, en Carlos la idea de orden, de categoría, de subordinación, era
+esencial, fundamental, y Martín intentaba marchar por la vida sin
+cuidarse gran cosa de las clasificaciones y de las categorías sociales.
 
-Esta audacia ofendia profundamente a Carlos y hubiese querido
+Esta audacia ofendía profundamente a Carlos y hubiese querido
 humillarle para siempre, hacerle reconocer su inferioridad. Por otra
-parte, el fracaso de su tentativa de seduccion le hizo mas malhumorado y
-sombrio.
+parte, el fracaso de su tentativa de seducción le hizo más malhumorado y
+sombrío.
 
-Una noche, aun no convaleciente de su enfermedad, producida por el
-despecho y la colera, se levanto de la cama, en donde no podia dormir, y
-bajo al comedor.
+Una noche, aún no convaleciente de su enfermedad, producida por el
+despecho y la cólera, se levantó de la cama, en donde no podía dormir, y
+bajó al comedor.
 
-Abrio una ventana y se asomo a ella. El cielo estaba sereno y puro. La
+Abrió una ventana y se asomó a ella. El cielo estaba sereno y puro. La
 luna blanqueaba las copas de los manzanos, cubiertos por la nieve de sus
-menudas flores. Los melocotoneros extendian a lo largo de las paredes
+menudas flores. Los melocotoneros extendían a lo largo de las paredes
 sus ramas, abiertas en abanico, llenas de capullos. Carlos respiraba el
-aire tibio de la noche, cuando oyo un cuchicheo y presto atencion.
+aire tibio de la noche, cuando oyó un cuchicheo y prestó atención.
 
 Estaba hablando su hermana Catalina, desde la ventana de su cuarto, con
-alguien que se encontraba en la huerta. Cuando Carlos comprendio que era
-con Martin con quien hablaba, sintio un dolor agudisimo y una impresion
+alguien que se encontraba en la huerta. Cuando Carlos comprendió que era
+con Martín con quien hablaba, sintió un dolor agudísimo y una impresión
 sofocante de ira.
 
-Siempre se habia de encontrar enfrente de Martin. Parecia que el destino
+Siempre se había de encontrar enfrente de Martín. Parecía que el destino
 de los dos era estorbarse y chocar el uno contra el otro.
 
-Martin contaba bromeando a Catalina la boda de Bautista y de la Ignacia,
-en Zaro, el banquete celebrado en casa del padre del vasco frances, el
+Martín contaba bromeando a Catalina la boda de Bautista y de la Ignacia,
+en Zaro, el banquete celebrado en casa del padre del vasco francés, el
 discurso del alcalde del pueblecillo...
 
-Carlos desfallecia de colera. Martin le habia impedido conquistar a la
-Ignacia y deshonraba, ademas, a los Ohandos siendo el novio de su
-hermana, hablando con ella de noche. Sobre todo, lo que mas heria a
-Carlos, aunque no lo quisiera reconocer, lo que mas le mortificaba en el
-fondo de su alma era la superioridad de Martin, que iba y venia sin
-reconocer categorias, aspirando a todo y conquistandolo todo.
+Carlos desfallecía de cólera. Martín le había impedido conquistar a la
+Ignacia y deshonraba, además, a los Ohandos siendo el novio de su
+hermana, hablando con ella de noche. Sobre todo, lo que más hería a
+Carlos, aunque no lo quisiera reconocer, lo que más le mortificaba en el
+fondo de su alma era la superioridad de Martín, que iba y venía sin
+reconocer categorías, aspirando a todo y conquistándolo todo.
 
 Aquel granuja de la calle era capaz de subir, de prosperar, de hacerse
-rico, de casarse con su hermana y de considerar todo esto logico,
-natural... Era una desesperacion.
+rico, de casarse con su hermana y de considerar todo esto lógico,
+natural... Era una desesperación.
 
-Carlos hubiera gozado conquistando a la Ignacia, abandonandola luego,
-paseandose desdenosamente por delante de Martin; y Martin le ganaba la
+Carlos hubiera gozado conquistando a la Ignacia, abandonándola luego,
+paseándose desdeñosamente por delante de Martín; y Martín le ganaba la
 partida sacando a la Ignacia de su alcance y enamorando a su hermana.
 
-iUn vagabundo, un ladron, se la habia jugado a el, a un hidalgo rico
-heredero de una casa solariega! Y lo que era peor, iesto no seria mas
-que el principio, el comienzo de su carrera esplendida!
+¡Un vagabundo, un ladrón, se la había jugado a él, a un hidalgo rico
+heredero de una casa solariega! Y lo que era peor, ¡esto no sería más
+que el principio, el comienzo de su carrera espléndida!
 
-Carlos, mortificado por sus pensamientos, no presto atencion a lo que
-hablaban; luego oyo un beso, y poco despues las ramas de un arbol que se
-movian.
+Carlos, mortificado por sus pensamientos, no prestó atención a lo que
+hablaban; luego oyó un beso, y poco después las ramas de un árbol que se
+movían.
 
-Tras de esto, se vio bajar un hombre por el tronco de un arbol, se vio
-que cruzaba la huerta, montaba sobre la tapia y desaparecia.
+Tras de esto, se vió bajar un hombre por el tronco de un árbol, se vió
+que cruzaba la huerta, montaba sobre la tapia y desaparecía.
 
-Se cerro la ventana del cuarto de Catalina, y en el mismo momento
-Carlos se llevo la mano a la frente y penso con rabia en la magnifica
-ocasion perdida. iQue soberbio instante para concluir con aquel hombre
+Se cerró la ventana del cuarto de Catalina, y en el mismo momento
+Carlos se llevó la mano a la frente y pensó con rabia en la magnífica
+ocasión perdida. ¡Qué soberbio instante para concluir con aquel hombre
 que le estorbaba!
 
-iUn tiro a boca de jarro! Y ya aquella mala hierba no creceria mas, no
-ambicionaria mas, no intentaria salir de su clase. Si lo mataba, todo el
-mundo consideraria el suyo un caso de legitima defensa contra un
-salteador, contra un ladron.
+¡Un tiro a boca de jarro! Y ya aquella mala hierba no crecería más, no
+ambicionaría más, no intentaría salir de su clase. Si lo mataba, todo el
+mundo consideraría el suyo un caso de legítima defensa contra un
+salteador, contra un ladrón.
 
-Al dia siguiente, Carlos busco una escopeta de dos canones de su padre,
-la encontro, la limpio a escondidas y la cargo con perdigones loberos.
-Estuvo vacilando en poner cartuchos con bala, pero como era dificil
-hacer punteria de noche, opto por los perdigones gruesos.
+Al día siguiente, Carlos buscó una escopeta de dos cañones de su padre,
+la encontró, la limpió a escondidas y la cargó con perdigones loberos.
+Estuvo vacilando en poner cartuchos con bala, pero como era difícil
+hacer puntería de noche, optó por los perdigones gruesos.
 
-Ni en aquella noche, ni en la siguiente, se presento Martin, pero cuatro
-dias despues Carlos lo sintio en la huerta. Todavia no habia salido la
-luna y esto salvo al salteador enamorado. Carlos impaciente, al oir el
-ruido de las hojas, apunto y disparo.
+Ni en aquella noche, ni en la siguiente, se presentó Martín, pero cuatro
+días después Carlos lo sintió en la huerta. Todavía no había salido la
+luna y esto salvó al salteador enamorado. Carlos impaciente, al oir el
+ruido de las hojas, apuntó y disparó.
 
-Al fogonazo, vio a Martin en el tronco del arbol y volvio a disparar.
+Al fogonazo, vió a Martín en el tronco del árbol y volvió a disparar.
 
-Se oyo un chillido agudo de mujer y el golpe de un cuerpo en el suelo.
+Se oyó un chillido agudo de mujer y el golpe de un cuerpo en el suelo.
 La madre de Carlos y las criadas, alarmadas salieron de sus cuartos
-gritando, preguntando lo que era. Catalina, palida como una muerta, no
-podia hablar de emocion.
+gritando, preguntando lo que era. Catalina, pálida como una muerta, no
+podía hablar de emoción.
 
-Dona Agueda, Carlos y las criadas salieron al jardin. Debajo del arbol,
-en la tierra y sobre la hierba humeda, se veian algunas gotas de sangre,
-pero Martin habia huido.
+Doña Águeda, Carlos y las criadas salieron al jardín. Debajo del árbol,
+en la tierra y sobre la hierba húmeda, se veían algunas gotas de sangre,
+pero Martín había huído.
 
---No tenga usted cuidado, senorita--le dijo a Catalina una de las
-criadas--. Martin ha podido escapar.
+--No tenga usted cuidado, señorita--le dijo a Catalina una de las
+criadas--. Martín ha podido escapar.
 
-La senora de Ohando, que se entero de lo ocurrido por su hijo, llamo en
-su auxilio al cura don Felix para que le aconsejara.
+La señora de Ohando, que se enteró de lo ocurrido por su hijo, llamó en
+su auxilio al cura don Félix para que le aconsejara.
 
-Se intento hacer comprender a Catalina el absurdo de su proposito, pero
+Se intentó hacer comprender a Catalina el absurdo de su propósito, pero
 la muchacha era tenaz y estaba dispuesta a no ceder.
 
---Martin ha venido a darme noticias de la Ignacia, y como saben que no
+--Martín ha venido a darme noticias de la Ignacia, y como saben que no
 le quieren en la casa, por eso ha saltado la tapia.
 
-Cuando Carlos supo que Martin estaba solamente herido en un brazo y que
-se paseaba vendado por el pueblo siendo el heroe, se sintio furioso,
-pero por si acaso, no se atrevio a salir a la calle.
+Cuando Carlos supo que Martín estaba solamente herido en un brazo y que
+se paseaba vendado por el pueblo siendo el héroe, se sintió furioso,
+pero por si acaso, no se atrevió a salir a la calle.
 
 Con el atentado, la hostilidad entre Carlos y Catalina, ya existente, se
-acentuo de tal manera, que dona Agueda, para evitar agrias disputas,
-envio de nuevo a Carlos a Onate y ella se dedico a vigilar a su hija.
+acentuó de tal manera, que doña Águeda, para evitar agrias disputas,
+envió de nuevo a Carlos a Oñate y ella se dedicó a vigilar a su hija.
 
 
 
 
 LIBRO SEGUNDO
 
-Andanzas y correrias
+Andanzas y correrías
 
 
 
 
-CAPITULO PRIMERO
+CAPÍTULO PRIMERO
 
-EN EL QUE SE HABLA DE LOS PRELUDIOS DE LA ULTIMA GUERRA CARLISTA
+EN EL QUE SE HABLA DE LOS PRELUDIOS DE LA ÚLTIMA GUERRA CARLISTA
 
 
 Hay hombres para quienes la vida es de una facilidad extraordinaria. Son
-algo asi como una esfera que rueda por un plano inclinado, sin tropiezo,
+algo así como una esfera que rueda por un plano inclinado, sin tropiezo,
 sin dificultad alguna.
 
-?Es talento, es instinto o es suerte? Los propios interesados aseguran
+¿Es talento, es instinto o es suerte? Los propios interesados aseguran
 ser instinto o talento, sus enemigos dicen casualidad, suerte, y esto es
-mas probable que lo otro, porque hay hombres excelentemente dispuestos
-para la vida, inteligentes, energicos, fuertes y que sin embargo, no
-hacen mas que detenerse y tropezar en todo.
+más probable que lo otro, porque hay hombres excelentemente dispuestos
+para la vida, inteligentes, enérgicos, fuertes y que sin embargo, no
+hacen más que detenerse y tropezar en todo.
 
-Un proverbio vasco dice: "El buen valor asusta a la mala suerte." Y esto
+Un proverbio vasco dice: «El buen valor asusta a la mala suerte.» Y esto
 es verdad a veces... cuando se tiene buena suerte.
 
-Zalacain era afortunado; todo lo que intentaba lo llevaba bien.
+Zalacaín era afortunado; todo lo que intentaba lo llevaba bien.
 Negocios, contrabando, amores, juego...
 
-Su ocupacion principal era el comercio de caballos y de mulas que
+Su ocupación principal era el comercio de caballos y de mulas que
 compraba en Dax y pasaba de contrabando por los Alduides o por
 Roncesvalles.
 
-Tenia como socio a Capistun _el Americano_, hombre inteligentisimo, ya
-de edad, a quien todo el mundo llamaba el americano, aunque se sabia que
-era gascon. Su mote procedia de haber vivido en America mucho tiempo.
+Tenía como socio a Capistun _el Americano_, hombre inteligentísimo, ya
+de edad, a quien todo el mundo llamaba el americano, aunque se sabía que
+era gascón. Su mote procedía de haber vivido en América mucho tiempo.
 
 Bautista Urbide, antiguo panadero de la tahona de Archipe, formaba
-muchas veces parte de las expediciones. Lo mismo Capistun que Martin,
-tenian como punto de descanso el pueblo de Zaro, proximo a San Juan del
-Pie del Puerto, donde vivia la Ignacia con Bautista.
+muchas veces parte de las expediciones. Lo mismo Capistun que Martín,
+tenían como punto de descanso el pueblo de Zaro, próximo a San Juan del
+Pie del Puerto, donde vivía la Ignacia con Bautista.
 
-Capistun y Martin conocian, como pocos, los puertos de Ibantelly y de
-Atchuria, de Alcorrunz y de Larratecoeguia, toda la linea de Mugas de
-Zugarramurdi. Habian recorrido muchas veces los caminos que hay entre
-Meaca y Urdax, entre Izpegui y San Esteban de Baigorri, entre Biriatu y
-Enderlaza, entre Elorrieta, la Banca y Berdariz. En casi todos los
-pueblos de la frontera vasco-navarra, desde Fuenterrabia hasta
-Valcarlos, tenian algun agente para sus negocios de contrabando.
-Conocian tambien, palmo a palmo, las veredas que van por las vertientes
-del monte Larrun y no habia misterios para ellos hacia el lado Este de
+Capistun y Martín conocían, como pocos, los puertos de Ibantelly y de
+Atchuria, de Alcorrunz y de Larratecoeguia, toda la línea de Mugas de
+Zugarramurdi. Habían recorrido muchas veces los caminos que hay entre
+Meaca y Urdax, entre Izpegui y San Estéban de Baigorri, entre Biriatu y
+Enderlaza, entre Elorrieta, la Banca y Berdáriz. En casi todos los
+pueblos de la frontera vasco-navarra, desde Fuenterrabía hasta
+Valcarlos, tenían algún agente para sus negocios de contrabando.
+Conocían también, palmo a palmo, las veredas que van por las vertientes
+del monte Larrun y no había misterios para ellos hacia el lado Este de
 Navarra en esas praderas altas, metidas entre los bosques de Irati y de
 Ori.
 
-La vida de Capistun y Martin era accidentada y peligrosa. Para Martin,
+La vida de Capistun y Martín era accidentada y peligrosa. Para Martín,
 la consigna del viejo Tellagorri era la norma de su vida. Cuando se
-encontraba en una situacion apurada, cercado por los carabineros, cuando
-se perdia en el monte, en medio de la noche, cuando tenia que hacer un
-esfuerzo sobre si mismo, recordaba la actitud y la voz del viejo al
-decir: iFirmes! iSiempre firmes! Y hacia lo necesario en aquel momento
-con decision.
+encontraba en una situación apurada, cercado por los carabineros, cuando
+se perdía en el monte, en medio de la noche, cuando tenía que hacer un
+esfuerzo sobre sí mismo, recordaba la actitud y la voz del viejo al
+decir: ¡Firmes! ¡Siempre firmes! Y hacía lo necesario en aquel momento
+con decisión.
 
-Tenia Martin serenidad y calma. Sabia medir el peligro y ver la
-situacion real de las cosas sin exageraciones y sin alarmas. Para los
-negocios y para la guerra el hombre necesita ser frio.
+Tenía Martín serenidad y calma. Sabía medir el peligro y ver la
+situación real de las cosas sin exageraciones y sin alarmas. Para los
+negocios y para la guerra el hombre necesita ser frío.
 
-Martin comenzaba a impregnarse del liberalismo frances y a encontrar
-atrasados y fanaticos a sus paisanos; pero, a pesar de esto, creia que
-don Carlos, en el instante que iniciase la guerra, conseguiria la
+Martín comenzaba a impregnarse del liberalismo francés y a encontrar
+atrasados y fanáticos a sus paisanos; pero, a pesar de esto, creía que
+don Carlos, en el instante que iniciase la guerra, conseguiría la
 victoria.
 
-En casi todo el Mediodia de Francia se creia lo mismo.
+En casi todo el Mediodía de Francia se creía lo mismo.
 
-El gobierno de la Republica, los subprefectos y demas funcionarios de la
-frontera espanola dejaban pasar a los facciosos; y en los coches de
-Elizondo, por los Alduides, por San Esteban de Baigorri, por Anoa,
-viajaban los jefes carlistas, con sus uniformes e insignias de mando.
+El gobierno de la República, los subprefectos y demás funcionarios de la
+frontera española dejaban pasar a los facciosos; y en los coches de
+Elizondo, por los Alduides, por San Estéban de Baigorri, por Añoa,
+viajaban los jefes carlistas, con sus uniformes é insignias de mando.
 
-Martin y Capistun, ademas de mulas y de caballos, habian llevado a
-diferentes puntos de Guipuzcoa y de Navarra, armas y materias
-necesarias para la fabricacion de polvora, cartuchos y proyectiles, y
-hasta llegaron a pasar por la frontera un canon, de desecho de la guerra
-franco-prusiana, vendido por el Estado frances.
+Martín y Capistun, además de mulas y de caballos, habían llevado a
+diferentes puntos de Guipúzcoa y de Navarra, armas y materias
+necesarias para la fabricación de pólvora, cartuchos y proyectiles, y
+hasta llegaron a pasar por la frontera un cañón, de desecho de la guerra
+franco-prusiana, vendido por el Estado francés.
 
-Los comites carlistas funcionaban a la vista de todo el mundo.
-Generalmente, Martin y Capistun se entendian con el de Bayona, pero
+Los comités carlistas funcionaban a la vista de todo el mundo.
+Generalmente, Martín y Capistun se entendían con el de Bayona, pero
 algunas veces tuvieron que relacionarse con el de Pau.
 
-Muchas veces habian dejado en manos de jovenes carlistas, disfrazados de
+Muchas veces habían dejado en manos de jóvenes carlistas, disfrazados de
 boyerizos, barricas llenas de armas. Los carlistas montaban las barricas
-en un carro y se internaban en Espana.
+en un carro y se internaban en España.
 
---Es vino de la Rioja--solian decir en broma, al llegar a los pueblos
-golpeando los toneles, y el alcalde y el secretario complices los
+--Es vino de la Rioja--solían decir en broma, al llegar a los pueblos
+golpeando los toneles, y el alcalde y el secretario cómplices los
 dejaban pasar.
 
-Tambien solian cargar en carros, que cubrian de tejas, plomo en
-lingotes, que habia de servir para fundir balas.
+También solían cargar en carros, que cubrían de tejas, plomo en
+lingotes, que había de servir para fundir balas.
 
-La alusion a la guerra proxima se notaba en una porcion de indicios y
-senales. Curas, alcaldes y _jaunchos_ [Nota: Jaunchos-caciques.] se
-preparaban. Muchas veces, al cruzar un pueblo, se oia una voz aguda como
-de Carnaval, que gritaba en vasco: ?Noiz zuazte? (?Cuando os vais?) Lo
-que queria decir: ?Cuando os echais al campo?
+La alusión a la guerra próxima se notaba en una porción de indicios y
+señales. Curas, alcaldes y _jaunchos_ [Nota: Jaunchos-caciques.] se
+preparaban. Muchas veces, al cruzar un pueblo, se oía una voz aguda como
+de Carnaval, que gritaba en vasco: ¿Noiz zuazté? (¿Cuándo os vais?) Lo
+que quería decir: ¿Cuándo os echáis al campo?
 
-Se cantaba tambien en Guipuzcoa una cancion en vascuence, que aludia a
-la guerra y que se llamaba Gu guera (Nosotros somos). Era asi:
+Se cantaba también en Guipúzcoa una canción en vascuence, que aludía a
+la guerra y que se llamaba Gu guerá (Nosotros somos). Era así:
 
 UNA VOZ
 
@@ -1945,279 +1797,279 @@ UNA VOZ
         norbait dago ta
         galdezazu nor dan.
 
-(Por segunda vez oigo que estan llamando a la puerta, _dan, dan_. Junto
-a la puerta hay alguno. Pregunta quien es.)
+(Por segunda vez oigo que están llamando a la puerta, _dan, dan_. Junto
+a la puerta hay alguno. Pregunta quién es.)
 
 VARIAS VOCES
 
-        Ta gu guera
-        Ta gu guera
+        Ta gu guerá
+        Ta gu guerá
         gabiltzanac
-        gora bera
+        gora berá
         etorri nayean onera.
-        Ta gu guera
-        Ta gu guera
+        Ta gu guerá
+        Ta gu guerá
         Quirlis Carlos
         Carlos Quirlis
-        Ecarri nayean onera.
+        Ecarri nayean onerá.
 
 (Nosotros somos, nosotros somos los que andamos de arriba a abajo
-queriendo venir aqui. Nosotros somos, nosotros somos Quirlis Carlos,
-Carlos Quirlis, queriendole traer aqui.)
+queriendo venir aquí. Nosotros somos, nosotros somos Quirlis Carlos,
+Carlos Quirlis, queriéndole traer aquí.)
 
 Y mientras en las provincias se organizaba y preparaba una guerra feroz
-y sangrienta, en Madrid, politicos y oradores se dedicaban con fruicion
-a los bellos ejercicios de la retorica.
+y sangrienta, en Madrid, políticos y oradores se dedicaban con fruición
+a los bellos ejercicios de la retórica.
 
        *       *       *       *       *
 
-Un dia de Mayo fueron Martin, Capistun y Bautista a Vera. La senora de
-Ohando tenia una casa en el barrio de Alzate y habia ido a pasar alli
+Un día de Mayo fueron Martín, Capistun y Bautista a Vera. La señora de
+Ohando tenía una casa en el barrio de Alzate y había ido a pasar allí
 una temporada.
 
-Martin queria hablar con su novia, y Capistun y Bautista le acompanaron.
+Martín quería hablar con su novia, y Capistun y Bautista le acompañaron.
 Salieron de Sara y marcharon por el monte a Alzate.
 
-Martin contaba con una de las criadas de Ohando, partidaria suya, y esta
-le facilitaba el poder hablar con Catalina. Mientras Martin quedo en
+Martín contaba con una de las criadas de Ohando, partidaria suya, y ésta
+le facilitaba el poder hablar con Catalina. Mientras Martín quedó en
 Alzate, Capistun y Bautista entraron en Vera.
 
-En aquel mismo momento, don Carlos de Borbon, el pretendiente, llegaba
+En aquel mismo momento, don Carlos de Borbón, el pretendiente, llegaba
 rodeado de un Estado Mayor de generales carlistas y de algunos vendeanos
 franceses.
 
-Se leyo una alocucion patriotica, y despues don Carlos, repitiendo el
-final de la alocucion, exclamo:
+Se leyó una alocución patriótica, y después don Carlos, repitiendo el
+final de la alocución, exclamó:
 
---Hoy dos de Mayo. iDia de fiesta _nasional! iAbaco_ el _extranquero_!
+--Hoy dos de Mayo. ¡Día de fiesta _nasional! ¡Abaco_ el _extranquero_!
 
 El _extranquero_ era Amadeo de Saboya.
 
-Capistun y Bautista anduvieron entre los grupos. Se decia que uno de
-aquellos caballeros era Cathelineau, el descendiente del celebre general
-vendeano; se senalaba tambien al conde de Barrot y a un marques navarro.
+Capistun y Bautista anduvieron entre los grupos. Se decía que uno de
+aquellos caballeros era Cathelineau, el descendiente del célebre general
+vendeano; se señalaba también al conde de Barrot y a un marqués navarro.
 
-Cuando llego Martin a Vera se encontro la plaza llena de carlistas;
+Cuando llegó Martín a Vera se encontró la plaza llena de carlistas;
 Bautista le dijo:
 
 --La guerra ha empezado.
 
-Martin se quedo pensativo.
+Martín se quedó pensativo.
 
-Volvieron Martin, Capistun y Bautista a Francia. Bautista gritaba
-ironicamente a cada paso:--_iAbaco_ el _extranquero!_--Zalacain pensaba
-en el giro que tomaria aquella guerra asi iniciada y en lo que podria
+Volvieron Martín, Capistun y Bautista a Francia. Bautista gritaba
+irónicamente a cada paso:--_¡Abaco_ el _extranquero!_--Zalacaín pensaba
+en el giro que tomaría aquella guerra así iniciada y en lo que podría
 influir en sus amores con Catalina.
 
 
 
 
-CAPITULO II
+CAPÍTULO II
 
-COMO MARTIN, BAUTISTA Y CAPISTUN PASARON UNA NOCHE EN EL MONTE
+CÓMO MARTÍN, BAUTISTA Y CAPISTUN PASARON UNA NOCHE EN EL MONTE
 
 
-Una noche de invierno marchaban tres hombres con cuatro magnificas mulas
-cargadas con grandes fardos. Salidos de Zaro por la tarde, se dirigian
+Una noche de invierno marchaban tres hombres con cuatro magníficas mulas
+cargadas con grandes fardos. Salidos de Zaro por la tarde, se dirigían
 hacia los altos del monte Larrun.
 
 Costeando un arroyo que bajaba a unirse con la Nivelle y cruzando
 prados, llegaron a una borda, donde se detuvieron a cenar.
 
-Los tres hombres eran Martin Zalacain, Capistun el gascon y Bautista
+Los tres hombres eran Martín Zalacaín, Capistun el gascón y Bautista
 Urbide. Llevaban una partida de uniformes y de capotes.
 
-El alijo iba consignado a Lesaca, en donde lo recogerian los carlistas.
+El alijo iba consignado a Lesaca, en donde lo recogerían los carlistas.
 
-Despues de cenar en la borda, los tres hombres sacaron las muias y
+Después de cenar en la borda, los tres hombres sacaron las muías y
 continuaron el viaje subiendo por el monte Larrun.
 
-Era la noche fria, comenzaba a nevar. En los caminos y sendas, llenos
+Era la noche fría, comenzaba a nevar. En los caminos y sendas, llenos
 de lodo, se resbalaban los pies; a veces una mula entraba en un charco
 hasta el vientre y a fuerza de fuerzas se lograba sacarla del aprieto.
 
 Los animales llevaban mucho peso. Era preciso seguir el camino largo,
-sin utilizar las veredas, y la marcha se hacia pesada. Al llegar a la
-cumbre y al entrar en el puerto de Ibantelly, les sorprendio a los
+sin utilizar las veredas, y la marcha se hacía pesada. Al llegar a la
+cumbre y al entrar en el puerto de Ibantelly, les sorprendió a los
 viandantes una tempestad de viento y de nieve.
 
-Se encontraban en la misma frontera. La nieve arreciaba; no era facil
+Se encontraban en la misma frontera. La nieve arreciaba; no era fácil
 seguir adelante. Los tres hombres detuvieron las mulas, y mientras
-quedaba Capistun con ellas, Martin y Bautista se echaron uno a un lado y
-el otro al otro, para ver si encontraban cerca algun refugio, cabana o
+quedaba Capistun con ellas, Martín y Bautista se echaron uno a un lado y
+el otro al otro, para ver si encontraban cerca algún refugio, cabaña o
 choza de pastor.
 
-Zalacain vio a pocos pasos una casucha de carabineros cerrada.
+Zalacaín vió a pocos pasos una casucha de carabineros cerrada.
 
---iEup! iEup!--grito.
+--¡Eup! ¡Eup!--gritó.
 
-No contesto nadie.
+No contestó nadie.
 
-Martin empujo la puerta, sujeta con un clavo, y entro dentro del chozo.
-Inmediatamente corrio a dar parte a los amigos de su descubrimiento. Los
-fardos que llevaban las mulas tenian mantas, y extendiendolas y
-sujetandolas por un extremo en la choza de los carabineros y por otro en
-unas ramas, improvisaron un cobertizo para las caballerias.
+Martín empujó la puerta, sujeta con un clavo, y entró dentro del chozo.
+Inmediatamente corrió a dar parte a los amigos de su descubrimiento. Los
+fardos que llevaban las mulas tenían mantas, y extendiéndolas y
+sujetándolas por un extremo en la choza de los carabineros y por otro en
+unas ramas, improvisaron un cobertizo para las caballerías.
 
 Puestas en seguridad la carga y las mulas, entraron los tres en la casa
-de los carabineros y encendieron una hermosa hoguera. Bautista fabrico
+de los carabineros y encendieron una hermosa hoguera. Bautista fabricó
 en un momento, con fibras de pino, una antorcha para alumbrar aquel
-rincon.
+rincón.
 
 Esperaron a que pasara el temporal y se dispusieron los tres a matar el
 tiempo junto a la lumbre. Capistun llevaba una calabaza llena de
-aguardiente de Armagnac y, mezclandolo con agua que calentaron, bebieron
+aguardiente de Armagnac y, mezclándolo con agua que calentaron, bebieron
 los tres.
 
-Luego, como era natural, hablaron de la guerra. El carlismo se extendia
-y marchaba de triunfo en triunfo. En Cataluna y en el pais vasco-navarro
-iba haciendo progresos. La Republica espanola era una calamidad. Los
-periodicos hablaban de asesinatos en Malaga, de incendios en Alcoy, de
-soldados que desobedecian a los jefes y se negaban a batirse. Era una
-vergueenza.
+Luego, como era natural, hablaron de la guerra. El carlismo se extendía
+y marchaba de triunfo en triunfo. En Cataluña y en el país vasco-navarro
+iba haciendo progresos. La República española era una calamidad. Los
+periódicos hablaban de asesinatos en Málaga, de incendios en Alcoy, de
+soldados que desobedecían a los jefes y se negaban a batirse. Era una
+vergüenza.
 
-Los carlistas se apoderaban de una porcion de pueblos abandonados por
-los liberales. Habian entrado en Estella.
+Los carlistas se apoderaban de una porción de pueblos abandonados por
+los liberales. Habían entrado en Estella.
 
-En las dos orillas del Bidasoa, lo mismo en la frontera espanola que en
-la francesa, se sentia un gran entusiasmo por la causa del Pretendiente.
+En las dos orillas del Bidasoa, lo mismo en la frontera española que en
+la francesa, se sentía un gran entusiasmo por la causa del Pretendiente.
 
-Capistun y Bautista senalaron sus conocidos alistados ya en la faccion.
-La mayoria eran mozos, pero no faltaban tampoco los viejos. Los fueron
+Capistun y Bautista señalaron sus conocidos alistados ya en la facción.
+La mayoría eran mozos, pero no faltaban tampoco los viejos. Los fueron
 citando.
 
-Alla estaban Juan Echeberrigaray, de Espeleta; Tomas Albandos, de Anoa;
-el herrero Lerrumburo, de Zaro; Echebarria, de Irisarri; Galparzasoro,
-el alpargatero de Urruna; Mearuberry, el carnicero de Ostabat, Miguel
-Larralde, el de Azcain; Carricaburo, el mozo de un caserio de Arhamus;
+Allá estaban Juan Echeberrigaray, de Espeleta; Tomás Albandos, de Añoa;
+el herrero Lerrumburo, de Zaro; Echebarría, de Irisarri; Galparzasoro,
+el alpargatero de Urruña; Mearuberry, el carnicero de Ostabat, Miguel
+Larralde, el de Azcain; Carricaburo, el mozo de un caserío de Arhamus;
 Chaubandidegui, el hijo del confitero de Azcarat; Peyrohade y
 Lafourchette, los dos mozos del bazar de Hasparren.
 
---iValientes granujas!--murmuro Martin, que escuchaba.
+--¡Valientes granujas!--murmuró Martín, que escuchaba.
 
-Capistun y Bautista siguieron su enumeracion. Estaban tambien
-Bordagorri, el de Meharin; Achucarro, de Urdax; Etchehun, el versolari
-de Chacxu; Ganecoechia, de Osses; Bishino, de Azparrain, Listurria, de
-Briscus; Rebenacq, de Pourtales; el propietario de Saint Palais con el
-baron Lesbas d'Armagnac, de Mauleon; Detchesarry, el sacristan de
+Capistun y Bautista siguieron su enumeración. Estaban también
+Bordagorri, el de Meharín; Achucarro, de Urdax; Etchehun, el versolari
+de Chacxu; Gañecoechia, de Osses; Bishiño, de Azparrain, Listurria, de
+Briscus; Rebenacq, de Pourtalés; el propietario de Saint Palais con el
+barón Lesbas d'Armagnac, de Mauleon; Detchesarry, el sacristán de
 Biriatu; Guibeleguieta, de Barcus; Iturbide, de Hendaya; Echemendi, el
-minero de Articuza; Chocoa, el cantero de San Esteban de Baigorri;
-Garraiz, el cazador de palomas de Echalar; Setoain, el lenador de
+minero de Articuza; Chocoa, el cantero de San Estéban de Baigorri;
+Garraiz, el cazador de palomas de Echalar; Setoain, el leñador de
 Esterensuby; Isuribere, el pastor de Urepel; y Chiquierdi, el de
 Zugarramurdi.
 
 Los vascos, siguiendo las tendencias de su raza, marchaban a defender lo
-viejo contra lo nuevo. Asi habian peleado en la antigueedad contra el
-romano, contra el godo, contra el arabe, contra el castellano, siempre a
+viejo contra lo nuevo. Así habían peleado en la antigüedad contra el
+romano, contra el godo, contra el árabe, contra el castellano, siempre a
 favor de la costumbre vieja y en contra de la idea nueva.
 
 Estos aldeanos y viejos hidalgos de Vasconia y de Navarra, esta
-semiaristocracia campesina de las dos vertientes del Pirineo, creia en
-aquel Borbon, vulgar extranjero y extranjerizado, y estaban dispuestos a
+semiaristocracia campesina de las dos vertientes del Pirineo, creía en
+aquel Borbón, vulgar extranjero y extranjerizado, y estaban dispuestos a
 morir para satisfacer las ambiciones de un aventurero tan grotesco.
 
 Los legitimistas franceses se lo figuraban como un nuevo Enrique IV; y
-como de alli, del Bearn, salieron en otro tiempo los Borbones para
-reinar en Espana y en Francia, sonaban con que Carlos VII triunfaria en
-Espana, acabaria con la maldita Republica Francesa, daria fueros a
-Navarra, que seria el centro del mundo y, ademas, restableceria el poder
-politico del Papa en Roma.
+como de allí, del Bearn, salieron en otro tiempo los Borbones para
+reinar en España y en Francia, soñaban con que Carlos VII triunfaría en
+España, acabaría con la maldita República Francesa, daría fueros a
+Navarra, que sería el centro del mundo y, además, restablecería el poder
+político del Papa en Roma.
 
-Zalacain se sentia muy espanol y dijo que los franceses eran unos
-cochinos, porque debian hacer la guerra en su tierra, si querian.
+Zalacaín se sentía muy español y dijo que los franceses eran unos
+cochinos, porque debían hacer la guerra en su tierra, si querían.
 
-Capistun, como buen republicano, afirmo que la guerra en todas partes
+Capistun, como buen republicano, afirmó que la guerra en todas partes
 era una barbaridad.
 
---Paz, paz es lo que se necesita--anadio el gascon--; paz para poder
+--Paz, paz es lo que se necesita--añadió el gascón--; paz para poder
 trabajar y vivir.
 
---iAh, la paz!--replico Martin contradiciendole--; es mejor la guerra.
+--¡Ah, la paz!--replicó Martín contradiciéndole--; es mejor la guerra.
 
---No, no--repuso Capistun--. La guerra es la barbarie nada mas.
+--No, no--repuso Capistun--. La guerra es la barbarie nada más.
 
-Discutieron el asunto; el gascon, como mas ilustrado, aducia mejores
-argumentos, pero Bautista y Martin replicaban:
+Discutieron el asunto; el gascón, como más ilustrado, aducía mejores
+argumentos, pero Bautista y Martín replicaban:
 
---Si, todo eso es verdad, pero tambien es hermosa la guerra.
+--Sí, todo eso es verdad, pero también es hermosa la guerra.
 
 Y los dos vascos especificaron lo que ellos consideraban como
-hermosura. Ambos guardaban en el fondo de su alma un sueno candido y
-heroico, infantil y brutal. Se veian los dos por los montes de Navarra y
-de Guipuzcoa al frente de una partida, viviendo siempre en acecho, en
+hermosura. Ambos guardaban en el fondo de su alma un sueño cándido y
+heroico, infantil y brutal. Se veían los dos por los montes de Navarra y
+de Guipúzcoa al frente de una partida, viviendo siempre en acecho, en
 una continua elasticidad de la voluntad, atacando, huyendo,
-escondiendose entre las matas, haciendo marchas forzadas, incendiando el
-caserio enemigo...
+escondiéndose entre las matas, haciendo marchas forzadas, incendiando el
+caserío enemigo...
 
-iY que alegrias! iQue triunfos! Entrar en las aldeas a caballo, la boina
+¡Y qué alegrías! ¡Qué triunfos! Entrar en las aldeas a caballo, la boina
 sobre los ojos, el sable al cinto, mientras las campanas tocan en la
-iglesia. Ver, al huir de una fuerza mayor, como aparece, entre el verde
+iglesia. Ver, al huir de una fuerza mayor, cómo aparece, entre el verde
 de las heredades, el campanario de la aldea donde se tiene el asilo;
 defender una trinchera heroicamente y plantar la bandera entre las balas
 que silban; conservar la serenidad mientras las granadas caen,
 estallando a pocos pasos, y caracolear en el caballo delante de la
-partida, marchando todos al compas del tambor...
+partida, marchando todos al compás del tambor...
 
-iQue emociones debian de ser aquellas! Y Bautista y Martin sonaban con
+¡Qué emociones debían de ser aquéllas! Y Bautista y Martín soñaban con
 el placer de atacar y de huir, de bailar en las fiestas de los pueblos y
 de robar en los Ayuntamientos, de acechar y de escapar por los senderos
-humedos y dormir en una borda sobre una cama de hierba seca...
+húmedos y dormir en una borda sobre una cama de hierba seca...
 
---iBarbarie! iBarbarie!--replicaba a todo esto el gascon.
+--¡Barbarie! ¡Barbarie!--replicaba a todo esto el gascón.
 
---iQue barbarie!--exclamo Martin--. ?Se ha de estar siempre hecho un
+--¡Que barbarie!--exclamó Martín--. ¿Se ha de estar siempre hecho un
 esclavo, sembrando patatas o cuidando cerdos? Prefiero la guerra.
 
---?Y por que prefieres la guerra? Para robar.
+--¿Y por qué prefieres la guerra? Para robar.
 
 --No hables, Capistun, que eres comerciante.
 
---?Y que?
+--¿Y qué?
 
---Que tu y yo robamos con el libro de cuentas. Entre robar en el camino,
+--Que tú y yo robamos con el libro de cuentas. Entre robar en el camino,
 o robar con el libro de cuentas, prefiero a los que roban en el camino.
 
---Si el comercio fuera un robo, no habria sociedad--repuso el gascon.
+--Si el comercio fuera un robo, no habría sociedad--repuso el gascón.
 
---?Y que?--dijo Martin.
+--¿Y qué?--dijo Martín.
 
---Que acabarian las ciudades.
+--Que acabarían las ciudades.
 
---Para mi las ciudades estan hechas por miserables y sirven para que las
-saqueen los hombres fuertes--dijo Martin con violencia.
+--Para mí las ciudades están hechas por miserables y sirven para que las
+saqueen los hombres fuertes--dijo Martín con violencia.
 
 --Eso es ser enemigo de la Humanidad.
 
-Martin se encogio de hombros.
+Martín se encogió de hombros.
 
-Poco despues de media noche, la nieve comenzo a cesar y Capistun dio la
-orden de marcha. El cielo habia quedado estrellado. Los pies se hundian
-en la nieve y se sentia un silencio de muerte.
+Poco después de media noche, la nieve comenzó a cesar y Capistun dió la
+orden de marcha. El cielo había quedado estrellado. Los pies se hundían
+en la nieve y se sentía un silencio de muerte.
 
---_Cantats, amics_--dijo el gascon, a quien tanta tristeza y tanto
-reposo imponian.
+--_Cantats, amics_--dijo el gascón, a quien tanta tristeza y tanto
+reposo imponían.
 
---No nos vayan a oir--advirtio Bautista.
+--No nos vayan a oir--advirtió Bautista.
 
---iCa!--y el gascon canto:
+--¡Ca!--y el gascón cantó:
 
-        iOan! iOan! lus de deuan
-        lus de darrer que seguiran.
+        ¡Oan! ¡Oan! lus de deuan
+        lus de darrer que seguirán.
         Lus de darrer oan, oan,
-        que seguiran a trot de can.
+        que seguirán a trot de can.
 
-(iAdelante! Adelante, los de delante y los de atras que seguiran. Los de
-atras, adelante, adelante, que seguiran al trote de can!)
+(¡Adelante! Adelante, los de delante y los de atrás que seguirán. Los de
+atrás, adelante, adelante, que seguirán al trote de can!)
 
-Era esta una vieja cancion gascona para medir la marcha; muy buena para
+Era esta una vieja canción gascona para medir la marcha; muy buena para
 el llano, pero poco oportuna en aquellos vericuetos.
 
-Bautista, animado por el ejemplo del gascon, canto un zortzico vasco
-frances, que decia asi:
+Bautista, animado por el ejemplo del gascón, cantó un zortzico vasco
+francés, que decía así:
 
         Gau erdi da
         errico orenean
-        inon ez da
+        iñon ez da
         arguiric lurrean
         ez diteque
         mendian adi deuzic
@@ -2225,12 +2077,12 @@ frances, que decia asi:
         arrabotza baicic.
 
 (Es media noche en el reloj del pueblo, en ninguna parte hay luz, en la
-tierra; no se puede, en el monte, oir mas que el rumor estruendoso del
+tierra; no se puede, en el monte, oir más que el rumor estruendoso del
 viento.)
 
-La cancion de Bautista era de una salvaje melancolia; Martin lanzo un
+La canción de Bautista era de una salvaje melancolía; Martín lanzó un
 grito, el _irrintzi_, como una larga carcajada, o un relincho salvaje
-terminado en una risa burlona. Capistun, como protestando, canto:
+terminado en una risa burlona. Capistun, como protestando, cantó:
 
         Del castelet a l'aube
         sort Isabeu,
@@ -2240,479 +2092,479 @@ terminado en una risa burlona. Capistun, como protestando, canto:
 (Del castillete, al alba, sale Isabel; es blanquita su ropa como la
 nieve.)
 
-A Martin y a Bautista no les gustaban las canciones del gascon que les
-parecian empalagosas, y a este tampoco las de sus amigos, a las cuales
+A Martín y a Bautista no les gustaban las canciones del gascón que les
+parecían empalagosas, y a éste tampoco las de sus amigos, a las cuales
 encontraba siniestras. Discutieron acerca de las excelencias de sus
-respectivos paises, pasando de los cantos populares a hablar de las
+respectivos países, pasando de los cantos populares a hablar de las
 costumbres y de la riqueza.
 
 Iba a amanecer; comenzaban a acercarse a Vera, cuando se oyeron a lo
 lejos varios tiros.
 
---?Que pasa aqui?--se preguntaron.
+--¿Qué pasa aquí?--se preguntaron.
 
 Tras de un instante se volvieron a oir nuevos tiros y un lejano sonido
 de campanas.
 
 --Hay que ver lo que es.
 
-Decidieron como mas practico que Capistun, con las cuatro mulas, se
+Decidieron como más práctico que Capistun, con las cuatro mulas, se
 volviera y se encaminara despacio hacia la choza de carabineros donde
-habian pasado la noche. Si no ocurria nada en Vera, Bautista y Zalacain
-retornarian inmediatamente. Si en dos horas no estaban alla, Capistun
-debia ganar la frontera y refugiarse en Francia: en Biriatu, en Zaro,
+habían pasado la noche. Si no ocurría nada en Vera, Bautista y Zalacaín
+retornarían inmediatamente. Si en dos horas no estaban allá, Capistun
+debía ganar la frontera y refugiarse en Francia: en Biriatu, en Zaro,
 donde pudiese.
 
-Las mulas volvieron de nuevo camino del puerto, y Zalacain y su cunado
-comenzaron a bajar del monte en linea recta, saltando, deslizandose
-sobre la nieve, a riesgo de despenarse. Media hora despues, entraban en
-las calles de Alzate, cuyas puertas se veian cerradas.
+Las mulas volvieron de nuevo camino del puerto, y Zalacaín y su cuñado
+comenzaron a bajar del monte en línea recta, saltando, deslizándose
+sobre la nieve, a riesgo de despeñarse. Media hora después, entraban en
+las calles de Alzate, cuyas puertas se veían cerradas.
 
-Llamaron en una posada conocida. Tardaron en abrir, y al ultimo el
-posadero, amedrentado, se presento en la puerta.
+Llamaron en una posada conocida. Tardaron en abrir, y al último el
+posadero, amedrentado, se presentó en la puerta.
 
---?Que pasa?--pregunto Zalacain.
+--¿Qué pasa?--preguntó Zalacaín.
 
 --Que ha entrado en Vera otra vez la partida del Cura.
 
-Bautista y Martin sabian la reputacion del Cura y su enemistad con
+Bautista y Martín sabían la reputación del Cura y su enemistad con
 algunos generales carlistas y convinieron en que era peligroso llevar el
-alijo a Vera o a Lesaca, mientras anduvieran por alli las gentes del
+alijo a Vera o a Lesaca, mientras anduvieran por allí las gentes del
 ensotanado cabecilla.
 
 --Vamos en seguida a darle el aviso a Capistun--dijo Bautista.
 
---Bueno, vete tu--repuso Martin--yo te alcanzo en seguida.
+--Bueno, vete tú--repuso Martín--yo te alcanzo en seguida.
 
---?Que vas a hacer?
+--¿Qué vas a hacer?
 
 --Voy a ver si veo a Catalina.
 
---Yo te esperare.
+--Yo te esperaré.
 
-Catalina y su madre vivian en una magnifica casa de Alzate. Llamo
-Martin en ella, y a la criada, que ya le conocia, la dijo:
+Catalina y su madre vivían en una magnífica casa de Alzate. Llamó
+Martín en ella, y a la criada, que ya le conocía, la dijo:
 
---?Esta Catalina?
+--¿Está Catalina?
 
---Si... Pasa.
+--Sí... Pasa.
 
-Entro en la cocina. Era esta grande y espaciosa y algo obscura.
+Entró en la cocina. Era ésta grande y espaciosa y algo obscura.
 Alrededor de la ancha campana de la chimenea colgaba una tela blanca
 planchada, sujeta por clavos. Del centro de la campana bajaba una gruesa
 cadena negra, en cuyo garfio final se enganchaba un caldero. A un lado
-de la chimenea, habia un banquillo de piedra, sobre el cual estaban en
+de la chimenea, había un banquillo de piedra, sobre el cual estaban en
 fila tres herradas con los aros de hierro brillantes, como si fueran de
-plata. En las paredes se veian cacerolas de cobre rojizo y lodos los
+plata. En las paredes se veían cacerolas de cobre rojizo y lodos los
 chismes de la cocina de la casa, desde las sartenes y cucharas de palo,
-hasta el calentador, que tambien figuraba colgado en la pared como parte
-integrante de la bateria de cocina.
+hasta el calentador, que también figuraba colgado en la pared como parte
+integrante de la batería de cocina.
 
-Aquel orden parecia algo absurdo y extraordinario, contrastado con la
-agitacion exterior.
+Aquel orden parecía algo absurdo y extraordinario, contrastado con la
+agitación exterior.
 
-La criada habia subido la escalera y, tras de algun tiempo, bajo
-Catalina envuelta en un manton.
+La criada había subido la escalera y, tras de algún tiempo, bajó
+Catalina envuelta en un mantón.
 
---?Eres tu?--dijo sollozando.
+--¿Eres tú?--dijo sollozando.
 
---Si, ?que pasa?
+--Sí, ¿qué pasa?
 
-Catalina, llorando, conto que su madre estaba muy enferma, su hermano se
-habia ido con los carlistas y a ella querian meterla en un convento.
+Catalina, llorando, contó que su madre estaba muy enferma, su hermano se
+había ido con los carlistas y a ella querían meterla en un convento.
 
---?A donde te quieren llevar?
+--¿A dónde te quieren llevar?
 
---No se, todavia no se ha decidido.
+--No sé, todavía no se ha decidido.
 
---Cuando lo sepas, escribeme.
+--Cuando lo sepas, escríbeme.
 
---Si, no tengas cuidado. Ahora vete, Martin, porque mi madre habra oido
-que estamos hablando y, como ha sentido los tiros hace poco, esta muy
+--Sí, no tengas cuidado. Ahora vete, Martín, porque mi madre habrá oído
+que estamos hablando y, como ha sentido los tiros hace poco, está muy
 alarmada.
 
-Efectivamente, se oyo poco despues una voz debil que exclamaba:
+Efectivamente, se oyó poco después una voz débil que exclamaba:
 
---iCatalina! iCatalina! ?Con quien hablas?
+--¡Catalina! ¡Catalina! ¿Con quién hablas?
 
-Catalina tendio la mano a Martin, quien la estrecho en sus brazos. Ella
-apoyo la cabeza en el hombro de su novio y, viendo que la volvian a
-llamar subio la escalera. Zalacain la contemplo absorto y luego abrio la
-puerta de la casa, la cerro despacio y, al encontrarse en la calle, se
-vio con un espectaculo inesperado. Bautista discutia a gritos con tres
-hombres armados, que no parecian tener para el muy buenas disposiciones.
+Catalina tendió la mano a Martín, quien la estrechó en sus brazos. Ella
+apoyó la cabeza en el hombro de su novio y, viendo que la volvían a
+llamar subió la escalera. Zalacaín la contempló absorto y luego abrió la
+puerta de la casa, la cerró despacio y, al encontrarse en la calle, se
+vió con un espectáculo inesperado. Bautista discutía a gritos con tres
+hombres armados, que no parecían tener para él muy buenas disposiciones.
 
---?Que pasa?--pregunto Martin.
+--¿Qué pasa?--preguntó Martín.
 
 Pasaba, sencillamente, que aquellos tres individuos eran de la partida
-del Cura y habian presentado a Bautista Urbide este sencillo dilema:
+del Cura y habían presentado a Bautista Urbide este sencillo dilema:
 
-"O formar parte de la partida o quedar prisionero y recibir ademas, de
-propina, una tanda de palos."
+«O formar parte de la partida o quedar prisionero y recibir además, de
+propina, una tanda de palos.»
 
-Martin iba a lanzarse a defender a su cunado cuando vio que a un extremo
-de la calle aparecian cinco o seis mozos armados. En el otro esperaban
-diez o doce. Con su rapido instinto de comprender la situacion, Martin
-se dio cuenta de que no habia mas remedio que someterse y dijo a
+Martín iba a lanzarse a defender a su cuñado cuando vió que a un extremo
+de la calle aparecían cinco o seis mozos armados. En el otro esperaban
+diez o doce. Con su rápido instinto de comprender la situación, Martín
+se dió cuenta de que no había más remedio que someterse y dijo a
 Bautista, en vascuence, aparentando gran jovialidad:
 
---iQue demonio, Bautista! ?No querias tu entrar en una partida? ?No
+--¡Qué demonio, Bautista! ¿No querías tú entrar en una partida? ¿No
 somos carlistas? Pues ahora estamos a tiempo.
 
-Uno de los tres hombres, viendo como se explicaba Zalacain, exclamo
+Uno de los tres hombres, viendo como se explicaba Zalacaín, exclamó
 satisfecho:
 
---_iArrayua!_ Este es de los nuestros. Venid los dos.
+--_¡Arrayua!_ Este es de los nuestros. Venid los dos.
 
 El tal hombre era un aldeano alto, flaco, vestido con un uniforme
-destrozado y una pipa de barro en la boca. Parecia el jefe y le llamaban
-Luschia.
+destrozado y una pipa de barro en la boca. Parecía el jefe y le llamaban
+Luschía.
 
-Martin y Bautista siguieron a los mozos armados, pasaron de Alzate a
-Vera y se detuvieron en una casa, en cuya puerta habia un centinela.
+Martín y Bautista siguieron a los mozos armados, pasaron de Alzate a
+Vera y se detuvieron en una casa, en cuya puerta había un centinela.
 
---iBajadlos! iBajadlos!--dijo Luschia a su gente.
+--¡Bajadlos! ¡Bajadlos!--dijo Luschía a su gente.
 
 Cuatro mozos entraron en el portal y subieron por la escalera.
 
-Luschia, mientras tanto, pregunto a Martin:
+Luschía, mientras tanto, preguntó a Martín:
 
---?Vosotros de donde sois?
+--¿Vosotros de dónde sois?
 
 --De Zaro.
 
---?Sois franceses?
+--¿Sois franceses?
 
---Si--dijo Bautista.
+--Sí--dijo Bautista.
 
-Martin no quiso decir que el no lo era, sabiendo que el decir que era
-frances podia protegerle.
+Martín no quiso decir que él no lo era, sabiendo que el decir que era
+francés podía protegerle.
 
---Bueno, bueno--murmuro el jefe.
+--Bueno, bueno--murmuró el jefe.
 
-Los cuatro aldeanos de la partida que habian entrado en la casa trajeron
+Los cuatro aldeanos de la partida que habían entrado en la casa trajeron
 a dos viejos.
 
---iAtadlos!--dijo Luschia, el aldeano de la pipa.
+--¡Atadlos!--dijo Luschía, el aldeano de la pipa.
 
 Sacaron a la calle un tambor de regimiento y un cesto, y a los dos
 viejos los ataron.
 
---?Que es lo que han hecho?--pregunto Martin a uno de la partida que
+--¿Qué es lo que han hecho?--preguntó Martín a uno de la partida que
 llevaba una boina a rayas.
 
---Que son traidores--contesto este.
+--Que son traidores--contestó éste.
 
 El uno era un maestro de escuela y el otro un expartidario de la
 guerrilla del Cura.
 
-Cuando estuvieron las dos victimas atadas y con las espaldas desnudas,
-el ejecutor de la justicia, el mozo de la boina a rayas, se remango el
-brazo y cogio una vara.
+Cuando estuvieron las dos víctimas atadas y con las espaldas desnudas,
+el ejecutor de la justicia, el mozo de la boina a rayas, se remangó el
+brazo y cogió una vara.
 
-El maestro de escuela, suplicante, imploro:
+El maestro de escuela, suplicante, imploró:
 
---iPero si todos somos unos!
+--¡Pero si todos somos unos!
 
 El exguerrillero no dijo nada.
 
-No hubo apelacion ni misericordia. Al primer golpe, el maestro de
-escuela perdio el sentido; el otro, el antiguo lugarteniente del Cura,
-callo y comenzo a recibir los palos con un estoicismo siniestro.
+No hubo apelación ni misericordia. Al primer golpe, el maestro de
+escuela perdió el sentido; el otro, el antiguo lugarteniente del Cura,
+calló y comenzó a recibir los palos con un estoicismo siniestro.
 
-Luschia se puso a hablar con Zalacain. Este le conto una porcion de
-mentiras. Entre ellas le dijo que el mismo habia guardado cerca de
-Urdax, en una cueva, mas de treinta fusiles modernos. El hombre oia y,
-de cuando en cuando, volviendose al ejecutor de sus ordenes, decia con
-voz gangosa: _iJo! iJo!_ (Pega, pega).
+Luschía se puso a hablar con Zalacaín. Este le contó una porción de
+mentiras. Entre ellas le dijo que él mismo había guardado cerca de
+Urdax, en una cueva, más de treinta fusiles modernos. El hombre oía y,
+de cuando en cuando, volviéndose al ejecutor de sus órdenes, decía con
+voz gangosa: _¡Jo! ¡Jo!_ (Pega, pega).
 
-Y volvia a caer la vara cobre las espaldas desnudas.
-
-
+Y volvía a caer la vara cobre las espaldas desnudas.
 
 
-CAPITULO III
+
+
+CAPÍTULO III
 
 DE ALGUNOS HOMBRES DECIDIDOS QUE FORMABAN LA PARTIDA DEL CURA
 
 
-Concluida la paliza, Luschia dio la orden de marcha, y los quince o
+Concluída la paliza, Luschía dió la orden de marcha, y los quince o
 veinte hombres tomaron hacia Oyarzun, por el camino que pasa por la
-Cuesta de la Agonia.
+Cuesta de la Agonía.
 
-La partida iba en dos grupos; en el primero marchaba Martin y en el
+La partida iba en dos grupos; en el primero marchaba Martín y en el
 segundo Bautista.
 
-Ninguno de la partida tenia mal aspecto ni aire patibulario. La mayoria
-parecian campesinos del pais; casi todos llevaban traje negro, boina
-azul pequena y algunos, en vez de botas, calzaban abarcas con pieles de
-carnero, que les envolvian las piernas.
+Ninguno de la partida tenía mal aspecto ni aire patibulario. La mayoría
+parecían campesinos del país; casi todos llevaban traje negro, boina
+azul pequeña y algunos, en vez de botas, calzaban abarcas con pieles de
+carnero, que les envolvían las piernas.
 
-Luschia, el jefe, era uno de los tenientes del Cura y ademas capitaneaba
+Luschía, el jefe, era uno de los tenientes del Cura y además capitaneaba
 su guardia negra. Sin duda, gozaba de la confianza del cabecilla. Era
 alto, huesudo, de nariz fenomenal, enjuto y seco.
 
-Tenia Luschia una cara que siempre daba la impresion de verla de
+Tenía Luschía una cara que siempre daba la impresión de verla de
 perfil, y la nuez puntiaguda.
 
-Parecia buena persona hasta cierto punto, insinuante y jovial.
-Consideraba, sin duda, una magnifica adquisicion la de Zalacain y
+Parecía buena persona hasta cierto punto, insinuante y jovial.
+Consideraba, sin duda, una magnífica adquisición la de Zalacaín y
 Bautista, pero desconfiaba de ellos y, aunque no como prisioneros, los
 llevaba separados y no les dejaba hablar a solas.
 
-Luschia tenia tambien sus lugartenientes; Praschcu, Belcha y el Corneta
-de Lasala. Praschcu era un moceton grueso, barbudo, sonriente y rojo,
-que, a juzgar por sus palabras, no pensaba mas que en comer y en beber
-bien. Durante el camino no hablo mas que de guisos y de comidas, de la
+Luschía tenía también sus lugartenientes; Praschcu, Belcha y el Corneta
+de Lasala. Praschcu era un mocetón grueso, barbudo, sonriente y rojo,
+que, a juzgar por sus palabras, no pensaba más que en comer y en beber
+bien. Durante el camino no habló más que de guisos y de comidas, de la
 cena que le quitaron al cura de tal pueblo o al maestro de escuela de
-tal otro, del cordero asado que comieron en este caserio y de las
+tal otro, del cordero asado que comieron en este caserío y de las
 botellas de sidra que encontraron en una taberna. Para Praschcu la
-guerra no era mas que una serie de comilonas y de borracheras.
+guerra no era más que una serie de comilonas y de borracheras.
 
-Belcha y el Corneta de Lasala iban acompanando a Bautista.
+Belcha y el Corneta de Lasala iban acompañando a Bautista.
 
-A Belcha (el negrito) le llamaban asi por ser pequeno y moreno; el
-Corneta de Lasala ostentaba una cicatriz violacea que le cruzaba la
-frente. Su apodo procedia de su oficio de capataz de los que dan la
-senal para el comienzo y el paro del trabajo con una bocina.
+A Belcha (el negrito) le llamaban así por ser pequeño y moreno; el
+Corneta de Lasala ostentaba una cicatriz violácea que le cruzaba la
+frente. Su apodo procedía de su oficio de capataz de los que dan la
+señal para el comienzo y el paro del trabajo con una bocina.
 
 Los de la partida llegaron a media noche a Arichulegui, un monte
-cercano a Oyarzun, y entraron en una borda proxima a la ermita.
+cercano a Oyarzun, y entraron en una borda próxima a la ermita.
 
-Esta borda era la guarida del Cura. Alli estaba su deposito de
+Esta borda era la guarida del Cura. Allí estaba su depósito de
 municiones.
 
-El cabecilla no estaba. Guardaba la borda un reten de unos veinte
-hombres. Se hizo pronto de noche. Zalacain y Bautista comieron un rancho
+El cabecilla no estaba. Guardaba la borda un retén de unos veinte
+hombres. Se hizo pronto de noche. Zalacaín y Bautista comieron un rancho
 de habas y durmieron sobre una hermosa cama de heno seco.
 
-Al dia siguiente, muy de manana, sintieron los dos que les despertaban
-de un empujon; se levantaron y oyeron la voz de Luschia:
+Al día siguiente, muy de mañana, sintieron los dos que les despertaban
+de un empujón; se levantaron y oyeron la voz de Luschía:
 
 --Hala. Vamos andando.
 
-Era todavia de noche; la partida estuvo lista en un momento. Al mediodia
-se detuvieron en Fagollaga y al anochecer llegaban a una venta proxima a
-Andoain, en donde hicieron alto. Entraron en la cocina. Segun dijo
-Luschia, alli se encontraba el Cura.
+Era todavía de noche; la partida estuvo lista en un momento. Al mediodía
+se detuvieron en Fagollaga y al anochecer llegaban a una venta próxima a
+Andoain, en donde hicieron alto. Entraron en la cocina. Según dijo
+Luschía, allí se encontraba el Cura.
 
-Efectivamente, poco despues, Luschia llamo a Zalacain y a Bautista.
+Efectivamente, poco después, Luschía llamó a Zalacaín y a Bautista.
 
 --Pasad--les dijo.
 
-Subieron por la escalera de madera hasta el desvan y llamaron en una
+Subieron por la escalera de madera hasta el desván y llamaron en una
 puerta.
 
---?Se puede?--pregunto Luschia.
+--¿Se puede?--preguntó Luschía.
 
 --Adelante.
 
-Zalacain, a pesar de ser templado, sintio un ligero estremecimiento en
-todo el cuerpo, pero se irguio y entro sonriente en el cuarto. Bautista
-llevaba el animo de protestar.
+Zalacaín, a pesar de ser templado, sintió un ligero estremecimiento en
+todo el cuerpo, pero se irguió y entró sonriente en el cuarto. Bautista
+llevaba el ánimo de protestar.
 
---Yo hablare--dijo Martin a su cunado--tu no digas nada.
+--Yo hablaré--dijo Martín a su cuñado--tu no digas nada.
 
-A la luz de un farol, se veia un cuarto, de cuyo techo colgaban mazorcas
-de maiz, y una mesa de pino, a la cual estaban sentados dos hombres. Uno
+A la luz de un farol, se veía un cuarto, de cuyo techo colgaban mazorcas
+de maíz, y una mesa de pino, a la cual estaban sentados dos hombres. Uno
 de ellos era el Cura, el otro su teniente, un cabecilla conocido por el
 apodo de _el Jabonero_.
 
---Buenas noches--dijo Zalacain en vascuence.
+--Buenas noches--dijo Zalacaín en vascuence.
 
---Buenas noches--contesto _el Jabonero_ amablemente.
+--Buenas noches--contestó _el Jabonero_ amablemente.
 
-El cura no contesto. Estaba leyendo un papel.
+El cura no contestó. Estaba leyendo un papel.
 
-Era un hombre regordete, mas bajo que alto, de tipo insignificante, de
-unos treinta y tantos anos. Lo unico que le daba caracter era la mirada,
+Era un hombre regordete, más bajo que alto, de tipo insignificante, de
+unos treinta y tantos años. Lo único que le daba carácter era la mirada,
 amenazadora, oblicua y dura.
 
-Al cabo de algunos minutos, el cura levanto la vista y dijo:
+Al cabo de algunos minutos, el cura levantó la vista y dijo:
 
 --Buenas noches.
 
-Luego siguio leyendo.
+Luego siguió leyendo.
 
-Habia en todo aquello algo ensayado para infundir terror. Zalacain lo
-comprendio y se mostro indiferente y contemplo sin turbarse al cura.
-Llevaba este la boina negra inclinada sobre la frente, como si temiera
+Había en todo aquello algo ensayado para infundir terror. Zalacaín lo
+comprendió y se mostró indiferente y contempló sin turbarse al cura.
+Llevaba éste la boina negra inclinada sobre la frente, como si temiera
 que le mirasen a los ojos; gastaba barba ya ruda y crecida, el pelo
-corto, un panuelo en el cuello, un chaqueton negro con todos los botones
+corto, un pañuelo en el cuello, un chaquetón negro con todos los botones
 abrochados y un garrote entre las piernas.
 
-Aquel hombre tenia algo de esa personalidad enigmatica de los seres
+Aquel hombre tenía algo de esa personalidad enigmática de los seres
 sanguinarios, de los asesinos y de los verdugos; su fama de cruel y de
-barbaro se extendia por toda Espana. El lo sabia y, probablemente,
+bárbaro se extendía por toda España. Él lo sabía y, probablemente,
 estaba orgulloso del terror que causaba su nombre. En el fondo era un
-pobre diablo histerico, enfermo, convencido de su mision providencial.
-Nacido, segun se decia, en el arroyo, en Elduayen, habia llegado a
-ordenarse y a tener un curato en un pueblecito proximo a Tolosa. Un dia
-estaba celebrando misa, cuando fueron a prenderle. Pretexto el cura el
-ir a quitarse los habitos y se tiro por una ventana y huyo y empezo a
+pobre diablo histérico, enfermo, convencido de su misión providencial.
+Nacido, según se decía, en el arroyo, en Elduayen, había llegado a
+ordenarse y a tener un curato en un pueblecito próximo a Tolosa. Un día
+estaba celebrando misa, cuando fueron a prenderle. Pretextó el cura el
+ir a quitarse los hábitos y se tiró por una ventana y huyó y empezó a
 organizar su partida.
 
-Aquel hombre siniestro se encontro sorprendido ante la presencia y la
-serenidad de Zalacain y de Bautista, y sin mirarles les pregunto:
+Aquel hombre siniestro se encontró sorprendido ante la presencia y la
+serenidad de Zalacaín y de Bautista, y sin mirarles les preguntó:
 
---?Sois vascongados?
+--¿Sois vascongados?
 
---Si--dijo Martin avanzando.
+--Sí--dijo Martín avanzando.
 
---?Que haciais?
+--¿Qué hacíais?
 
 --Contrabando de armas.
 
---?Para quien?
+--¿Para quién?
 
 --Para los carlistas.
 
---?Con que comite os entendiais?
+--¿Con qué comité os entendíais?
 
 --Con Bayona.
 
---?Que fusiles habeis traido?
+--¿Qué fusiles habéis traído?
 
 --Berdan y Chassepot.
 
---?Es verdad que teneis armas escondidas cerca de Urdax?
+--¿Es verdad que tenéis armas escondidas cerca de Urdax?
 
---Ahi y en otros puntos.
+--Ahí y en otros puntos.
 
---?Para quien las traiais?
+--¿Para quién las traíais?
 
 --Para los navarros.
 
 --Bueno. Iremos a buscarlas. Si no las encontramos, os fusilaremos.
 
---Esta bien--dijo friamente Zalacain.
+--Está bien--dijo fríamente Zalacaín.
 
---Marchaos--repuso el cura, molesto por no haber intimidado a sus
+--Marcháos--repuso el cura, molesto por no haber intimidado a sus
 interlocutores.
 
-Al salir, en la escalera, _el Jabonero_ se acerco a ellos.
+Al salir, en la escalera, _el Jabonero_ se acercó a ellos.
 
-Este tenia aspecto de militar, de hombre amable y bien educado.
+Éste tenía aspecto de militar, de hombre amable y bien educado.
 
-Habia sido guardia civil.
+Había sido guardia civil.
 
---No temais--dijo--. Si cumplis bien, nada os pasara.
+--No temáis--dijo--. Si cumplís bien, nada os pasará.
 
---Nada tememos--contesto Martin.
+--Nada tememos--contestó Martín.
 
-Fueron los tres a la cocina de la posada, y _el Jabonero_ se mezclo
+Fueron los tres a la cocina de la posada, y _el Jabonero_ se mezcló
 entre la gente de la partida, que esperaba la cena.
 
-Se reunieron en la misma mesa _el Jabonero_, Luschia, Belcha, el corneta
+Se reunieron en la misma mesa _el Jabonero_, Luschía, Belcha, el corneta
 de Lasala y uno gordo, a quien llamaban Anchusa.
 
 _El Jabonero_ no quiso aceptar en la mesa a Praschcu, porque dijo que si
-a aquel barbaro le ponian a comer al principio, no dejaba nada a los
-demas.
+a aquel bárbaro le ponían a comer al principio, no dejaba nada a los
+demás.
 
 Con este motivo, un muchacho joven, exseminarista, apellidado Dantchari
-y conocido tambien por el mote de _el Estudiante_, que formaba parte de
-la partida, recordo la cancion de Vilinch, que se llama la Cancion del
-Potaje, y, como en ella el autor se burla de un cura tragon, tuvo que
+y conocido también por el mote de _el Estudiante_, que formaba parte de
+la partida, recordó la canción de Vilinch, que se llama la Canción del
+Potaje, y, como en ella el autor se burla de un cura tragón, tuvo que
 cantarla en voz baja, para que no se enterara el cabecilla.
 
-El posadero trajo la cena y una porcion de botellas de vino y de sidra,
-y, como la caminata desde Arichulegui hasta alla les habia abierto el
+El posadero trajo la cena y una porción de botellas de vino y de sidra,
+y, como la caminata desde Arichulegui hasta allá les había abierto el
 apetito, se lanzaron sobre las viandas como fieras hambrientas.
 
 Estaban cenando, cuando llamaron a la puerta:
 
---?Quien va?--dijo el posadero.
+--¿Quién va?--dijo el posadero.
 
 --Yo. Un amigo--contestaron de fuera.
 
---?Quien eres tu?
+--¿Quién eres tú?
 
 --Ipintza, _el Loco_.
 
 --Pasa.
 
-Se abrio la puerta y entro un viejo mendigo envuelto en una anguarina
+Se abrió la puerta y entró un viejo mendigo envuelto en una anguarina
 parda, con una de las mangas atadas y convertida en bolsillo. Dantchari
-_el Estudiante_ le conocia y dijo que era un vendedor de canciones a
-quien tenian por loco, porque cantaba y bailaba recitandolas.
+_el Estudiante_ le conocía y dijo que era un vendedor de canciones a
+quien tenían por loco, porque cantaba y bailaba recitándolas.
 
-Se sento Ipintza, _el Loco_, a la mesa y le dio el posadero las sobras
-de la cena. Luego se acerco al grupo que formaban los hombres de la
+Se sentó Ipintza, _el Loco_, a la mesa y le dió el posadero las sobras
+de la cena. Luego se acercó al grupo que formaban los hombres de la
 partida alrededor de la chimenea.
 
---?No quereis alguna cancion?--dijo.
+--¿No queréis alguna canción?--dijo.
 
---?Que canciones tienes?--le pregunto _el Estudiante_.
+--¿Qué canciones tienes?--le preguntó _el Estudiante_.
 
 --Tengo muchas. La de la mujer que se queja del marido, la del marido
 que se queja de la mujer, Pello Joshepe...
 
 --Todo eso es viejo.
 
---Tambien tengo Hurra Pepito y la cancion entre amo y criado.
+--También tengo Hurra Pepito y la canción entre amo y criado.
 
 --Ese es liberal--dijo Dantchari.
 
---No se--contesto Ipintza, _el Loco_.
+--No sé--contestó Ipintza, _el Loco_.
 
---?Como que no sabes? Yo creo que tu no eres del todo ortodoxo.
+--¿Cómo que no sabes? Yo creo que tú no eres del todo ortodoxo.
 
---No se lo que es eso. ?No quereis canciones?
+--No sé lo que es eso. ¿No queréis canciones?
 
---Pero, bueno, contesta. ?Eres ortodoxo o heterodoxo?
+--Pero, bueno, contesta. ¿Eres ortodoxo o heterodoxo?
 
---Ya te he dicho que no se.
+--Ya te he dicho que no sé.
 
---Que opinas de la Trinidad?
+--Qué opinas de la Trinidad?
 
---No se.
+--No sé.
 
---?Como que no sabes? iY te atreves a decirlo! ?De donde procede el
-Espiritu Santo? ?Procede del Padre o procede del Hijo, o de los dos? ?O
-es que tu crees que su hipostasis es consustancial con la hipostasis del
+--¿Cómo que no sabes? ¡Y te atreves a decirlo! ¿De dónde procede el
+Espíritu Santo? ¿Procede del Padre o procede del Hijo, o de los dos? ¿O
+es que tú crees que su hipóstasis es consustancial con la hipóstasis del
 Padre o la del Hijo?
 
---No se nada de eso. ?Quereis canciones? ?No quereis comprar canciones a
+--No sé nada de eso. ¿Queréis canciones? ¿No queréis comprar canciones a
 Ipintza, _el Loco_?
 
---iAh! ?De manera que no contestas? Entonces eres heretico. _Anathema
-sit_. Estas excomulgado.
+--¡Ah! ¿De manera que no contestas? Entonces eres herético. _Anathema
+sit_. Estás excomulgado.
 
---iYo! ?Excomulgado?--dijo Ipintza lleno de terror, y retrocedio y
-enarbolo su blanco garrote.
+--¡Yo! ¿Excomulgado?--dijo Ipintza lleno de terror, y retrocedió y
+enarboló su blanco garrote.
 
---Bueno, bueno--grito Luschia al estudiante--. Basta de bromas.
+--Bueno, bueno--gritó Luschía al estudiante--. Basta de bromas.
 
-Praschcu echo unas cuantas brazadas de ramas secas. Chisporroteo el
-fuego alegremente; despues, unos se pusieron a jugar al mus y Bautista
-lucio su magnifica voz cantando varios zortzicos.
+Praschcu echó unas cuantas brazadas de ramas secas. Chisporroteó el
+fuego alegremente; después, unos se pusieron a jugar al mus y Bautista
+lució su magnífica voz cantando varios zortzicos.
 
-Dantchari, _el Estudiante_, desafio a echar versos a Bautista y este
-acepto el desafio. Los dos comenzaron con el estribillo:
+Dantchari, _el Estudiante_, desafió a echar versos a Bautista y éste
+aceptó el desafío. Los dos comenzaron con el estribillo:
 
         Orain esango dizut
         nic zuri eguia.
 
-(Ahora te dire yo la verdad.)
+(Ahora te diré yo la verdad.)
 
-Y la fuerza del consonante les hizo decir una porcion de disparates y de
-astracanadas que produjeron el entusiasmo de la reunion.
+Y la fuerza del consonante les hizo decir una porción de disparates y de
+astracanadas que produjeron el entusiasmo de la reunión.
 
-Ambos merecieron placemes y aplausos. Luego, Dantchari aseguro que sabia
-imitar la voz de tiple, y entre Bautista y el cantaron la cancion que
+Ambos merecieron plácemes y aplausos. Luego, Dantchari aseguró que sabía
+imitar la voz de tiple, y entre Bautista y él cantaron la canción que
 comienza diciendo:
 
-        Marichu, ?nora zuaz
+        Marichu, ¿ñora zuaz
         eder galant ori?
 
-(Maria, ?a donde vas tan bonita?)
+(María, ¿a dónde vas tan bonita?)
 
-Bautista cantando de mozo y Dantchari de chica, dirigiendose preguntas y
+Bautista cantando de mozo y Dantchari de chica, dirigiéndose preguntas y
 respuestas de burlona ingenuidad, hicieron las delicias de la
 concurrencia.
 
-Luego, Bautista canto la bella cancion del pais de Soul, que dice asi:
+Luego, Bautista cantó la bella canción del país de Soul, que dice así:
 
         Urzo churia errazu
         Nora yoaten cera zu
@@ -2721,143 +2573,143 @@ Luego, Bautista canto la bella cancion del pais de Soul, que dice asi:
         Gaur arratzean ostatu
         Gure echean badezu.
 
-(Paloma blanca, dime a donde vas. Todos los montes de Espana estan
+(Paloma blanca, dime a dónde vas. Todos los montes de España están
 llenos de nieve. Si quieres albergue para esta noche, lo tienes en mi
 casa.)
 
-Los de la partida aplaudieron, pero mas que esta cancion romantica les
-gusto el duo anterior, y _el Jabonero_, comprendiendolo asi, compro a
-Ipintza, _el Loco_, un papel, que era la letra de la nueva cancion de
-Vilinch, llamada "Juana Vishenta Olave", escrita por el autor
-adaptandola a un aire popular titulado iOrra Pepito!
+Los de la partida aplaudieron, pero más que esta canción romántica les
+gustó el dúo anterior, y _el Jabonero_, comprendiéndolo así, compró a
+Ipintza, _el Loco_, un papel, que era la letra de la nueva canción de
+Vilinch, llamada «Juana Vishenta Olave», escrita por el autor
+adaptándola a un aire popular titulado ¡Orra Pepito!
 
-La cancion de Vilinch era un dialogo amoroso entre el propietario de un
-caserio y la hija del arrendador, a quien trata de conquistar.
+La canción de Vilinch era un diálogo amoroso entre el propietario de un
+caserío y la hija del arrendador, a quien trata de conquistar.
 
-_El Estudiante_ se puso las enaguas de la posadera y se ato un panuelo
-en la cabeza, Bautista se calo un sombrero de copa que alguno encontro,
-no se sabe donde, y cantaron ambos el duo ingenuo de Vilinch, y la
-algazara fue tan grande que los cantores tuvieron que enmudecer porque
-el Cura grito desde arriba que no le dejaban dormir en paz.
+_El Estudiante_ se puso las enaguas de la posadera y se ató un pañuelo
+en la cabeza, Bautista se caló un sombrero de copa que alguno encontró,
+no se sabe dónde, y cantaron ambos el dúo ingenuo de Vilinch, y la
+algazara fué tan grande que los cantores tuvieron que enmudecer porque
+el Cura gritó desde arriba que no le dejaban dormir en paz.
 
-Cada cual fue a acostarse donde pudo, y Martin le dijo a Bautista en
-frances:
+Cada cual fué a acostarse donde pudo, y Martín le dijo a Bautista en
+francés:
 
---Cuidado, eh. Hay que estar preparados para escapar a la mejor ocasion.
+--Cuidado, eh. Hay que estar preparados para escapar a la mejor ocasión.
 
-Bautista movio la cabeza afirmativamente, dando a entender que no se
+Bautista movió la cabeza afirmativamente, dando a entender que no se
 olvidaba.
 
 
 
 
-CAPITULO IV
+CAPÍTULO IV
 
-HISTORIA CASI INVEROSIMIL DE JOSHE CRACASCH
+HISTORIA CASI INVEROSÍMIL DE JOSHÉ CRACASCH
 
 
-Los dos dias siguientes estuvo lloviendo y se paso la partida en la
-venta haciendo algunos reconocimientos por los alrededores. Ni Zalacain
-ni Bautista vieron al cura. Sin duda este no se presentaba mas que en
+Los dos días siguientes estuvo lloviendo y se pasó la partida en la
+venta haciendo algunos reconocimientos por los alrededores. Ni Zalacaín
+ni Bautista vieron al cura. Sin duda éste no se presentaba más que en
 las circunstancias graves.
 
 Como era natural entre tanta gente inactiva, se pasaron las horas al
 lado del fuego hablando y contando diversos episodios y aventuras.
 
-Habia en la partida un muchacho de Tolosa, muy melancolico, cuyas unicas
-ocupaciones eran mirarse a un espejito de mano y tocar el acordeon. Este
-muchacho se llamaba Jose Cacochipi y algunos, a sus espaldas, le decian
-Jose Cracasch o sea en castellano Jose Manchas.
+Había en la partida un muchacho de Tolosa, muy melancólico, cuyas únicas
+ocupaciones eran mirarse a un espejito de mano y tocar el acordeón. Este
+muchacho se llamaba José Cacochipi y algunos, a sus espaldas, le decían
+José Cracasch o sea en castellano José Manchas.
 
-Martin y Bautista le preguntaron varias veces que le pasaba para estar
-tan triste, si es que le dolian las muelas, si tenia las digestiones
-lentas, disgustos de familia o algun desorden en la vejiga; a todas
+Martín y Bautista le preguntaron varias veces qué le pasaba para estar
+tan triste, si es que le dolían las muelas, si tenía las digestiones
+lentas, disgustos de familia o algún desorden en la vejiga; a todas
 estas preguntas contestaba Cacochipi, alias _Cracasch_, diciendo que no
 le pasaba nada, pero suspiraba como si le ocurrieran todas esas
 calamidades al mismo tiempo.
 
-Como el tal Cacochipi constituia un misterio, Martin pregunto a
-Dantchari, _el Estudiante_, si por ser tolosano sabia la historia de su
-conterraneo y amigo, y el exseminarista dijo:
+Como el tal Cacochipi constituía un misterio, Martín preguntó a
+Dantchari, _el Estudiante_, si por ser tolosano sabía la historia de su
+conterráneo y amigo, y el exseminarista dijo:
 
---Si no le decis nada, os contare la historia de Joshe, pero habeis de
-prometerme no burlaros de el.
+--Si no le decís nada, os contaré la historia de Joshé, pero habéis de
+prometerme no burlaros de él.
 
---No nos burlaremos de el ni le diremos nada.
+--No nos burlaremos de él ni le diremos nada.
 
-Dantchari hablaba en castellano con esa pedanteria clasica de los curas
+Dantchari hablaba en castellano con esa pedantería clásica de los curas
 y seminaristas, que creen indispensable, para mayor claridad, decir de
-cuando en cuando alguna palabra en latin entre personas que ignoran en
+cuando en cuando alguna palabra en latín entre personas que ignoran en
 absoluto este idioma.
 
---Pues habeis de saber--dijo Dantchari--que Jose Cacochipi, el hijo
-menor de Andre Anthoni la confitera, ha sido conocido siempre, _urbi et
-orbe_ por el apodo de Joshe Cracasch.
+--Pues habéis de saber--dijo Dantchari--que José Cacochipi, el hijo
+menor de André Anthoni la confitera, ha sido conocido siempre, _urbi et
+orbe_ por el apodo de Joshé Cracasch.
 
-Este apodo lo tenia muy merecido porque Joshe era hace anos, y aun hace
-meses, el mozo mas abandonado de la ciudad y de los contornos; asi que
-todo el pueblo, _nemine discrepante_, lo apodaba Cracasch.
+Este apodo lo tenía muy merecido porque Joshé era hace años, y aun hace
+meses, el mozo más abandonado de la ciudad y de los contornos; así que
+todo el pueblo, _némine discrepante_, lo apodaba Cracasch.
 
-Joshe no ha tenido hasta hace poco mas pasion que la musica.
+Joshé no ha tenido hasta hace poco más pasión que la música.
 
-Quisieron hacerle estudiar para cura y ordenarle _in sacris_, pero fue
+Quisieron hacerle estudiar para cura y ordenarle _in sacris_, pero fué
 imposible.
 
-Se puede decir de el que es musico _per se_ y hombre _per accidens_.
+Se puede decir de él que es músico _per se_ y hombre _per accidens_.
 
-Durante muchos anos se ha pasado ocho o nueve horas en el piano haciendo
-ejercicios y, como no ha tenido alma mas que para la musica, en todo lo
-demas ha sido un descuidado horrible.
+Durante muchos años se ha pasado ocho o nueve horas en el piano haciendo
+ejercicios y, como no ha tenido alma más que para la música, en todo lo
+demás ha sido un descuidado horrible.
 
 Llevaba el traje lleno de lamparones, la boina sucia, el pelo largo, se
 olvidaba la corbata. Era una verdadera calamidad.
 
-Por eso se le llamaba Joshe Cracasch, y a el no solo no le ofendia el
-apodo, sino que le hacia gracia; en cambio su madre, Andre Anthoni, se
-ponia como una fiera cuando oia que a su hijo le daban este mote.
+Por eso se le llamaba Joshé Cracasch, y a él no sólo no le ofendía el
+apodo, sino que le hacía gracia; en cambio su madre, André Anthoni, se
+ponía como una fiera cuando oía que a su hijo le daban este mote.
 
-Hara un ano proximamente que un indiano rico llamado Arizmendi, y que
-dicen que ha sido pirata... yo no lo se, _relata refero_, llego al
-pueblo. Como digo, este senor le pregunto al parroco:
+Hará un año próximamente que un indiano rico llamado Arizmendi, y que
+dicen que ha sido pirata... yo no lo sé, _relata refero_, llegó al
+pueblo. Como digo, este señor le preguntó al párroco:
 
---?Que profesor de musica le podria yo poner a mi chico?
+--¿Qué profesor de música le podría yo poner a mi chico?
 
---El mejor, Jose Cacochipi--contesto el cura.
+--El mejor, José Cacochipi--contestó el cura.
 
-Le hablaron a Cracasch y este se encogio de hombros y dijo que bueno. Su
-madre le preparo ropa limpia y le advirtio que tuviera cuidado con lo
-que decia y que fuera prudente, pues la colocacion podia ser un _modus
-vivendi_ para el. Cracasch prometio ser prudentisimo.
+Le hablaron a Cracasch y éste se encogió de hombros y dijo que bueno. Su
+madre le preparó ropa limpia y le advirtió que tuviera cuidado con lo
+que decía y que fuera prudente, pues la colocación podía ser un _modus
+vivendi_ para él. Cracasch prometió ser prudentísimo.
 
-Llego el primer dia a casa de Arizmendi y pregunto por el amo.
+Llegó el primer día a casa de Arizmendi y preguntó por el amo.
 
-Salio a abrirle una muchacha, y poco despues se presento un senor. La
+Salió a abrirle una muchacha, y poco después se presentó un señor. La
 muchacha le dijo que dejara la boina en el colgador.
 
---?Para que?--replico Joshe--y luego, dirigiendose al senor, le
-pregunto:--?Es la criada, eh?
+--¿Para qué?--replicó Joshé--y luego, dirigiéndose al señor, le
+preguntó:--¿Es la criada, eh?
 
---No, esta senorita es mi hija--contesto friamente el senor Arizmendi.
+--No, esta señorita es mi hija--contestó fríamente el señor Arizmendi.
 
-Cracasch comprendio que habia dado un tropiezo y para enmendarlo, dijo:
+Cracasch comprendió que había dado un tropiezo y para enmendarlo, dijo:
 
---Es muy guapa. iYa se parece a usted, ya!
+--Es muy guapa. ¡Ya se parece a usted, ya!
 
---No. Si es hijastra mia--contesto el senor Arizmendi.
+--No. Si es hijastra mía--contestó el señor Arizmendi.
 
---Ja, ja... ique risa!... Ya tendra novio, eh.
+--Ja, ja... ¡qué risa!... Ya tendrá novio, eh.
 
-Cacochipi fue a dar en un punto que preocupaba a la familia, pues la
-muchacha tenia amores, a disgusto de los padres, con un primo.
+Cacochipi fué a dar en un punto que preocupaba a la familia, pues la
+muchacha tenía amores, a disgusto de los padres, con un primo.
 
-El senor Arizmendi le dijo que no hiciera mas preguntas impertinentes,
-que ya sabia que era medio bobo, pero que aprendiese a reportarse.
+El señor Arizmendi le dijo que no hiciera más preguntas impertinentes,
+que ya sabía que era medio bobo, pero que aprendiese a reportarse.
 
-Joshe, muy extranado con tal exabrupto, fue al cuarto del chico, donde
-dio su primera leccion de solfeo. Aquellas palabras duras del senor
-Arizmendi, mas que ofender le extranaron. Joshe no tenia ninguna
-malicia, toda su vida la habia pasado pensando en la musica, y de otras
-cosas nada sabia.
+Joshé, muy extrañado con tal exabrupto, fué al cuarto del chico, donde
+dió su primera lección de solfeo. Aquellas palabras duras del señor
+Arizmendi, más que ofender le extrañaron. Joshé no tenía ninguna
+malicia, toda su vida la había pasado pensando en la música, y de otras
+cosas nada sabía.
 
 A Cacochipi, que estuvo varias veces invitado a comer con la familia de
 Arizmendi, le chocaba la tristeza del padre y de la madre y de las
@@ -2865,340 +2717,340 @@ hermanas y quiso alegrarles un poco; porque, como dice el profano:
 _Omissis curis, jucunde vivendum esse_; lo cual quiere decir que se debe
 vivir alegremente y sin cuidados.
 
-Lo primero que se le ocurrio a Cracasch, un dia que se le figuro que ya
-tenia confianza con la familia de Arizmendi, fue, a los postres, imitar
-el ruido del tren; luego intento cantar una cancion que en la taberna
-tenia mucho exito. En esta cancion se hace como si se tocara la flauta y
+Lo primero que se le ocurrió a Cracasch, un día que se le figuró que ya
+tenía confianza con la familia de Arizmendi, fué, a los postres, imitar
+el ruido del tren; luego intentó cantar una canción que en la taberna
+tenía mucho éxito. En esta canción se hace como si se tocara la flauta y
 el bombo, y como si se comiera en una cazuela, y luego medio se desnuda
-uno mientras canta. Joshe creia que, cuando el se quitara la chaqueta y
-el chaleco, toda la familia romperia a reir a carcajadas, pero fue todo
-lo contrario, porque el senor Arizmendi, mirandole con ojos terribles,
+uno mientras canta. Joshé creía que, cuando él se quitara la chaqueta y
+el chaleco, toda la familia rompería a reir a carcajadas, pero fué todo
+lo contrario, porque el señor Arizmendi, mirándole con ojos terribles,
 le dijo:
 
---Bueno, Cacochipi: pongase usted el chaleco y no vuelva usted a
-quitarselo delante de nosotros.
+--Bueno, Cacochipi: póngase usted el chaleco y no vuelva usted a
+quitárselo delante de nosotros.
 
-Joshe se quedo frio, y no precisamente por la falta del chaleco.
+Joshé se quedó frío, y no precisamente por la falta del chaleco.
 
---A esta gente no les hace gracia nada--murmuro.
+--A esta gente no les hace gracia nada--murmuró.
 
-Un dia, aparecio a dar la leccion con la cara pintada con varios lunares
-y no hizo efecto; otro, ayudado por su discipulo, ato los cubiertos a la
+Un día, apareció a dar la lección con la cara pintada con varios lunares
+y no hizo efecto; otro, ayudado por su discípulo, ató los cubiertos a la
 mesa... y nada.
 
---?Que tal, Cracasch?--le preguntaba alguno en la calle--. ?Como va la
+--¿Qué tal, Cracasch?--le preguntaba alguno en la calle--. ¿Cómo va la
 familia de Arizmendi?
 
---iAh! Es una gente que nada le gusta.--contestaba el--. Se hacen cosas
+--¡Ah! Es una gente que nada le gusta.--contestaba él--. Se hacen cosas
 bonitas para divertirles... y nada.
 
-El dia de Carnaval, Joshe Cracasch tuvo una idea de las suyas y fue
-convencer a su discipulo para que sacara los trajes de su madre y de una
-hermana. Se disfrazarian los dos y darian a la familia Arizmendi una
-broma graciosisima.
+El día de Carnaval, Joshé Cracasch tuvo una idea de las suyas y fué
+convencer a su discípulo para que sacara los trajes de su madre y de una
+hermana. Se disfrazarían los dos y darían a la familia Arizmendi una
+broma graciosísima.
 
---Ahora si que se van a reir--decia Cacochipi en su interior.
+--Ahora sí que se van a reir--decía Cacochipi en su interior.
 
-El chico no se anduvo en retoricas y el domingo de Carnaval tomo los
-mejores trajes que encontro y fue con ellos a la confiteria. Maestro y
-discipulo se pusieron las prendas femeninas, y armados de sendas
+El chico no se anduvo en retóricas y el domingo de Carnaval tomó los
+mejores trajes que encontró y fué con ellos a la confitería. Maestro y
+discípulo se pusieron las prendas femeninas, y armados de sendas
 escobas, fueron a la puerta de la iglesia.
 
 Al salir Arizmendi con su mujer y sus hijas de misa, Cacochipi y su
-discipulo cayeron sobre ellos y les dieron un sin fin de apretones y de
-golpes; Joshe recordo a Arizmendi que tenia dentadura postiza, a su
-mujer que se ponia anadidos y a la hija mayor el novio con quien habia
-renido, y despues de otra porcion de cosas igualmente oportunas se
-marcharon las dos mascaras dando brincos.
+discípulo cayeron sobre ellos y les dieron un sin fin de apretones y de
+golpes; Joshé recordó a Arizmendi que tenía dentadura postiza, a su
+mujer que se ponía añadidos y a la hija mayor el novio con quien había
+reñido, y después de otra porción de cosas igualmente oportunas se
+marcharon las dos máscaras dando brincos.
 
-Al dia siguiente, cuando se presento en casa de Arizmendi, penso
+Al día siguiente, cuando se presentó en casa de Arizmendi, pensó
 Cracasch:
 
 --Nada, van a felicitarme por la broma de ayer.
 
-Entro y le parecio que todo el mundo estaba serio. De pronto, se le
-acerco Arizmendi y con voz mas que severa, iracunda, en un terrible _ab
+Entró y le pareció que todo el mundo estaba serio. De pronto, se le
+acercó Arizmendi y con voz más que severa, iracunda, en un terrible _ab
 irato_, le dijo:
 
---No vuelva usted a poner los pies en mi casa. iImbecil! Si no fuera
-usted un idiota, le echaria a puntapies.
+--No vuelva usted a poner los pies en mi casa. ¡Imbécil! Si no fuera
+usted un idiota, le echaría a puntapiés.
 
---Pero ?por que?--pregunto Jose.
+--Pero ¿por qué?--preguntó José.
 
---?Y lo pregunta usted todavia, majadero? Cuando no se sabe portarse
-como una persona, no se debe alternar con los demas. Yo creia que era
-usted un estupido, pero no tanto.
+--¿Y lo pregunta usted todavía, majadero? Cuando no se sabe portarse
+como una persona, no se debe alternar con los demás. Yo creía que era
+usted un estúpido, pero no tanto.
 
-Cacochipi, por primera vez en su vida, se sintio ofendido. Se encerro en
-su casa y empezo a pensar en la Celedonia, la segunda hija de Arizmendi
+Cacochipi, por primera vez en su vida, se sintió ofendido. Se encerró en
+su casa y empezó a pensar en la Celedonia, la segunda hija de Arizmendi
 y en la voz suave y la _eloquendi suavitatem_ con que le saludaba por
-las mananas cuando le decia:
+las mañanas cuando le decía:
 
---Buenos dias, Joshe.
+--Buenos días, Joshé.
 
-Cacochipi se convencio de que, como le habia dicho Arizmendi, era un
-estupido y de que ademas estaba enamorado. Estos dos convencimientos le
+Cacochipi se convenció de que, como le había dicho Arizmendi, era un
+estúpido y de que además estaba enamorado. Estos dos convencimientos le
 impulsaron a mudarse de traje, a cortarse el pelo, a ponerse una boina
 nueva y a no permitir que nadie le llamara Cracasch.
 
---Oye, Cracasch--le decia alguno en la calle.
+--Oye, Cracasch--le decía alguno en la calle.
 
---iHombre! Creo que me has llamado Cracasch--decia el.
+--¡Hombre! Creo que me has llamado Cracasch--decía él.
 
---Si, ?y que?
+--Sí, ¿y qué?
 
---Que no quiero que me vuelvas a llamar asi.
+--Que no quiero que me vuelvas a llamar así.
 
 --Pero hombre, Cracasch...
 
---Toma--y Joshe empezaba a punetazos y a golpes.
+--Toma--y Joshé empezaba a puñetazos y a golpes.
 
-En poco tiempo Joshe borro su apodo de Cracasch. La Celedonia Arizmendi
-habia notado la transformacion de Joshe y sabia la parte que en este
-cambio le correspondia a ella. Joshe veia que la muchacha le miraba con
-buenos ojos; pero era tan timido que nunca se hubiera atrevido a decirle
+En poco tiempo Joshé borró su apodo de Cracasch. La Celedonia Arizmendi
+había notado la transformación de Joshé y sabía la parte que en este
+cambio le correspondía a ella. Joshé veía que la muchacha le miraba con
+buenos ojos; pero era tan tímido que nunca se hubiera atrevido a decirle
 nada.
 
 Llevaban sus amores el camino de pasar a la historia sin llegar al
-primer capitulo, cuando el hijo de un boticario se encargo de darles una
-solucion.
+primer capítulo, cuando el hijo de un boticario se encargó de darles una
+solución.
 
-Queria burlarse de Joshe y escribio una carta de amor grotesca a la hija
-de Arizmendi, firmando Joshe Cracasch.
+Quería burlarse de Joshé y escribió una carta de amor grotesca a la hija
+de Arizmendi, firmando Joshé Cracasch.
 
-La chica le envio la carta a Joshe diciendole que se querian burlar de
-el, pero que ella le estimaba y que pasara por delante de su casa y que
-hablarian.
+La chica le envió la carta a Joshé diciéndole que se querían burlar de
+él, pero que ella le estimaba y que pasara por delante de su casa y que
+hablarían.
 
-Joshe fue y vio a la muchacha y le dio las buenas tardes y no se le
-ocurrio mas; ella le pregunto si su madre, Andre Anthoni, estaba buena,
-el la contesto que si y entonces ella le dijo:
+Joshé fué y vió a la muchacha y le dió las buenas tardes y no se le
+ocurrió más; ella le preguntó si su madre, André Anthoni, estaba buena,
+él la contestó que sí y entonces ella le dijo:
 
---Hasta manana, Joshe.
+--Hasta mañana, Joshé.
 
---Adios.
+--Adiós.
 
-Cacochipi quedo como embobado; necesitaba respirar, tomar aire y salio
-de Tolosa y tomo el camino de Anoeta y paso Anoeta y luego Irura y cruzo
-Villabona y fue andando, andando, hasta que se topo con la partida del
-Cura, que iba a conquistar, _viribus et armis_, la gloria. Uno de la
-partida le dio el alto y le hizo descender de las sublimidades
-amatorio-musicales en que se hallaba sumido, presentandole el sencillo
+Cacochipi quedó como embobado; necesitaba respirar, tomar aire y salió
+de Tolosa y tomó el camino de Anoeta y pasó Anoeta y luego Irura y cruzó
+Villabona y fué andando, andando, hasta que se topó con la partida del
+Cura, que iba a conquistar, _viribus et armís_, la gloria. Uno de la
+partida le dió el alto y le hizo descender de las sublimidades
+amatorio-musicales en que se hallaba sumido, presentándole el sencillo
 dilema de recibir una paliza o de venirse con nosotros.
 
-Jose Cacochipi, por muy aficionado que sea a la musica, no ha querido
-que solfeen sobre el y ya hace un mes que esta en la partida.
+José Cacochipi, por muy aficionado que sea a la música, no ha querido
+que solfeen sobre él y ya hace un mes que está en la partida.
 
-Tal era la historia de Joshe Cracasch, que conto Dantchari, _el
-Estudiante_, con algunos latinajos mas de los que pone el autor.
-
-
+Tal era la historia de Joshé Cracasch, que contó Dantchari, _el
+Estudiante_, con algunos latinajos más de los que pone el autor.
 
 
-CAPITULO V
-
-COMO LA PARTIDA DEL CURA DETUVO LA DILIGENCIA CERCA DE ANDOAIN
 
 
-Al tercer dia de estar en la venta, la inaccion era grande, y entre _el
-Jabonero_ y Luschia acordaron detener aquella manana la diligencia que
-iba desde San Sebastian a Tolosa.
+CAPÍTULO V
 
-Se dispuso la gente a lo largo del camino, de dos en dos; los mas
-lejanos irian, avisando cuando apareciera la diligencia y replegandose
+CÓMO LA PARTIDA DEL CURA DETUVO LA DILIGENCIA CERCA DE ANDOAIN
+
+
+Al tercer día de estar en la venta, la inacción era grande, y entre _el
+Jabonero_ y Luschía acordaron detener aquella mañana la diligencia que
+iba desde San Sebastián a Tolosa.
+
+Se dispuso la gente a lo largo del camino, de dos en dos; los más
+lejanos irían, avisando cuando apareciera la diligencia y replegándose
 junto a la venta.
 
-Martin y Bautista se quedaron con el Cura y _el Jabonero_, porque el
-cabecilla y su teniente no tenian bastante confianza en ellos.
+Martín y Bautista se quedaron con el Cura y _el Jabonero_, porque el
+cabecilla y su teniente no tenían bastante confianza en ellos.
 
-A eso de las once de la manana, avisaron la llegada del coche. Los
-hombres que espiaban el paso fueron acercandose a la venta, ocultandose
+A eso de las once de la mañana, avisaron la llegada del coche. Los
+hombres que espiaban el paso fueron acercándose a la venta, ocultándose
 por los lados del camino.
 
 El coche iba casi lleno. El Cura, _el Jabonero_ y los siete u ocho
 hombres que estaban con ellos se plantaron en medio de la carretera.
 
-Al acercarse el coche, el Cura levanto su garrote y grito:
+Al acercarse el coche, el Cura levantó su garrote y gritó:
 
---iAlto!
+--¡Alto!
 
-Anchusa y Luschia se agarraron a la cabezada de los caballos y el coche
+Anchusa y Luschía se agarraron a la cabezada de los caballos y el coche
 se detuvo.
 
---_iArrayua!_ iEl Cura!--exclamo el cochero en voz alta--. Nos hemos
+--_¡Arrayua!_ ¡El Cura!--exclamó el cochero en voz alta--. Nos hemos
 fastidiado.
 
---Abajo todo el mundo--mando el Cura.
+--Abajo todo el mundo--mandó el Cura.
 
-Egozcue abrio la portezuela de la diligencia. Se oyo en el interior un
+Egozcue abrió la portezuela de la diligencia. Se oyó en el interior un
 coro de exclamaciones y de gritos.
 
 --Vaya. Bajen ustedes y no alboroten--dijo Egozcue con finura.
 
 Bajaron primero dos campesinos vascongados y un cura; luego, un hombre
-rubio, al parecer extranjero, y despues salto una muchacha morena, que
-ayudo a bajar a una senora gruesa, de pelo blanco.
+rubio, al parecer extranjero, y después saltó una muchacha morena, que
+ayudó a bajar a una señora gruesa, de pelo blanco.
 
---Pero Dios mio, ?adonde nos llevan?--exclamo esta.
+--Pero Dios mío, ¿adónde nos llevan?--exclamó ésta.
 
-Nadie le contesto.
+Nadie le contestó.
 
---iAnchusa! iLuschia! Desenganchad los caballos--grito el Cura--. Ahora,
+--¡Anchusa! ¡Luschía! Desenganchad los caballos--gritó el Cura--. Ahora,
 todos a la posada.
 
-Anchusa y Luschia llevaron los caballos y no quedaron con el cura mas
-que unos ocho hombres, contando con Bautista, Zalacain y Joshe Cracasch.
+Anchusa y Luschía llevaron los caballos y no quedaron con el cura más
+que unos ocho hombres, contando con Bautista, Zalacaín y Joshé Cracasch.
 
---Acompanad a estos--dijo el cabecilla a dos de sus hombres, senalando
+--Acompañad a éstos--dijo el cabecilla a dos de sus hombres, señalando
 a los campesinos y al cura.
 
---Vosotros--e indico a Bautista, Zalacain, Joshe Cracasch y otros dos
-hombres armados--id con la senora, la senorita y este viajero.
+--Vosotros--é indicó a Bautista, Zalacaín, Joshé Cracasch y otros dos
+hombres armados--id con la señora, la señorita y este viajero.
 
-La senora gruesa lloraba afligida.
+La señora gruesa lloraba afligida.
 
---Pero, ?nos van a fusilar?--pregunto gimiendo.
+--Pero, ¿nos van a fusilar?--preguntó gimiendo.
 
---iVamos! iVamos!--dijo uno de los hombres armados, brutalmente.
+--¡Vamos! ¡Vamos!--dijo uno de los hombres armados, brutalmente.
 
-La senora se arrodillo en el suelo, pidiendo que la dejaran libre.
+La señora se arrodilló en el suelo, pidiendo que la dejaran libre.
 
-La senorita, palida, con los dientes apretados, lanzaba fuego por los
-ojos. Sin duda, sabia los procedimientos usados por el cura con las
+La señorita, pálida, con los dientes apretados, lanzaba fuego por los
+ojos. Sin duda, sabía los procedimientos usados por el cura con las
 mujeres.
 
-A algunas solia desnudarlas de medio cuerpo arriba, les untaba con miel
+A algunas solía desnudarlas de medio cuerpo arriba, les untaba con miel
 el pecho y la espalda y las emplumaba; a otras les cortaba el pelo o lo
 untaba de brea y luego se lo pegaba a la espalda.
 
---Ande usted, senora--dijo Martin--, que no les pasara nada.
+--Ande usted, señora--dijo Martín--, que no les pasará nada.
 
---Pero, ?adonde?--pregunto ella.
+--Pero, ¿adónde?--preguntó ella.
 
---A la posada, que esta aqui cerca.
+--A la posada, que está aquí cerca.
 
-La joven nada dijo, pero lanzo a Martin una mirada de odio y de
+La joven nada dijo, pero lanzó a Martín una mirada de odio y de
 desprecio.
 
 Las dos mujeres y el extranjero comenzaron a marchar por la carretera.
 
---Atencion, Bautista--dijo Martin en frances--, tu al uno, yo al otro.
+--Atención, Bautista--dijo Martín en francés--, tú al uno, yo al otro.
 Cuando no nos vean.
 
-El extranjero, extranado, en el mismo idioma pregunto:
+El extranjero, extrañado, en el mismo idioma preguntó:
 
---?Que van ustedes a hacer?
+--¿Qué van ustedes a hacer?
 
---Escaparnos. Vamos a quitar los fusiles a estos hombres. Ayudenos
+--Escaparnos. Vamos a quitar los fusiles a estos hombres. Ayúdenos
 usted.
 
-Los dos hombres armados, al oir que se entendian en una lengua que ellos
-no comprendian, entraron en sospechas.
+Los dos hombres armados, al oir que se entendían en una lengua que ellos
+no comprendían, entraron en sospechas.
 
---?Que hablais?--dijo uno, retrocediendo y preparando el fusil.
+--¿Qué habláis?--dijo uno, retrocediendo y preparando el fusil.
 
-No tuvo tiempo de hacer nada, porque Martin le dio un garrotazo en el
+No tuvo tiempo de hacer nada, porque Martín le dió un garrotazo en el
 hombro y le hizo tirar el fusil al suelo, Bautista y el extranjero
-forcejearon con el otro y le quitaron el arma y los cartuchos. Joshe
+forcejearon con el otro y le quitaron el arma y los cartuchos. Joshé
 Cracasch estaba como en babia.
 
-Las dos mujeres, viendose libres, echaron a correr por la carretera, en
-direccion a Hernani. Cracasch las siguio. Este llevaba una mala
-escopeta, que podia servir en ultimo caso. El extranjero y Martin tenian
-cada uno su fusil, pero no contaba mas que con pocos cartuchos. A uno le
-habian podido quitar la cartuchera, al otro fue imposible. Este volaba
+Las dos mujeres, viéndose libres, echaron a correr por la carretera, en
+dirección a Hernani. Cracasch las siguió. Éste llevaba una mala
+escopeta, que podía servir en último caso. El extranjero y Martín tenían
+cada uno su fusil, pero no contaba más que con pocos cartuchos. A uno le
+habían podido quitar la cartuchera, al otro fué imposible. Éste volaba
 corriendo a dar parte a los de la partida.
 
-El extranjero, Martin y Bautista corrieron y se reunieron con las dos
-mujeres y con Joshe Cracasch.
+El extranjero, Martín y Bautista corrieron y se reunieron con las dos
+mujeres y con Joshé Cracasch.
 
-La ventaja que tenian era grande, pero las mujeres corrian poco; en
-cambio, la gente del cura en cuatro saltos se plantaria junto a ellos.
+La ventaja que tenían era grande, pero las mujeres corrían poco; en
+cambio, la gente del cura en cuatro saltos se plantaría junto a ellos.
 
---iVamos! iAnimo!--decia Martin--. En una hora llegamos.
+--¡Vamos! ¡Animo!--decía Martín--. En una hora llegamos.
 
---No puedo--gemia la senora--. No puedo andar mas.
+--No puedo--gemía la señora--. No puedo andar más.
 
---iBautista!--exclamo Martin--. Corre a Hernani, busca gente y traela.
-Nosotros nos defenderemos aqui un momento.
+--¡Bautista!--exclamó Martín--. Corre a Hernani, busca gente y tráela.
+Nosotros nos defenderemos aquí un momento.
 
---Ire yo--dijo Joshe Cracasch.
+--Iré yo--dijo Joshé Cracasch.
 
 --Bueno, entonces deja el fusil y las municiones.
 
-Tiro el musico el fusil y la cartuchera y echo a correr, como alma que
+Tiró el músico el fusil y la cartuchera y echó a correr, como alma que
 lleva el diablo.
 
---No me fio de ese musico simple--murmuro Martin--. Vete tu, Bautista.
-La lastima es que quede un arma inutil.
+--No me fío de ese músico simple--murmuró Martín--. Vete tú, Bautista.
+La lástima es que quede un arma inútil.
 
---Yo disparare--dijo la muchacha.
+--Yo dispararé--dijo la muchacha.
 
 Se volvieron a hacer frente, porque los hombres de la partida se iban
 acercando.
 
-Silbaban las balas. Se veia una nubecilla blanca y pasaba al mismo
+Silbaban las balas. Se veía una nubecilla blanca y pasaba al mismo
 tiempo una bala por encima de las cabezas de los fugitivos. El
-extranjero, la senorita y Martin se guarecieron cada uno detras de un
-arbol y se repartieron los cartuchos. La senora vieja, sollozando, se
-tiro en la hierba, por consejo de Martin.
+extranjero, la señorita y Martín se guarecieron cada uno detrás de un
+árbol y se repartieron los cartuchos. La señora vieja, sollozando, se
+tiró en la hierba, por consejo de Martín.
 
---?Es usted buen tirador?--pregunto Zalacain al extranjero.
+--¿Es usted buen tirador?--preguntó Zalacaín al extranjero.
 
---?Yo? Si. Bastante regular.
+--¿Yo? Sí. Bastante regular.
 
---?Y usted, senorita?
+--¿Y usted, señorita?
 
---Tambien he tirado algunas veces.
+--También he tirado algunas veces.
 
 Seis hombres se fueron acercando a unos cien metros de donde estaban
-guarecidos Martin, la senorita y el extranjero. Uno de ellos era
-Luschia.
+guarecidos Martín, la señorita y el extranjero. Uno de ellos era
+Luschía.
 
 --A ese ciudadano le voy a dejar cojo para toda su vida--dijo el
 extranjero.
 
-Efectivamente, disparo y uno de los hombres cayo al suelo dando gritos.
+Efectivamente, disparó y uno de los hombres cayó al suelo dando gritos.
 
---Buena punteria--dijo Martin.
+--Buena puntería--dijo Martín.
 
---No es mala--contesto friamente el extranjero.
+--No es mala--contestó fríamente el extranjero.
 
 Los otros cinco hombres recogieron al herido y lo retiraron hacia un
-declive. Luego, cuatro de ellos, dirigidos por Luschia, dispararon al
-arbol de donde habia salido el tiro. Creian, sin duda, que alli estaban
-refugiados Martin y Bautista y se fueron acercando al arbol. Entonces
-disparo Martin e hirio a uno en una mano.
+declive. Luego, cuatro de ellos, dirigidos por Luschía, dispararon al
+árbol de dónde había salido el tiro. Creían, sin duda, que allí estaban
+refugiados Martín y Bautista y se fueron acercando al árbol. Entonces
+disparó Martín é hirió a uno en una mano.
 
-Quedaban solo tres habiles, y, retrocediendo y arrimandose a los
-arboles, siguieron haciendo disparos.
+Quedaban solo tres hábiles, y, retrocediendo y arrimándose a los
+árboles, siguieron haciendo disparos.
 
---?Habra descansado algo su madre?--pregunto Martin a la senorita.
+--¿Habrá descansado algo su madre?--preguntó Martín a la señorita.
 
---Si.
+--Sí.
 
---Que siga huyendo. Vaya usted tambien.
+--Que siga huyendo. Vaya usted también.
 
 --No, no.
 
---No hay que perder tiempo--grito Martin, dando una patada en el
-suelo--. Ella sola o con usted. iHala! En seguida.
+--No hay que perder tiempo--gritó Martín, dando una patada en el
+suelo--. Ella sola o con usted. ¡Hala! En seguida.
 
-La senorita dejo el fusil a Martin y, en union de su madre, comenzo a
+La señorita dejó el fusil a Martín y, en unión de su madre, comenzó a
 marchar por la carretera.
 
-El extranjero y Martin esperaron, luego fueron retrocediendo sin
+El extranjero y Martín esperaron, luego fueron retrocediendo sin
 disparar, hasta que, al llegar a una vuelta del camino, comenzaron a
 correr con toda la fuerza de sus piernas. Pronto se reunieron con la
-senora y su hija. La carrera termino a la media hora, al oir que las
+señora y su hija. La carrera terminó a la media hora, al oir que las
 balas comenzaban a silbar por encima de sus cabezas.
 
-Alli no habia arboles donde guarecerse, pero si unos montes de piedra
-machacada para el lecho de la carretera, y en uno de ellos se tendio
-Martin y en el otro el extranjero. La senora y su hija se echaron en el
+Allí no había árboles donde guarecerse, pero sí unos montes de piedra
+machacada para el lecho de la carretera, y en uno de ellos se tendió
+Martín y en el otro el extranjero. La señora y su hija se echaron en el
 suelo.
 
-Al poco tiempo, aparecieron varios hombres; sin duda, ninguno queria
+Al poco tiempo, aparecieron varios hombres; sin duda, ninguno quería
 acercarse y llevaban la idea de rodear a los fugitivos y de cogerlos
 entre dos fuegos.
 
@@ -3207,189 +3059,189 @@ de la carretera, mientras otros cuatro avanzaban por otro lado, entre
 manzanos.
 
 Si Bautista no viene pronto con gente, creo que nos vamos a ver
-apurados--exclamo Martin.
+apurados--exclamó Martín.
 
-La senora, al oirle, lanzo nuevos gemidos y comenzo a lamentarse, con
+La señora, al oirle, lanzó nuevos gemidos y comenzó a lamentarse, con
 grandes sollozos, de haber escapado.
 
-El extranjero saco un reloj y murmuro:
+El extranjero sacó un reloj y murmuró:
 
---Tenia tiempo. No habra encontrado nadie.
+--Tenía tiempo. No habrá encontrado nadie.
 
---Eso debe ser--dijo Martin.
+--Eso debe ser--dijo Martín.
 
---Veremos si aqui podemos resistir algo--repuso el extranjero.
+--Veremos si aquí podemos resistir algo--repuso el extranjero.
 
---iHermoso dia!--murmuro Martin.
+--¡Hermoso día!--murmuró Martín.
 
-La verdad es que un dia tan hermoso convida a todo, hasta que le peguen
+La verdad es que un día tan hermoso convida a todo, hasta que le peguen
 a uno un tiro.
 
---Por si acaso, habra que evitarlo en lo posible.
+--Por si acaso, habrá que evitarlo en lo posible.
 
 Dos o tres balas pasaron silbando y fueron a estrellarse en el suelo.
 
---iRendios!--dijo la voz de Belcha, por entre unos manzanos.
+--¡Rendíos!--dijo la voz de Belcha, por entre unos manzanos.
 
---Venid a cogernos--grito Martin, y vio que uno le apuntaba en el monte,
-desde cerca de un arbol; el apunto a su vez, y los dos tiros sonaron
-casi simultaneamente. Al poco tiempo, el hombre volvio a aparecer mas
-cerca, escondido entre unos helechos, y disparo sobre Martin.
+--Venid a cogernos--gritó Martín, y vió que uno le apuntaba en el monte,
+desde cerca de un árbol; él apuntó a su vez, y los dos tiros sonaron
+casi simultáneamente. Al poco tiempo, el hombre volvió a aparecer más
+cerca, escondido entre unos helechos, y disparó sobre Martín.
 
-Este sintio un golpe en el muslo y comprendio que estaba herido. Se
-llevo la mano al sitio de la herida y noto una cosa tibia. Era sangre.
-Con la mano ensangrentada cogio el fusil y, apoyandose en las piedras,
-apunto y disparo. Luego sintio que se le iban las fuerzas, al perder la
-sangre, y cayo desmayado.
+Éste sintió un golpe en el muslo y comprendió que estaba herido. Se
+llevó la mano al sitio de la herida y notó una cosa tibia. Era sangre.
+Con la mano ensangrentada cogió el fusil y, apoyándose en las piedras,
+apuntó y disparó. Luego sintió que se le iban las fuerzas, al perder la
+sangre, y cayó desmayado.
 
-El extranjero aguardo un momento, pero, en aquel instante, una compania
+El extranjero aguardó un momento, pero, en aquel instante, una compañía
 de miqueletes avanzaba por la carretera, corriendo y haciendo disparos,
 y la gente del Cura se retiraba.
 
 
 
 
-CAPITULO VI
+CAPÍTULO VI
 
-COMO CUIDO LA SENORITA DE BRIONES A MARTIN ZALACAIN
+CÓMO CUIDÓ LA SEÑORITA DE BRIONES A MARTÍN ZALACAÍN
 
 
-Cuando de nuevo pudo darse Martin Zalacain cuenta de que vivia, se
-encontro en la cama, entre cortinas tupidas.
+Cuando de nuevo pudo darse Martín Zalacaín cuenta de que vivía, se
+encontró en la cama, entre cortinas tupidas.
 
-Hizo un esfuerzo para moverse y se sintio muy debil y con un ligero
+Hizo un esfuerzo para moverse y se sintió muy débil y con un ligero
 dolor en el muslo.
 
-Recordo vagamente lo pasado, la lucha en la carretera, y quiso saber
-donde estaba.
+Recordó vagamente lo pasado, la lucha en la carretera, y quiso saber
+dónde estaba.
 
---iEh!--grito con voz apagada.
+--¡Eh!--gritó con voz apagada.
 
-Las cortinas se abrieron y una cara morena, de ojos negros, aparecio
+Las cortinas se abrieron y una cara morena, de ojos negros, apareció
 entre ellas.
 
---Por fin. iYa se ha despertado usted!
+--Por fin. ¡Ya sé ha despertado usted!
 
---Si. ?Donde me han traido?
+--Sí. ¿Dónde me han traído?
 
---Luego le contare a usted todo--dijo la muchacha morena.
+--Luego le contaré a usted todo--dijo la muchacha morena.
 
---?Estoy prisionero?
+--¿Estoy prisionero?
 
---No, no; esta usted aqui en seguridad.
+--No, no; está usted aquí en seguridad.
 
---?En que pueblo?
+--¿En qué pueblo?
 
 --En Hernani.
 
---Ah, vamos. ?No me podrian abrir esas cortinas?
+--Ah, vamos. ¿No me podrían abrir esas cortinas?
 
---No, por ahora no. Dentro de un momento vendra el medico y, si le
+--No, por ahora no. Dentro de un momento vendrá el médico y, si le
 encuentra a usted bien, abriremos las cortinas y le permitiremos hablar.
 Con que ahora siga usted durmiendo.
 
-Martin sentia la cabeza debil y no le costo mucho trabajo seguir el
+Martín sentía la cabeza débil y no le costó mucho trabajo seguir el
 consejo de la muchacha.
 
-Al mediodia llego el medico, que reconocio a Martin la herida, le tomo
+Al mediodía llegó el médico, que reconoció a Martín la herida, le tomó
 el pulso y dijo:
 
 --Ya pueda empezar a comer.
 
---?Y le dejaremos hablar, doctor?--pregunto la muchacha.
+--¿Y le dejaremos hablar, doctor?--preguntó la muchacha.
 
---Si.
+--Sí.
 
-Se fue el doctor, y la muchacha de los ojos negros descorrio las
-cortinas y Martin se encontro en una habitacion grande, algo baja de
+Se fué el doctor, y la muchacha de los ojos negros descorrió las
+cortinas y Martín se encontró en una habitación grande, algo baja de
 techo, por cuya ventana entraba un dorado sol de invierno. Pocos
-instantes despues, aparecio Bautista en el cuarto, de puntillas.
+instantes después, apareció Bautista en el cuarto, de puntillas.
 
---Hola, Bautista--dijo Martin burlonamente--. ?Que te ha parecido
-nuestra primera aventura de guerra? ?Eh?
+--Hola, Bautista--dijo Martín burlonamente--. ¿Qué te ha parecido
+nuestra primera aventura de guerra? ¿Eh?
 
---iHombre! A mi, bien--contesto el cunado--. A ti quiza no te haya
+--¡Hombre! A mí, bien--contestó el cuñado--. A ti quizá no te haya
 parecido tan bien.
 
---iPse! Ya hemos salido de esta.
+--¡Pse! Ya hemos salido de esta.
 
-La muchacha de los ojos negros, a quien al principio no reconocio
-Martin, era la senorita a quien habian hecho bajar del coche los de la
-partida del Cura y despues se habia fugado con ellos en compania de su
+La muchacha de los ojos negros, a quien al principio no reconoció
+Martín, era la señorita a quien habían hecho bajar del coche los de la
+partida del Cura y después se había fugado con ellos en compañía de su
 madre.
 
-Esta senorita le conto a Martin como le llevaron hasta Hernani y le
+Esta señorita le contó a Martín cómo le llevaron hasta Hernani y le
 extrajeron la bala.
 
---Y yo no me he dado cuenta de todo esto--dijo Martin--. ?Cuanto tiempo
+--Y yo no me he dado cuenta de todo esto--dijo Martín--. ¿Cuánto tiempo
 llevo en la cama?
 
---Cuatro dias ha estado usted con una fiebre altisima.
+--Cuatro días ha estado usted con una fiebre altísima.
 
---?Cuatro dias?
+--¿Cuatro días?
 
---Si.
+--Sí.
 
---Por eso estoy rendido. ?Y su madre de usted?
+--Por eso estoy rendido. ¿Y su madre de usted?
 
---Tambien ha estado enferma, pero ya se levanta.
+--También ha estado enferma, pero ya se levanta.
 
---Me alegro mucho. ?Sabe usted? Es raro--dijo Martin--no me parece
+--Me alegro mucho. ¿Sabe usted? Es raro--dijo Martín--no me parece
 usted la misma que vino en la carretera con nosotros.
 
---iNo?
+--¡No?
 
 --No.
 
---?Y por que?
+--¿Y por qué?
 
---Le brillaban a usted los ojos de una manera tan rara, asi como dura...
+--Le brillaban a usted los ojos de una manera tan rara, así como dura...
 
---?Y ahora no?
+--¿Y ahora no?
 
 --Ahora no, ahora me parecen sus ojos muy suaves.
 
-La muchacha se ruborizo sonriendo.
+La muchacha se ruborizó sonriendo.
 
---La verdad es--dijo Bautista--que has tenido suerte. Esta senorita te
+--La verdad es--dijo Bautista--que has tenido suerte. Esta señorita te
 ha cuidado como a un rey.
 
---iQue menos podia hacer por uno de nuestros salvadores!--exclamo ella
-ocultando su confusion--. Oh, pero no hable usted tanto. Para el primer
-dia es demasiado.
+--¡Qué menos podía hacer por uno de nuestros salvadores!--exclamó ella
+ocultando su confusión--. Oh, pero no hable usted tanto. Para el primer
+día es demasiado.
 
---Una pregunta solo--dijo Martin.
+--Una pregunta sólo--dijo Martín.
 
---Veamos la pregunta--contesto ella.
+--Veamos la pregunta--contestó ella.
 
---Quisiera saber como se llama usted.
+--Quisiera saber cómo se llama usted.
 
 --Rosa Briones.
 
---Muchas gracias, senorita Rosa--murmuro.
+--Muchas gracias, señorita Rosa--murmuró.
 
---iOh! no me llame usted senorita. Llameme usted Rosa o Rosita, como me
+--¡Oh! no me llame usted señorita. Llámeme usted Rosa o Rosita, como me
 dicen en casa.
 
---Es que yo no soy caballero--repuso Martin.
+--Es que yo no soy caballero--repuso Martín.
 
---iPues si usted no es caballero, quien lo sera!--dijo ella.
+--¡Pues si usted no es caballero, quién lo será!--dijo ella.
 
-Martin se sintio halagado y, como Rosa le indico que callara, llevandose
-el dedo a los labios, cerro los ojos...
+Martín se sintió halagado y, como Rosa le indicó que callara, llevándose
+el dedo a los labios, cerró los ojos...
 
-La convalecencia de Martin fue muy rapida, tanto, que a el le parecio
+La convalecencia de Martín fué muy rápida, tanto, que a él le pareció
 que se curaba demasiado pronto.
 
-Bautista, al ver a su cunado en visperas de levantarse y en buenas
-manos, como dijo algo ironicamente, se fue a Francia a reunirse con
+Bautista, al ver a su cuñado en vísperas de levantarse y en buenas
+manos, como dijo algo irónicamente, se fué a Francia a reunirse con
 Capistun y a seguir con los negocios.
 
-Martin pudo tomar Hernani por una Capua, una Capua espiritual.
+Martín pudo tomar Hernani por una Capua, una Capua espiritual.
 
-Rosita Briones y su madre dona Pepita le mimaban y le halagaban.
+Rosita Briones y su madre doña Pepita le mimaban y le halagaban.
 
-De conocerlo, Martin hubiera podido recitar, refiriendose a el mismo,
+De conocerlo, Martín hubiera podido recitar, refiriéndose a él mismo,
 el romance antiguo de Lanzarote:
 
         Nunca fuera caballero
@@ -3397,311 +3249,311 @@ el romance antiguo de Lanzarote:
         Como fuera Lanzarote
         Cuando de su aldea vino.
 
-Rosita, durante la convalecencia, tuvo largas conversaciones con Martin.
-Era de Logrono, donde vivia con su madre. Dona Pepita era la causante de
-la desdichada aventura. A ella se le ocurrio ir a Villabona, para ver a
-su hijo, que le habian dicho que se encontraba herido en este pueblo.
+Rosita, durante la convalecencia, tuvo largas conversaciones con Martín.
+Era de Logroño, donde vivía con su madre. Doña Pepita era la causante de
+la desdichada aventura. A ella se le ocurrió ir a Villabona, para ver a
+su hijo, que le habían dicho que se encontraba herido en este pueblo.
 Afortunadamente, la noticia era falsa.
 
-Dona Pepita, la madre de Rosita, era una senora romantica, con unas
-ideas absurdas. Adoraba a su hijo, vivia temblando de que le pasara
-algo, pero, a pesar de todo, habia querido que fuera militar. Al decidir
-la aventura que termino con la detencion de la diligencia y al oir las
-observaciones de su hija al malhadado proyecto, habia contestado:
+Doña Pepita, la madre de Rosita, era una señora romántica, con unas
+ideas absurdas. Adoraba a su hijo, vivía temblando de que le pasara
+algo, pero, a pesar de todo, había querido que fuera militar. Al decidir
+la aventura que terminó con la detención de la diligencia y al oir las
+observaciones de su hija al malhadado proyecto, había contestado:
 
---Los carlistas son espanoles y caballeros y no pueden hacer dano a unas
-senoras.
+--Los carlistas son españoles y caballeros y no pueden hacer daño a unas
+señoras.
 
 A pesar de esta imposibilidad, estuvieron las dos a punto de ser
 emplumadas o apaleadas por la gente del Cura.
 
-Martin llego a convencerse de que la buena senora tenia una
-imposibilidad irreductible para enterarse de la cosas. Lo veia todo a su
-gusto y se convencia de que los hechos era como se los habia pintado su
-fantasia. Si de la madre cualquiera hubiese dicho que le faltaba un
-tornillo, no podia decirse lo mismo de su hija. Esta era lista y
-avispada como pocas; tenia un juicio rapido, seguro y claro.
+Martín llegó a convencerse de que la buena señora tenía una
+imposibilidad irreductible para enterarse de la cosas. Lo veía todo a su
+gusto y se convencía de que los hechos era como se los había pintado su
+fantasía. Si de la madre cualquiera hubiese dicho que le faltaba un
+tornillo, no podía decirse lo mismo de su hija. Ésta era lista y
+avispada como pocas; tenía un juicio rápido, seguro y claro.
 
-Muchas veces, para distraer al herido, Rosa le leyo novelas de Dumas y
-poesias de Becquer. Martin nunca habia oido versos y le hicieron un
-efecto admirable, pero lo que mas le sorprendio fue la discrecion de los
+Muchas veces, para distraer al herido, Rosa le leyó novelas de Dumas y
+poesías de Bécquer. Martín nunca había oído versos y le hicieron un
+efecto admirable, pero lo que más le sorprendió fué la discreción de los
 comentarios de Rosita. No se le escapaba nada.
 
-Pronto Martin pudo levantarse y, cojeando, andar por la casa. Un dia que
-contaba su vida y sus aventuras, Rosita le pregunto de pronto:
+Pronto Martín pudo levantarse y, cojeando, andar por la casa. Un día que
+contaba su vida y sus aventuras, Rosita le preguntó de pronto:
 
---?Y Catalina quien es? ?Es su novia de usted?
+--¿Y Catalina quién es? ¿Es su novia de usted?
 
---Si. ?Como lo sabe usted?
+--Sí. ¿Cómo lo sabe usted?
 
 --Porque ha hablado usted mucho de ella durante el delirio.
 
---iAh!
+--¡Ah!
 
---?Y es guapa?
+--¿Y es guapa?
 
---?Quien?
+--¿Quién?
 
 --Su novia.
 
---Si, creo que si.
+--Sí, creo que sí.
 
---?Como? ?Cree usted nada mas?
+--¿Cómo? ¿Cree usted nada más?
 
 --Es que la conozco desde chico y estoy tan acostumbrado a verla que
-casi no se como es.
+casi no sé cómo es.
 
---?Pero no esta usted enamorado de ella?
+--¿Pero no está usted enamorado de ella?
 
---No se, la verdad.
+--No sé, la verdad.
 
---iQue cosa mas rara! ?Que tipo tiene?
+--¡Qué cosa más rara! ¿Que tipo tiene?
 
---Es asi... algo rubia...
+--Es así... algo rubia...
 
---?Y tiene hermosos ojos?
+--¿Y tiene hermosos ojos?
 
---No tanto como usted--dijo Martin.
+--No tanto como usted--dijo Martín.
 
-A Rosita Briones le centellearon los ojos y envolvio a Martin en una de
-sus miradas enigmaticas.
+A Rosita Briones le centellearon los ojos y envolvió a Martín en una de
+sus miradas enigmáticas.
 
-Una tarde se presento en Hernani el hermano de Rosita.
+Una tarde se presentó en Hernani el hermano de Rosita.
 
 Era un joven fino, atento, pero poco comunicativo.
 
-Dona Pepita le puso a Zalacain delante de su hijo como un salvador, como
-un heroe.
+Doña Pepita le puso a Zalacaín delante de su hijo como un salvador, como
+un héroe.
 
-Al dia siguiente, Rosita y su madre iban a San Sebastian, para marcharse
-desde alli a Logrono.
+Al día siguiente, Rosita y su madre iban a San Sebastián, para marcharse
+desde allí a Logroño.
 
-Les acompano Martin y su despedida fue muy afectuosa. Dona Pepita le
-abrazo y Rosita le estrecho la mano varias veces y le dijo
+Les acompañó Martín y su despedida fué muy afectuosa. Doña Pepita le
+abrazó y Rosita le estrechó la mano varias veces y le dijo
 imperiosamente:
 
 --Vaya usted a vernos.
 
---Si, ya ire.
+--Sí, ya iré.
 
---Pero que sea de veras. Los ojos de Rosita prometian mucho. Al
-marcharse madre e hija, Martin parecio despertar de un sueno; se acordo
-de sus negocios, de su vida, y sin perdida de tiempo se fue a Francia.
-
-
+--Pero que sea de veras. Los ojos de Rosita prometían mucho. Al
+marcharse madre é hija, Martín pareció despertar de un sueño; se acordó
+de sus negocios, de su vida, y sin pérdida de tiempo se fué a Francia.
 
 
-CAPITULO VII
-
-COMO MARTIN ZALACAIN BUSCO NUEVAS AVENTURAS
 
 
-Una noche de invierno llovia en las calles de San Juan de Luz; algun
+CAPÍTULO VII
+
+CÓMO MARTÍN ZALACAÍN BUSCÓ NUEVAS AVENTURAS
+
+
+Una noche de invierno llovía en las calles de San Juan de Luz; algún
 mechero de gas temblaba a impulsos del viento, y de las puertas de las
-tabernas salian voces y sonido de acordeones.
+tabernas salían voces y sonido de acordeones.
 
 En Socoa, que es el puerto de San Juan de Luz, en una taberna de
 marineros, cuatro hombres, sentados en una mesa, charlaban. De cuando en
-cuando, uno de ellos abria la puerta de la taberna, avanzaba en el
-muelle silencioso, miraba al mar y al volver decia:
+cuando, uno de ellos abría la puerta de la taberna, avanzaba en el
+muelle silencioso, miraba al mar y al volver decía:
 
---Nada, la _Fleche_ no viene aun.
+--Nada, la _Fleche_ no viene aún.
 
 El viento silbaba en bocanadas furiosas sobre la noche y el mar negros,
-y se oia el ruido de las olas azotando la pared del muelle.
+y se oía el ruido de las olas azotando la pared del muelle.
 
-En la taberna, Martin, Bautista, Capistun y un hombre viejo, a quien
+En la taberna, Martín, Bautista, Capistun y un hombre viejo, a quien
 llamaban Ospitalech, hablaban; hablaban de la guerra carlista, que
-seguia como una enfermedad cronica sin resolverse.
+seguía como una enfermedad crónica sin resolverse.
 
---La guerra acaba--dijo Martin.
+--La guerra acaba--dijo Martín.
 
---?Tu crees?--pregunto el viejo Ospitalech.
+--¿Tú crees?--preguntó el viejo Ospitalech.
 
---Si, esto marcha mal, y yo me alegro--dijo Capistun.
+--Sí, esto marcha mal, y yo me alegro--dijo Capistun.
 
---No, todavia hay esperanza--repuso Ospitalech.
+--No, todavía hay esperanza--repuso Ospitalech.
 
---El bombardeo de Irun ha sido un fracaso completo para los
-carlistas--dijo Martin--. iY que esperanzas tenian todos estos
+--El bombardeo de Irún ha sido un fracaso completo para los
+carlistas--dijo Martín--. ¡Y qué esperanzas tenían todos estos
 legitimistas franceses! Hasta los hermanos de la Doctrina Cristiana
-habian dado vacaciones a los ninos para que fuesen a la frontera a ver
-el espectaculo. iCanallas! Y ahi vimos a ese arrogante don Carlos, con
+habían dado vacaciones a los niños para que fuesen a la frontera a ver
+el espectáculo. ¡Canallas! Y ahí vimos a ese arrogante don Carlos, con
 sus terribles batallones, echando granadas y granadas, para tener luego
 que escaparse corriendo hacia Vera.
 
---Si la guerra se pierde, nos arruinamos--murmuro Ospitalech.
+--Si la guerra se pierde, nos arruinamos--murmuró Ospitalech.
 
-Capistun estaba tranquilo, pensaba retirarse a vivir a su pais;
-Bautista, con las ganancias del contrabando, habia extendido sus
-tierras. De los tres, Zalacain no estaba contento. Si no le hubiese
+Capistun estaba tranquilo, pensaba retirarse a vivir a su país;
+Bautista, con las ganancias del contrabando, había extendido sus
+tierras. De los tres, Zalacaín no estaba contento. Si no le hubiese
 retenido el pensamiento de encontrar a Catalina, se hubiera ido a
-America.
+América.
 
-Llevaba ya mas de un ano sin saber nada de su novia; en Urbia se
-ignoraba su paradero, se decia que dona Agueda habia muerto, pero no se
+Llevaba ya más de un año sin saber nada de su novia; en Urbia se
+ignoraba su paradero, se decía que doña Águeda había muerto, pero no se
 hallaba confirmada la noticia.
 
 De estos cuatro hombres de la taberna de Socoa, los dos contentos,
 Bautista y Capistun, charlaban; los otros dos rabiaban y se miraban sin
-hablarse. Afuera llovia y venteaba.
+hablarse. Afuera llovía y venteaba.
 
---?Alguno de vosotros se encargaria de un negocio dificil, en que hay
-que exponer la pelleja?--pregunto de pronto Ospitalech.
+--¿Alguno de vosotros se encargaría de un negocio difícil, en que hay
+que exponer la pelleja?--preguntó de pronto Ospitalech.
 
 --Yo no--dijo Capistun.
 
---Ni yo--contesto distraidamente Bautista.
+--Ni yo--contestó distraídamente Bautista.
 
---?De que se trata?--pregunto Martin.
+--¿De qué se trata?--preguntó Martín.
 
 --Se trata de hacer un recorrido por entre las filas carlistas y
-conseguir que varios generales y, ademas, el mismo don Carlos, firmen
+conseguir que varios generales y, además, el mismo don Carlos, firmen
 unas letras.
 
---iDemonio! No es facil la cosa--exclamo Zalacain.
+--¡Demonio! No es fácil la cosa--exclamó Zalacaín.
 
---Ya lo se que no; pero se pagaria bien.
+--Ya lo sé que no; pero se pagaría bien.
 
---?Cuanto?
+--¿Cuánto?
 
---El patron ha dicho que daria el veinte por ciento, si le trajeran las
+--El patrón ha dicho que daría el veinte por ciento, si le trajeran las
 letras firmadas.
 
---?Y a cuanto asciende el valor de las letras?
+--¿Y a cuánto asciende el valor de las letras?
 
---?A cuanto? No se de seguro la cantidad. ?Pero es que tu irias?
+--¿A cuánto? No sé de seguro la cantidad. ¿Pero es que tú irías?
 
---?Por que no? Si se gana mucho...
+--¿Por qué no? Si se gana mucho...
 
 --Pues entonces espera un momento. Parece que llega el barco, luego
 hablaremos.
 
-Efectivamente, se habia oido en medio de la noche un agudo silbido. Los
-cuatro salieron al puerto y se oyo el ruido de las aguas removidas por
-una helice, y luego aparecieron unos marineros en la escalera del
+Efectivamente, se había oído en medio de la noche un agudo silbido. Los
+cuatro salieron al puerto y se oyó el ruido de las aguas removidas por
+una hélice, y luego aparecieron unos marineros en la escalera del
 muelle, que sujetaron la amarra en un poste.
 
---iEup! Manisch--grito Ospitalech.
+--¡Eup! Manisch--gritó Ospitalech.
 
---iEup!--contestaron desde el mar.
+--¡Eup!--contestaron desde el mar.
 
---?Todo bien?
+--¿Todo bien?
 
---Todo bien--respondio la voz.
+--Todo bien--respondió la voz.
 
---Bueno, entremos--anadio Ospitalech--que la noche esta de perros.
+--Bueno, entremos--añadió Ospitalech--que la noche está de perros.
 
-Volvieron a meterse en la taberna los cuatro hombres, y poco despues se
-unieron a ellos Manisch, el patron del barco la _Fleche_, que al entrar
-se quito el sudeste, y dos marineros mas.
+Volvieron a meterse en la taberna los cuatro hombres, y poco después se
+unieron a ellos Manisch, el patrón del barco la _Fleche_, que al entrar
+se quitó el sudeste, y dos marineros más.
 
---?De manera que tu estas dispuesto a encargarte de ese
-asunto?--pregunto Ospitalech a Martin.
+--¿De manera que tú estás dispuesto a encargarte de ese
+asunto?--preguntó Ospitalech a Martín.
 
---Si.
+--Sí.
 
---?Solo?
+--¿Solo?
 
 --Solo.
 
---Bueno, vamos a dormir. Por la manana iremos a ver al principal y te
-dira lo que se puede ganar.
+--Bueno, vamos a dormir. Por la mañana iremos a ver al principal y te
+dirá lo que se puede ganar.
 
 Los marineros de la _Fleche_ comenzaban a beber, y uno de ellos cantaba,
-entre gritos y patadas, la cancion de _Les matelot de la Belle Eugenie_.
+entre gritos y patadas, la canción de _Les matelot de la Belle Eugenie_.
 
-Al dia siguiente, muy temprano, se levanto Martin y con Ospitalech tomo
-el tren para Bayona. Fueron los dos a casa de un judio que se llamaba
+Al día siguiente, muy temprano, se levantó Martín y con Ospitalech tomó
+el tren para Bayona. Fueron los dos a casa de un judío que se llamaba
 Levi-Alvarez. Era este un hombre bajito, entre rubio y canoso, con la
 nariz arqueada, el bigote blanco y los anteojos de oro. Ospitalech era
-dependiente del senor Levi-Alvarez y conto a su principal como Martin se
-brindaba a realizar la expedicion dificil de entrar en el campo carlista
+dependiente del señor Levi-Alvarez y contó a su principal cómo Martín se
+brindaba a realizar la expedición difícil de entrar en el campo carlista
 para volver con las letras firmadas.
 
---?Cuanto quiere usted por eso?--pregunto Levi-Alvarez.
+--¿Cuánto quiere usted por eso?--preguntó Levi-Alvarez.
 
 --El veinte por ciento.
 
---iCaramba! Es mucho.
+--¡Caramba! Es mucho.
 
---Esta bien, no hablemos, me voy.
+--Está bien, no hablemos, me voy.
 
---Espere usted. ?Sabe usted que las letras ascienden a ciento veinte mil
-duros? El veinte por ciento seria una cantidad enorme.
+--Espere usted. ¿Sabe usted que las letras ascienden a ciento veinte mil
+duros? El veinte por ciento sería una cantidad enorme.
 
 --Es lo que me ha ofrecido Ospitalech. Eso o nada.
 
---iQue barbaridad! No tiene usted consideracion...
+--¡Qué barbaridad! No tiene usted consideración...
 
---Es mi ultima palabra. Eso o nada.
+--Es mi última palabra. Eso o nada.
 
---Bueno, bueno. Esta bien. ?Sabe usted que si tiene suerte se va usted a
+--Bueno, bueno. Está bien. ¿Sabe usted que si tiene suerte se va usted a
 ganar veinticuatro mil duros...?
 
---Y si no me pegaran un tiro.
+--Y si no me pegarán un tiro.
 
---Exacto. ?Acepta usted?
+--Exacto. ¿Acepta usted?
 
---Si, senor, acepto.
+--Sí, señor, acepto.
 
 --Bueno. Entonces estamos conformes.
 
 --Pero yo exijo que usted me formalice este contrato por escrito--dijo
-Martin.
+Martín.
 
 --No tengo inconveniente.
 
-El judio quedo un poco perplejo y, despues de vacilar un poco, pregunto:
+El judío quedó un poco perplejo y, después de vacilar un poco, preguntó:
 
---?Como quiere usted que lo haga?
+--¿Cómo quiere usted que lo haga?
 
---En pagares de mil duros cada uno.
+--En pagarés de mil duros cada uno.
 
-El judio, despues de vacilar, lleno los pagares y puso los sellos.
+El judío, después de vacilar, llenó los pagarés y puso los sellos.
 
---Si cobra usted--advirtio--de cada pueblo me puede usted ir enviando
+--Si cobra usted--advirtió--de cada pueblo me puede usted ir enviando
 las letras.
 
---?No las podria depositar en los pueblos en casa del notario?
+--¿No las podría depositar en los pueblos en casa del notario?
 
---Si, es mejor. Un consejo. En Estella no vaya usted donde el ministro
-de la guerra. Presentese usted al general en jefe y le entrega usted las
+--Sí, es mejor. Un consejo. En Estella no vaya usted donde el ministro
+de la guerra. Preséntese usted al general en jefe y le entrega usted las
 cartas.
 
---Eso hare.
+--Eso haré.
 
---Entonces, adios, y buena suerte.
+--Entonces, adiós, y buena suerte.
 
-Martin fue a casa de un notario de Bayona, le pregunto si los pagares
-estaban en regla y, habiendole dicho que si, los deposito bajo recibo.
+Martín fué a casa de un notario de Bayona, le preguntó si los pagarés
+estaban en regla y, habiéndole dicho que sí, los depositó bajo recibo.
 
-El mismo dia se fue a Zaro.
+El mismo día se fué a Zaro.
 
---Guardadme este papel--dijo a Bautista y a su hermana--dandoles el
+--Guardadme este papel--dijo a Bautista y a su hermana--dándoles el
 recibo.
 
 Yo me voy.
 
---?Adonde vas?--pregunto Bautista.
+--¿Adónde vas?--preguntó Bautista.
 
-Martin le explico sus proyectos.
+Martín le explicó sus proyectos.
 
 --Eso es un disparate--dijo Bautista--te van a matar.
 
---iCa!
+--¡Ca!
 
 --Cualquiera de la partida del Cura que te vea te denuncia.
 
---No esta ninguno en Espana. La mayoria andan por Buenos Aires. Algunos
-los tienes por aqui, por Francia, trabajando.
+--No está ninguno en España. La mayoría andan por Buenos Aires. Algunos
+los tienes por aquí, por Francia, trabajando.
 
 --No importa, es una barbaridad lo que quieres, hacer.
 
---iHombre! Yo no obligo a nadie a que venga conmigo--dijo Martin.
+--¡Hombre! Yo no obligo a nadie a que venga conmigo--dijo Martín.
 
---Es que si tu crees que eres el unico capaz de hacer eso, estas
-equivocado--replico Bautista--. Yo voy donde otro vaya.
+--Es que si tú crees que eres el único capaz de hacer eso, estás
+equivocado--replicó Bautista--. Yo voy donde otro vaya.
 
 --No digo que no.
 
@@ -3709,113 +3561,113 @@ equivocado--replico Bautista--. Yo voy donde otro vaya.
 
 --No, hombre, no.
 
---Si, si, y para que veas que no hay tal cosa, te voy a acompanar. No se
-dira que un vasco frances no se atreve a ir donde vaya un vasco espanol.
+--Sí, sí, y para que veas que no hay tal cosa, te voy a acompañar. No se
+dirá que un vasco francés no se atreve a ir donde vaya un vasco español.
 
---Pero hombre, tu estas casado--repuso Martin.
+--Pero hombre, tú estás casado--repuso Martín.
 
 --No importa.
 
---Bueno, ya veo que lo tu quieres es acompanarme. Iremos juntos, y, si
-conseguimos traer las letras firmadas te dare algo.
+--Bueno, ya veo que lo tú quieres es acompañarme. Iremos juntos, y, si
+conseguimos traer las letras firmadas te daré algo.
 
---?Cuanto?
+--¿Cuánto?
 
 --Ya veremos.
 
---iQue granuja eres!--exclamo Bautista--?para que quieres tanto dinero?
+--¡Qué granuja eres!--exclamó Bautista--¿para qué quieres tanto dinero?
 
---?Que se yo? Ya veremos. Yo tengo en la cabeza algo. ?Que? No lo se,
+--¿Qué sé yo? Ya veremos. Yo tengo en la cabeza algo. ¿Qué? No lo sé,
 pero sirvo para alguna cosa. Es una idea que se me ha metido en la
 cabeza hace poco.
 
---?Que demonio de ambicion tienes?
+--¿Qué demonio de ambición tienes?
 
---No se, chico, no se--contesto Martin--pero hay gente que se considera
+--No sé, chico, no sé--contestó Martín--pero hay gente que se considera
 como un cacharro viejo, que lo mismo puede servir de taza que de
-escupidera. Yo no, yo siento en mi, aqui dentro, algo duro y fuerte...
-no se explicarme.
+escupidera. Yo no, yo siento en mí, aquí dentro, algo duro y fuerte...
+no sé explicarme.
 
-A Bautista le extranaba esta ambicion obscura de Martin, porque el era
-claro y ordenado y sabia muy bien lo que queria.
+A Bautista le extrañaba esta ambición obscura de Martín, porque él era
+claro y ordenado y sabía muy bien lo que quería.
 
-Dejaron esta cuestion y hablaron del recorrido que tenian que hacer.
+Dejaron esta cuestión y hablaron del recorrido que tenían que hacer.
 
-Este comenzaria yendo en el vaporcito la _Fleche_ a Zumaya y siguiendo
-de aqui a Azpeitia, de Azpeitia a Tolosa y de Tolosa a Estella. Para no
-llevar la lista de todas las personas a quien tenian que ver y estar
-consultando a cada paso lo que podia comprometerles, Bautista, que tenia
-magnifica memoria, se la aprendio de corrido; cosieron las letras entre
+Este comenzaría yendo en el vaporcito la _Fleche_ a Zumaya y siguiendo
+de aquí a Azpeitia, de Azpeitia a Tolosa y de Tolosa a Estella. Para no
+llevar la lista de todas las personas a quien tenían que ver y estar
+consultando a cada paso lo que podía comprometerles, Bautista, que tenía
+magnífica memoria, se la aprendió de corrido; cosieron las letras entre
 el cuero de las polainas y por la noche se embarcaron.
 
 Entraron en el vaporcito de la _Fleche_ en Socoa y se echaron al mar.
-Bautista y Zalacain pasaron la travesia metidos en un camarote pequeno
+Bautista y Zalacaín pasaron la travesía metidos en un camarote pequeño
 dando tumbos.
 
-Al amanecer, el piloto vio hacia el cabo de Machichaco un barco que le
-parecio de guerra, y forzando la marcha entro en Zumaya.
+Al amanecer, el piloto vió hacia el cabo de Machichaco un barco que le
+pareció de guerra, y forzando la marcha entró en Zumaya.
 
-Varias companias carlistas salieron al puerto dispuestas a comenzar el
-fuego, pero cuando reconocieron el barco frances se tranquilizaron.
-Despues de desembarcar, la memoria admirable de Bautista indico las
-personas a quienes tenian que visitar en este pueblo. Eran tres o cuatro
+Varias compañías carlistas salieron al puerto dispuestas a comenzar el
+fuego, pero cuando reconocieron el barco francés se tranquilizaron.
+Después de desembarcar, la memoria admirable de Bautista indicó las
+personas a quienes tenían que visitar en este pueblo. Eran tres o cuatro
 comerciantes. Los buscaron, firmaron las letras, compraron los viajeros
-dos caballos, se agenciaron un salvo-conducto; y por la tarde, despues
-de comer, Martin y Bautista se encaminaron por la carretera de Cestona.
+dos caballos, se agenciaron un salvo-conducto; y por la tarde, después
+de comer, Martín y Bautista se encaminaron por la carretera de Cestona.
 
-Pasaron por el pueblecito de Oiquina, constituido por unos cuantos
-caserios colocados al borde del rio Urola, luego por Aizarnazabal y en
+Pasaron por el pueblecito de Oiquina, constituído por unos cuantos
+caseríos colocados al borde del río Urola, luego por Aizarnazabal y en
 la venta de Iraeta, cerca del puente, se detuvieron a cenar.
 
-La noche se echo pronto encima. Cenaron Martin y Bautista y discutieron
-si seria mejor quedarse alli o seguir adelante, y optaron por esto
-ultimo.
+La noche se echó pronto encima. Cenaron Martín y Bautista y discutieron
+si sería mejor quedarse allí o seguir adelante, y optaron por esto
+último.
 
 Montaron en sus jamelgos, y al echar a andar vieron que de una casa
-proxima al puente de Iraeta salia un coche arrastrado por cuatro
-caballos. El coche comenzo a subir el camino de Cestona al trote. Este
+próxima al puente de Iraeta salía un coche arrastrado por cuatro
+caballos. El coche comenzó a subir el camino de Cestona al trote. Este
 trozo de camino, desde Iraeta a Cestona, pasa entre dos montes y tiene
-en el fondo el rio. De noche, sobre todo, el tal paraje es triste y
+en el fondo el río. De noche, sobre todo, el tal paraje es triste y
 siniestro.
 
-Martin y Bautista, por ese sentimiento de fraternidad que se siente en
+Martín y Bautista, por ese sentimiento de fraternidad que se siente en
 las carreteras solitarias, quisieron acercarse al coche y ponerse al
-habla con el cochero, pero sin duda el cochero tenia razones para no
-querer compania, porque, al notar que le seguian, puso los caballos al
+habla con el cochero, pero sin duda el cochero tenía razones para no
+querer compañía, porque, al notar que le seguían, puso los caballos al
 trote largo y luego los hizo galopar.
 
-Asi, el coche delante y Martin y Bautista detras, subieron a Cestona, y
-al llegar aqui el coche dio una vuelta rapida y poco despues echo un
+Así, el coche delante y Martín y Bautista detrás, subieron a Cestona, y
+al llegar aquí el coche dió una vuelta rápida y poco después echó un
 fardo al suelo.
 
---Es algun contrabandista--dijo Martin.
+--Es algún contrabandista--dijo Martín.
 
-Efectivamente, lo era; hablaron con el y el hombre les confeso que habia
-estado dispuesto a dispararles al ver que le perseguian. Marcharon los
-tres a la posada, ya hechos amigos, y Martin fue a ver a un confitero
+Efectivamente, lo era; hablaron con él y el hombre les confesó que había
+estado dispuesto a dispararles al ver que le perseguían. Marcharon los
+tres a la posada, ya hechos amigos, y Martín fué a ver a un confitero
 carlista de la calle Mayor.
 
-Durmieron en la posada de Blas y muy de manana Zalacain y Bautista se
+Durmieron en la posada de Blas y muy de mañana Zalacaín y Bautista se
 prepararon a seguir su camino.
 
-Era el dia lluvioso y frio, la carretera, amarillenta, llena de baches,
-ondulaba por entre campos verdes; no se veia el monte Itzarroiz,
-envuelto entre la bruma. El rio, crecido, iba de color de ocre. Se
-detuvieron en Lasao, en la posesion de un baron carlista, a hacer que su
+Era el día lluvioso y frío, la carretera, amarillenta, llena de baches,
+ondulaba por entre campos verdes; no se veía el monte Itzarroiz,
+envuelto entre la bruma. El río, crecido, iba de color de ocre. Se
+detuvieron en Lasao, en la posesión de un barón carlista, a hacer que su
 administrador firmara un documento y siguieron bordeando el Urola hasta
 Azpeitia.
 
-Aqui el trabajo era bastante grande y tardaron en terminarle. Al
-anochecer, estuvieron ya libres, y, como preferian no quedarse en
-pueblos grandes, tomaron un camino de herradura que subia al monte
+Aquí el trabajo era bastante grande y tardaron en terminarle. Al
+anochecer, estuvieron ya libres, y, como preferían no quedarse en
+pueblos grandes, tomaron un camino de herradura que subía al monte
 Hernio y fueron a dormir a una aldea llamada Regil.
 
-El tercer dia, de Regil cogieron el camino de Vidania, y llegaron a
+El tercer día, de Regil cogieron el camino de Vidania, y llegaron a
 Tolosa, en donde estuvieron unas horas.
 
-De Tolosa fueron a dormir a un pueblo proximo. Les dijeron que por alla
-andaba una partida, y prefirieron seguir adelante. Esta partida, dias
-antes, habia apaleado barbaramente a unas muchachas, porque no quisieron
+De Tolosa fueron a dormir a un pueblo próximo. Les dijeron que por allá
+andaba una partida, y prefirieron seguir adelante. Esta partida, días
+antes, había apaleado bárbaramente a unas muchachas, porque no quisieron
 bailar con unos cuantos de aquellos foragidos. Dejaron el pueblo, y,
 unas veces al trote y otras al paso, llegaron hasta Amezqueta, en donde
 se detuvieron.
@@ -3823,328 +3675,328 @@ se detuvieron.
 
 
 
-CAPITULO VIII
+CAPÍTULO VIII
 
-VARIAS ANECDOTAS DE FERNANDO DE AMEZQUETA Y LLEGADA A ESTELLA
+VARIAS ANÉCDOTAS DE FERNANDO DE AMEZQUETA Y LLEGADA A ESTELLA
 
 
-En Amezqueta entraron en la posada proxima al juego de pelota. Llovia,
-hacia frio y se refugiaron al lado de la lumbre.
+En Amezqueta entraron en la posada próxima al juego de pelota. Llovía,
+hacía frío y se refugiaron al lado de la lumbre.
 
-Habia entre los reunidos en la venta un campesino chusco, que se puso a
-contar historias. El campesino, al entrar otros dos en la cocina, saco
-su gran panuelo a cuadros y comenzo a dar con el en las mesas y en las
+Había entre los reunidos en la venta un campesino chusco, que se puso a
+contar historias. El campesino, al entrar otros dos en la cocina, sacó
+su gran pañuelo a cuadros y comenzó a dar con él en las mesas y en las
 sillas, como si estuviera espantando moscas.
 
---?Que hay?--le dijo Martin--. ?Que hace usted?
+--¿Qué hay?--le dijo Martín--. ¿Qué hace usted?
 
---Estas moscas fastidiosas--contesto el campesino seriamente.
+--Estas moscas fastidiosas--contestó el campesino seriamente.
 
 --Pero si no hay moscas.
 
---Si las hay, si--replico el hombre, dando de nuevo con el panuelo.
+--Sí las hay, sí--replicó el hombre, dando de nuevo con el pañuelo.
 
-El posadero advirtio, riendo, a Martin y a Bautista que, como en
-Amezqueta habia tantas moscas de macho, a los del pueblo les llamaban,
+El posadero advirtió, riendo, a Martín y a Bautista que, como en
+Amezqueta había tantas moscas de macho, a los del pueblo les llamaban,
 en broma, _euliyac_ (las moscas), y que por eso el tipo aquel chistoso
-sacudia las mesas y las sillas con el panuelo, al entrar dos
+sacudía las mesas y las sillas con el pañuelo, al entrar dos
 amezquetanos.
 
-Rieron Martin y Bautista, y el campesino conto una porcion de historias
-y de anecdotas.
+Rieron Martín y Bautista, y el campesino contó una porción de historias
+y de anécdotas.
 
---Yo no se contar nada--dijo el hombre varias veces--. iSi estuviera
+--Yo no sé contar nada--dijo el hombre varias veces--. ¡Si estuviera
 _Pernando_!
 
---?Y quien era _Pernando_?--pregunto Martin.
+--¿Y quién era _Pernando_?--preguntó Martín.
 
---No habeis oido vosotros hablar de _Pernando_ de Amezqueta?
+--No habéis oído vosotros hablar de _Pernando_ de Amezqueta?
 
 --No.
 
---iAh! Pues era el hombre mas gracioso de toda esta provincia. iLas
+--¡Ah! Pues era el hombre más gracioso de toda esta provincia. ¡Las
 cosas que contaba aquel hombre!
 
-Martin y Bautista le instaron para que contara alguna historia de
-Fernando de Amezqueta, pero el campesino se resistia, porque aseguraba
-que oirle a el contar estas chuscadas no daba mas que una palida idea de
+Martín y Bautista le instaron para que contara alguna historia de
+Fernando de Amezqueta, pero el campesino se resistía, porque aseguraba
+que oirle a él contar estas chuscadas no daba más que una pálida idea de
 las salidas de Fernando.
 
-Sin embargo, a instancias de los dos, el campesino conto esta anecdota
+Sin embargo, a instancias de los dos, el campesino contó esta anécdota
 en vascuence:
 
-"Un dia Fernando fue a casa del senor cura de Amezqueta, que era amigo
-suyo y le convidaba a comer con frecuencia. Al entrar en la casa, husmeo
-desde la cocina y vio que el ama estaba limpiando dos truchas: una,
-hermosa, de cuatro libras lo menos, y la otra, pequenita, que apenas
-tenia carne. Paso Fernando a ver al senor cura, y este, segun su
-costumbre, le convido a comer. Se sentaron a la mesa el senor cura y
-Fernando. Sacaron dos sopas y Fernando comio de las dos; luego sacaron
-el cocido, despues una fuente de berzas con morcilla y, al llegar al
-principio, Fernando se encontro con que, en vez de poner la trucha
-grande, la condenada del ama habia puesto la pequena, que no tenia mas
+«Un día Fernando fué a casa del señor cura de Amezqueta, que era amigo
+suyo y le convidaba a comer con frecuencia. Al entrar en la casa, husmeó
+desde la cocina y vió que el ama estaba limpiando dos truchas: una,
+hermosa, de cuatro libras lo menos, y la otra, pequeñita, que apenas
+tenía carne. Pasó Fernando a ver al señor cura, y éste, según su
+costumbre, le convidó a comer. Se sentaron a la mesa el señor cura y
+Fernando. Sacaron dos sopas y Fernando comió de las dos; luego sacaron
+el cocido, después una fuente de berzas con morcilla y, al llegar al
+principio, Fernando se encontró con que, en vez de poner la trucha
+grande, la condenada del ama había puesto la pequeña, que no tenía más
 que raspa.
 
---Hombre, trucha--exclamo Fernando--le voy a hacer una pregunta.
+--Hombre, trucha--exclamó Fernando--le voy a hacer una pregunta.
 
---?Que le vas a preguntar?--dijo el cura riendo, en espera de un chiste.
+--¿Qué le vas a preguntar?--dijo el cura riendo, en espera de un chiste.
 
---Le voy a preguntar a ver si por los demas peces que ha conocido se ha
-enterado algo de como estan mis parientes al otro lado del mar, alli en
-America. Porque estas truchas saben mucho.
+--Le voy a preguntar a ver si por los demás peces que ha conocido se ha
+enterado algo de cómo están mis parientes al otro lado del mar, allí en
+América. Porque estas truchas saben mucho.
 
---Hombre, si, preguntale.
+--Hombre, sí, pregúntale.
 
-Cogio Fernando la fuente en donde estaba la trucha y se la puso delante,
-luego acerco el oido muy serio y escucho.
+Cogió Fernando la fuente en donde estaba la trucha y se la puso delante,
+luego acercó el oído muy serio y escuchó.
 
---?Que, contesta algo?--dijo burlonamente el ama del cura.
+--¿Qué, contesta algo?--dijo burlonamente el ama del cura.
 
---Si, ya va contestando, ya va contestando.
+--Sí, ya va contestando, ya va contestando.
 
---?Y que dice? ?Que dice?--pregunto el cura.
+--¿Y qué dice? ¿Qué dice?--preguntó el cura.
 
---Pues dice--contesto Fernando--que es muy pequena, pero que ahi, en esa
+--Pues dice--contestó Fernando--que es muy pequeña, pero que ahí, en esa
 despensa, hay guardada una trucha muy grande y que ella debe de saber
-mejores noticias de mis parientes."
+mejores noticias de mis parientes.»
 
-Una muchacha que estaba en la cocina, al oir la anecdota, se echo a reir
-con una risa aguda y comunico su risa a todos.
+Una muchacha que estaba en la cocina, al oir la anécdota, se echó a reir
+con una risa aguda y comunicó su risa a todos.
 
-Rieron tambien de buena gana Martin y Bautista la manera de senalar del
-truhan, pero el campesino aseguro que el no tenia arte para estos
+Rieron también de buena gana Martín y Bautista la manera de señalar del
+truhán, pero el campesino aseguró que él no tenía arte para estos
 cuentos.
 
-Le instaron para que siguiera y el hombre conto una nueva ocurrencia de
+Le instaron para que siguiera y el hombre contó una nueva ocurrencia de
 _Pernando_.
 
-"--Otra vez--dijo--fue a Idiazabal, donde habia un partido de pelota, y
-llego tarde a la posada, cuando ya todos estaban sentados. El amo le
+«--Otra vez--dijo--fué a Idiazabal, donde había un partido de pelota, y
+llegó tarde a la posada, cuando ya todos estaban sentados. El amo le
 dijo:
 
---No hay sitio para ti, Fernando, ni probablemente tampoco habra comida.
+--No hay sitio para ti, Fernando, ni probablemente tampoco habrá comida.
 
---iBah!--replico el--. iSi me dierais de balde lo que sobre!
+--¡Bah!--replicó él--. ¡Si me diérais de balde lo que sobre!
 
 --Pues nada, todo lo que sobre para ti.
 
-Se paseo Fernando por el comedor.
+Se paseó Fernando por el comedor.
 
-En la mesa redonda se habian sentado los dos bandos que habian jugado a
-la pelota, separados. Fernando, viendo que traian en una fuente piernas
+En la mesa redonda se habían sentado los dos bandos que habían jugado a
+la pelota, separados. Fernando, viendo que traían en una fuente piernas
 de carnero, dijo a dos o tres en voz baja:
 
---Yo no se de donde saca el amo estas piernas de perro tan hermosas y
+--Yo no sé de dónde saca el amo estas piernas de perro tan hermosas y
 con tanta carne.
 
---?Pero son de perro?--dijeron ellos.
+--¿Pero son de perro?--dijeron ellos.
 
---Si, de perro; pero no se lo digais a esos, que se fastidien.
+--Sí, de perro; pero no se lo digáis a esos, que se fastidien.
 
---?Pero de veras, Fernando?
+--¿Pero de veras, Fernando?
 
---Si, hombre; yo mismo he visto la cabeza en la cocina. iEra un perro de
-aguas mas hermoso!
+--Sí, hombre; yo mismo he visto la cabeza en la cocina. ¡Era un perro de
+aguas más hermoso!
 
-Dicho esto salio del comedor, y al volver tenian una cazuela con liebre.
-Fue al otro extremo de la mesa y dijo a los del bando contrario:
+Dicho esto salió del comedor, y al volver tenían una cazuela con liebre.
+Fué al otro extremo de la mesa y dijo a los del bando contrario:
 
---iVaya unos gatos mas buenos que compra este fondista a los
+--¡Vaya unos gatos más buenos que compra este fondista a los
 carabineros!
 
---iAh!, ?pero es gato eso?
+--¡Ah!, ¿pero es gato eso?
 
---Si, no se lo digais a esos, pero yo he visto las colas en la cocina.
+--Sí, no se lo digáis a esos, pero yo he visto las colas en la cocina.
 
-Poco despues, Fernando comia solo y tenia liebre y carnero de sobra. Al
-anochecer, salieron del pueblo todos, algo borrachos, y alguno se paro a
+Poco después, Fernando comía solo y tenía liebre y carnero de sobra. Al
+anochecer, salieron del pueblo todos, algo borrachos, y alguno se paró a
 echar la papilla en el camino.
 
---Es el perro, que le ha hecho dano--decian unos, burlandose.
+--Es el perro, que le ha hecho daño--decían unos, burlándose.
 
---Es el gato--decian los otros.
+--Es el gato--decían los otros.
 
-Y nadie queria decir que era el vino.
+Y nadie quería decir que era el vino.
 
---Companeros--dijo Fernando--, cuando se come gato y perro juntos no
-pasa nada. Ellos rinen en el interior como perros y gatos, pero le dejan
-a uno en paz."
+--Compañeros--dijo Fernando--, cuando se come gato y perro juntos no
+pasa nada. Ellos riñen en el interior como perros y gatos, pero le dejan
+a uno en paz.»
 
-La muchacha de la risa aguda rio de nuevo y el campesino comenzo a
-contar otra anecdota, diciendo:
+La muchacha de la risa aguda rió de nuevo y el campesino comenzó a
+contar otra anécdota, diciendo:
 
 --No estuvo mal tampoco la manera como Fernando deshizo la boda entre un
 zapatero rico de Tolosa y una novia suya.
 
---A ver, a ver como fue--dijeron todos.
+--A ver, a ver cómo fué--dijeron todos.
 
-"--Pues estaba Fernando de aprendiz en la zapateria del difunto
-Ichtaber, _el Chato de Tolosa_, y no se si vosotros sabreis, pero
-Ichtaber era un zapatero viejo y muy rico. Tenia Fernando de novia una
-chica muy guapa, pero Ichtaber, _el Chato_, al verla la empezo a
-cortejar y a decir si se queria casar con el, y, como era rico, ella
-acepto. Solian verse la muchacha y el viejo en la zapateria, y el
-granuja de Ichtaber, para estar mas libre, mandaba a Fernando, con
-cualquier pretexto, a la trastienda. El hacia como que no se incomodaba,
-pero se vengo. Fue a ver a su novia y hablo con ella.
+«--Pues estaba Fernando de aprendiz en la zapatería del difunto
+Ichtaber, _el Chato de Tolosa_, y no sé si vosotros sabréis, pero
+Ichtaber era un zapatero viejo y muy rico. Tenía Fernando de novia una
+chica muy guapa, pero Ichtaber, _el Chato_, al verla la empezó a
+cortejar y a decir si se quería casar con él, y, como era rico, ella
+aceptó. Solían verse la muchacha y el viejo en la zapatería, y el
+granuja de Ichtaber, para estar más libre, mandaba a Fernando, con
+cualquier pretexto, a la trastienda. El hacía como que no se incomodaba,
+pero se vengó. Fué a ver a su novia y habló con ella.
 
---Si--la dijo--. Ichtaber es buena persona y hombre de fortuna, es
+--Sí--la dijo--. Ichtaber es buena persona y hombre de fortuna, es
 verdad, pero como es zapatero y chato y ha andado toda la vida con
 pieles, huele muy mal.
 
---iMentiroso!--dijo ella.
+--¡Mentiroso!--dijo ella.
 
---No, no, fijate. Ya veras.
+--No, no, fíjate. Ya verás.
 
-Fernando fue a la zapateria, cogio un fuelle grande y lo relleno de esa
-casca que queda despues de curtidos los pellejos y que huele que apesta;
-luego hizo un agujero en el tabique de la trastienda y espero la ocasion
-oportuna. Por la tarde llego la chica, e Ichtaber dijo a su aprendiz:
+Fernando fué a la zapatería, cogió un fuelle grande y lo rellenó de esa
+casca que queda después de curtidos los pellejos y que huele que apesta;
+luego hizo un agujero en el tabique de la trastienda y esperó la ocasión
+oportuna. Por la tarde llegó la chica, é Ichtaber dijo a su aprendiz:
 
 --Oye, Fernando, vete a la trastienda un momento a arreglar esas hormas
 que hay en la caja.
 
-Salio Fernando; tomo el fuelle. Miro por el agujero. Ichtaber estaba
-besando la mano de la chica; entonces le apunto a ella con el fuelle y
-metio por el agujero del tabique una corriente de aire de mal olor.
-Cuando Fernando miro despues, Ichtaber _el Chato_ estaba con la mano en
+Salió Fernando; tomó el fuelle. Miró por el agujero. Ichtaber estaba
+besando la mano de la chica; entonces le apuntó a ella con el fuelle y
+metió por el agujero del tabique una corriente de aire de mal olor.
+Cuando Fernando miró después, Ichtaber _el Chato_ estaba con la mano en
 sus diminutas narices y la muchacha lo mismo.
 
-Luego Fernando siguio dandole al fuelle con intermitencias, hasta que se
-canso.
+Luego Fernando siguió dándole al fuelle con intermitencias, hasta que se
+cansó.
 
-Dos dias despues, fue de nuevo la chica y le paso lo mismo; y ya no
-volvio mas, porque decia que Ichtaber _el Chato_ olia a muerto.
+Dos días después, fué de nuevo la chica y le pasó lo mismo; y ya no
+volvió más, porque decía que Ichtaber _el Chato_ olía a muerto.
 
-Ichtaber hizo el amor a otra; pero Fernando le jugo la misma pasada con
-el fuelle, y el zapatero decia a sus amigos:
+Ichtaber hizo el amor a otra; pero Fernando le jugó la misma pasada con
+el fuelle, y el zapatero decía a sus amigos:
 
---_iArrayua!_ En mi tiempo era otra cosa; las chicas estaban sanas.
-Ahora, la que mas y la que menos huele a perros."
+--_¡Arrayua!_ En mi tiempo era otra cosa; las chicas estaban sanas.
+Ahora, la que más y la que menos huele a perros.»
 
-Volvio a oirse la risa alegre y chillona de la muchacha.
+Volvió a oirse la risa alegre y chillona de la muchacha.
 
-Celebraron los demas circunstantes las granujerias de Fernando el de
+Celebraron los demás circunstantes las granujerías de Fernando el de
 Amezqueta y fueron a acostarse.
 
-A la manana siguiente, Martin y Bautista dejaron a Amezqueta y por un
+A la mañana siguiente, Martín y Bautista dejaron a Amezqueta y por un
 sendero llegaron a Ataun, lugar en donde Dorronsoro, el jefe civil
-carlista, habia sido escribano.
+carlista, había sido escribano.
 
 Se encontraron en el camino a un muchacho de este pueblo que iba a
-Echarri-Aranaz y en su compania tomaron por un camino de herradura que
+Echarri-Aranaz y en su compañía tomaron por un camino de herradura que
 bordeaba la sierra de Aralar.
 
-Hablaron los tres de la marcha de la guerra, y el chico conto una
-anecdota de Dorronsoro, que no dejaba de tener gracia. Se habia
-presentado a el un senorito de San Sebastian, de familia carlista, de
+Hablaron los tres de la marcha de la guerra, y el chico contó una
+anécdota de Dorronsoro, que no dejaba de tener gracia. Se había
+presentado a él un señorito de San Sebastián, de familia carlista, de
 los que llamaban hojalateros, muy gordo y muy lucio.
 
---Mire usted, don Miguel--habia dicho al ex escribano--, yo soy muy
-carlista y mi familia tambien lo es; quisiera servir a don Carlos, pero,
-ya ve usted, no estoy para andar por el monte y desearia entrar en las
+--Mire usted, don Miguel--había dicho al ex escribano--, yo soy muy
+carlista y mi familia también lo es; quisiera servir a don Carlos, pero,
+ya ve usted, no estoy para andar por el monte y desearía entrar en las
 oficinas.
 
---Bueno, ya vere si encuentro algo--le dijo Dorronsoro--; vuelva usted
-manana.
+--Bueno, ya veré si encuentro algo--le dijo Dorronsoro--; vuelva usted
+mañana.
 
-Volvio al dia siguiente el senorito y pregunto:
+Volvió al día siguiente el señorito y preguntó:
 
---?Que, ha encontrado usted algo?
+--¿Qué, ha encontrado usted algo?
 
---Si, ya comprendo que no puede usted salir al monte; de manera que
-entrara usted en las oficinas... y pagara usted tres pesetas al dia.
+--Sí, ya comprendo que no puede usted salir al monte; de manera que
+entrará usted en las oficinas... y pagará usted tres pesetas al día.
 
-Celebraron Martin y Bautista la decision de Dorronsoro. Por la noche
+Celebraron Martín y Bautista la decisión de Dorronsoro. Por la noche
 llegaron al valle de Araquil y se detuvieron en Echarri-Aranaz.
 
-Entraron en la cocina de la venta a calentarse al fuego. Alli, en vez de
-las historias del buen truhan Fernando de Amezqueta, tuvieron que oir,
-contada por una vieja, la historia de don Teodosio de Goni, un caballero
-navarro que, despues de haber matado a su padre y a su madre, enganado
-por el Diablo, se fue de penitencia al monte con una cadena al pie,
-hasta que, pasados muchos anos y siendo don Teodosio viejo, se le
-presento un dragon, y ya iba a devorarle, cuando aparecio el arcangel
-San Miguel y mato al dragon y rompio las cadenas al caballero.
+Entraron en la cocina de la venta a calentarse al fuego. Allí, en vez de
+las historias del buen truhán Fernando de Amezqueta, tuvieron que oir,
+contada por una vieja, la historia de don Teodosio de Goñi, un caballero
+navarro que, después de haber matado a su padre y a su madre, engañado
+por el Diablo, se fué de penitencia al monte con una cadena al pie,
+hasta que, pasados muchos años y siendo don Teodosio viejo, se le
+presentó un dragón, y ya iba a devorarle, cuando apareció el arcángel
+San Miguel y mató al dragón y rompió las cadenas al caballero.
 
-A Bautista y a Martin les parecieron mas entretenidas que esta tonta
+A Bautista y a Martín les parecieron más entretenidas que esta tonta
 historia de dragones y de santos las ocurrencias del buen Fernando de
 Amezqueta.
 
 Estaban oyendo los comentarios a la vida de don Teodosio, cuando se
-presento en la venta un senor rubio, que, al ver a Bautista y a Martin,
-se les quedo mirando atentamente.
+presentó en la venta un señor rubio, que, al ver a Bautista y a Martín,
+se les quedó mirando atentamente.
 
---iPero son ustedes!
+--¡Pero son ustedes!
 
 --Usted es el de...
 
 --El mismo.
 
-Era el extranjero a quien habian libertado de las garras del cura.
+Era el extranjero a quien habían libertado de las garras del cura.
 
---?A que vienen ustedes por aqui?--pregunto el extranjero.
+--¿A qué vienen ustedes por aquí?--preguntó el extranjero.
 
 --Vamos a Estella.
 
---?De veras?
+--¿De veras?
 
---Si.
+--Sí.
 
---Yo tambien. Iremos juntos. ?Conocen ustedes el camino?
+--Yo también. Iremos juntos. ¿Conocen ustedes el camino?
 
 --No.
 
---Yo si. He estado ya una vez.
+--Yo sí. He estado ya una vez.
 
---Pero, ?que hace usted andando siempre por estos parajes?--le pregunto
-Martin.
+--Pero, ¿qué hace usted andando siempre por estos parajes?--le preguntó
+Martín.
 
 --Es mi oficio--le dijo el extranjero.
 
---Pues, ?que es usted, si se puede saber?
+--Pues, ¿qué es usted, si se puede saber?
 
---Soy periodista. La fuga aquella me sirvio para hacer un articulo
-interesantisimo. Hablaba de ustedes dos y de aquella senorita morena.
-iQue chica mas valiente, eh!
+--Soy periodista. La fuga aquella me sirvió para hacer un artículo
+interesantísimo. Hablaba de ustedes dos y de aquella señorita morena.
+¡Qué chica más valiente, eh!
 
 --Ya lo creo.
 
 --Pues, si no tienen ustedes reparo, iremos juntos a Estella.
 
---?Reparo? Al reves. Satisfaccion y grande.
+--¿Reparo? Al revés. Satisfacción y grande.
 
 Quedaron de acuerdo en marchar juntos.
 
-A las siete de la manana, hora en que empezo a aclarar, salieron los
-tres, atravesaron el tunel de Lizarraga y comenzaron a descender hacia
+A las siete de la mañana, hora en que empezó a aclarar, salieron los
+tres, atravesaron el túnel de Lizárraga y comenzaron a descender hacia
 la llanada de Estella. El extranjero montaba en un borriquillo, que
-marchaba casi mas deprisa que los matalones en que iban Martin y
+marchaba casi más deprisa que los matalones en que iban Martín y
 Bautista. El camino serpenteaba subiendo el desnivel de la sierra de
-Andia.
+Andía.
 
 Atravesaron posiciones ocupadas por batallones carlistas. Entre los
-jefes habia muchos extranjeros con flamantes uniformes austriacos,
+jefes había muchos extranjeros con flamantes uniformes austríacos,
 italianos y franceses, un tanto carnavalescos.
 
-A media tarde comieron en Lezaun y, arreando las caballerias, pasaron
-por Abarzuza. El extranjero explico al paso la posicion respectiva de
+A media tarde comieron en Lezaun y, arreando las caballerías, pasaron
+por Abarzuza. El extranjero explicó al paso la posición respectiva de
 liberales y carlistas en la batalla de Monte Muru y el sitio donde se
-desarrollo lo mas fuerte de la accion, en la que murio el general
+desarrolló lo más fuerte de la acción, en la que murió el general
 Concha.
 
 Al anochecer llegaron cerca de Estella.
 
-Mucho antes de entrar en la corte carlista encontraron una compania con
-un teniente que les ordeno detenerse. Mostraron los tres su pasaporte.
+Mucho antes de entrar en la corte carlista encontraron una compañía con
+un teniente que les ordenó detenerse. Mostraron los tres su pasaporte.
 
 Al llegar cerca del convento de Recoletos, era ya de noche.
 
---?Quien vive?--grito el centinela.
+--¿Quién vive?--gritó el centinela.
 
---Espana.
+--España.
 
---?Que gente?
+--¿Qué gente?
 
 --Paisanos.
 
@@ -4156,364 +4008,364 @@ ciudad carlista.
 
 
 
-CAPITULO IX
+CAPÍTULO IX
 
-COMO MARTIN Y EL EXTRANJERO PASEARON DE NOCHE POR ESTELLA
+CÓMO MARTÍN Y EL EXTRANJERO PASEARON DE NOCHE POR ESTELLA
 Y DE LO QUE HABLARON
 
 
 Pasaron por el portal de Santiago, entraron en la calle Mayor y
-preguntaron en la posada si habia alojamiento.
+preguntaron en la posada si había alojamiento.
 
-Una muchacha aparecio en la escalera.
+Una muchacha apareció en la escalera.
 
---Esta la casa llena--dijo--. No hay sitio para tres personas, solo una
-podria quedarse.
+--Está la casa llena--dijo--. No hay sitio para tres personas, sólo una
+podría quedarse.
 
---?Y las caballerias?--pregunto Bautista.
+--¿Y las caballerías?--preguntó Bautista.
 
 --Creo que hay sitio en la cuadra.
 
-Fue la muchacha a verlo y Martin dijo a Bautista.
+Fué la muchacha a verlo y Martín dijo a Bautista.
 
---Puesto que hay sitio para una persona, tu te puedes quedar aqui. Vale
-mas que estemos separados y que hagamos como si no nos conocieramos.
+--Puesto que hay sitio para una persona, tú te puedes quedar aquí. Vale
+más que estemos separados y que hagamos como si no nos conociéramos.
 
---Si, es verdad--contesto Bautista.
+--Sí, es verdad--contestó Bautista.
 
---Manana, a la manana, en la plaza nos encontraremos.
+--Mañana, a la mañana, en la plaza nos encontraremos.
 
 --Muy bien.
 
-Vino la muchacha y dijo que habia sitio en la cuadra para los jacos.
+Vino la muchacha y dijo que había sitio en la cuadra para los jacos.
 
-Entro Bautista en la casa con las caballerias, y el extranjero y Martin
+Entró Bautista en la casa con las caballerías, y el extranjero y Martín
 fueron, preguntando, a otra posada del paseo de los Llanos, donde les
 dieron alojamiento.
 
-Llevaron a Martin a un cuarto desmantelado y polvoriento, en cuyo fondo
-habia una alcoba estrecha, con las paredes cubiertas de unas manchas
-negras de humo. Sin duda los huespedes mataban las chinches quemandolas
+Llevaron a Martín a un cuarto desmantelado y polvoriento, en cuyo fondo
+había una alcoba estrecha, con las paredes cubiertas de unas manchas
+negras de humo. Sin duda los huéspedes mataban las chinches quemándolas
 con una vela o con la lamparilla y dejaban estos tranquilizadores
-rastros. En el gabinete y en la alcoba olia a cuadra, olor que venia de
+rastros. En el gabinete y en la alcoba olía a cuadra, olor que venía de
 las junturas de las maderas del suelo.
 
-Martin saco la carta de Levi-Alvarez y el paquete de letras cosido en el
-cuero de la bota y separo las ya aceptadas y firmadas, de las otras.
-Como estas todas eran para Estella, las encerro en un sobre y escribio:
+Martín sacó la carta de Levi-Alvarez y el paquete de letras cosido en el
+cuero de la bota y separó las ya aceptadas y firmadas, de las otras.
+Como estas todas eran para Estella, las encerró en un sobre y escribió:
 
-"Al general en jefe del ejercito carlista."
+«Al general en jefe del ejército carlista.»
 
---?Sera prudente--se dijo--entregar estas letras sin garantia alguna?
+--¿Será prudente--se dijo--entregar estas letras sin garantía alguna?
 
-No penso mucho tiempo, porque comprendio enseguida que era una locura
+No pensó mucho tiempo, porque comprendió enseguida que era una locura
 pedir recibo o fianza.
 
 --La verdad es que, si no quieren firmar, no puedo obligarles, y si me
-dan un recibo y luego se les ocurre quitarmelo, con prenderme estan al
-cabo de la calle. Aqui hay que hacer como si a uno le fuera indiferente
+dan un recibo y luego se les ocurre quitármelo, con prenderme están al
+cabo de la calle. Aquí hay que hacer como si a uno le fuera indiferente
 la cosa y, si sale bien, aprovecharse de ella, y si no, dejarla.
 
-Espero a que se secara el sobre. Salio a la calle. Vio en la calle un
-sargento y, despues de saludarle, le pregunto:
+Esperó a que se secara el sobre. Salió a la calle. Vió en la calle un
+sargento y, después de saludarle, le preguntó:
 
---?Donde se podra ver al general?
+--¿Dónde se podrá ver al general?
 
---iA que general!
+--¡A qué general!
 
---Al general en jefe. Traigo unas cartas para el.
+--Al general en jefe. Traigo unas cartas para él.
 
---Estara probablemente paseando en la plaza. Venga usted.
+--Estará probablemente paseando en la plaza. Venga usted.
 
 Fueron a la plaza. En los arcos, a la luz de unos faroles tristes de
-petroleo, paseaban algunos jefes carlistas. El sargento se acerco al
-grupo y, encarandose con uno de ellos, dijo:
+petróleo, paseaban algunos jefes carlistas. El sargento se acercó al
+grupo y, encarándose con uno de ellos, dijo:
 
 --Mi general.
 
---?Que hay?
+--¿Qué hay?
 
 --Este paisano, que trae unas cartas para el general en jefe.
 
-Martin se acerco y entrego los sobres. El general carlista se arrimo a
-un farol y los abrio. Era el general un hombre alto, flaco, de unos
-cincuenta anos, de barba negra, con el brazo en cabestrillo. Llevaba una
-boina grande de gascon con una borla.
+Martín se acercó y entregó los sobres. El general carlista se arrimó a
+un farol y los abrió. Era el general un hombre alto, flaco, de unos
+cincuenta años, de barba negra, con el brazo en cabestrillo. Llevaba una
+boina grande de gascón con una borla.
 
---?Quien ha traido esto?--pregunto el general con voz fuerte.
+--¿Quién ha traído esto?--preguntó el general con voz fuerte.
 
---Yo--dijo Martin.
+--Yo--dijo Martín.
 
---?Sabe usted lo que venia aqui dentro?
+--¿Sabe usted lo que venía aquí dentro?
 
---No, senor.
+--No, señor.
 
---?Quien le ha dado a usted estos sobres?
+--¿Quién le ha dado a usted estos sobres?
 
---El senor Levi-Alvarez de Bayona.
+--El señor Levi-Alvarez de Bayona.
 
---?Como ha venido usted hasta aqui?
+--¿Cómo ha venido usted hasta aquí?
 
---He ido de San Juan de Luz a Zumaya en barco, de Zumaya aqui a caballo.
+--He ido de San Juan de Luz a Zumaya en barco, de Zumaya aquí a caballo.
 
---?Y no ha tenido usted ningun contratiempo en el camino?
+--¿Y no ha tenido usted ningún contratiempo en el camino?
 
 --Ninguno.
 
---Aqui hay algunos papeles que hay que entregar al rey. ?Quiere usted
+--Aquí hay algunos papeles que hay que entregar al rey. ¿Quiere usted
 entregarlos o que se los entregue yo?
 
---No tengo mas encargo que dar estos sobres y, si hay contestacion,
+--No tengo más encargo que dar estos sobres y, si hay contestación,
 volverla a Bayona.
 
---?No es usted carlista?--pregunto el general, sorprendido del tono de
-indiferencia de Martin.
+--¿No es usted carlista?--preguntó el general, sorprendido del tono de
+indiferencia de Martín.
 
 --Vivo en Francia y soy comerciante.
 
---Ah, vamos, es usted frances.
+--Ah, vamos, es usted francés.
 
-Martin callo.
+Martín calló.
 
---?Donde para usted?--siguio preguntando el general.
+--¿Dónde para usted?--siguió preguntando el general.
 
 --En una posada de ese paseo...
 
---?Del paseo de los Llanos?
+--¿Del paseo de los Llanos?
 
---Creo que si. Asi se llama.
+--Creo que sí. Así se llama.
 
---?Hay una administracion de coches en el portal? ?No?
+--¿Hay una administración de coches en el portal? ¿No?
 
---Si, senor.
+--Sí, señor.
 
---Entonces, es la misma, ?Piensa usted estar muchos dias en Estella?
+--Entonces, es la misma, ¿Piensa usted estar muchos días en Estella?
 
---Hasta que me digan si hay contestacion o no.
+--Hasta que me digan si hay contestación o no.
 
---?Como se llama usted?
+--¿Cómo se llama usted?
 
---Martin Tellagorri.
+--Martín Tellagorri.
 
---Esta bien. Puede usted retirarse.
+--Está bien. Puede usted retirarse.
 
-Saludo Martin y se fue a la posada. A la puerta se encontro con el
+Saludó Martín y se fué a la posada. A la puerta se encontró con el
 extranjero.
 
---?Donde se mete usted?--le dijo--. Le andaba buscando.
+--¿Dónde se mete usted?--le dijo--. Le andaba buscando.
 
 --He ido a ver al general en jefe.
 
---?De veras?
+--¿De veras?
 
---Si.
+--Sí.
 
---?Y le ha visto usted?
+--¿Y le ha visto usted?
 
---Ya lo creo. Y le he dado las cartas que traia para el.
+--Ya lo creo. Y le he dado las cartas que traía para él.
 
---iDemonio! Eso si que es ir de prisa. No le quisiera tener a usted de
-rival en un periodico. ?Que le ha dicho a usted?
+--¡Demonio! Eso sí que es ir de prisa. No le quisiera tener a usted de
+rival en un periódico. ¿Qué le ha dicho a usted?
 
 --Ha estado muy amable.
 
 --Tenga usted cuidado, por si acaso. Mire usted que estos son unos
 bandidos.
 
---Le he indicado que soy frances.
+--Le he indicado que soy francés.
 
---Bah, no importa. Este verano han fusilado a un periodista aleman amigo
-mio. Tenga usted cuidado.
+--Bah, no importa. Este verano han fusilado a un periodista alemán amigo
+mío. Tenga usted cuidado.
 
---iOh! Lo tendre.
+--¡Oh! Lo tendré.
 
 --Ahora, vamos a cenar.
 
 Subieron las escaleras y entraron en una cocina grande.
 
-Varios paisanos y soldados, congregados alli, charlaban. Se sentaron a
-cenar a una mesa larga, iluminada por un velon de varios mecheros que
+Varios paisanos y soldados, congregados allí, charlaban. Se sentaron a
+cenar a una mesa larga, iluminada por un velón de varios mecheros que
 colgaba del techo.
 
-Un hombre viejo, bajito, que presidia la mesa, se quito la boina y
-comenzo a rezar; todos los comensales hicieron lo mismo, menos el
-extranjero a quien advirtio Martin de su olvido y que, al darse cuenta,
-se quito apresuradamente la gorra.
+Un hombre viejo, bajito, que presidía la mesa, se quitó la boina y
+comenzó a rezar; todos los comensales hicieron lo mismo, menos el
+extranjero a quien advirtió Martín de su olvido y que, al darse cuenta,
+se quitó apresuradamente la gorra.
 
-En el transcurso de la cena, el hombre bajito hablo mas que nadie. Era
-navarro de la Ribera. Tenia un tipo repulsivo, chato, de mirada oblicua,
-pomulos salientes, la boina pequena echada sobre los ojos, como si
-instintivamente quisiera ocultar su mirada. Defendia la conducta del
+En el transcurso de la cena, el hombre bajito habló más que nadie. Era
+navarro de la Ribera. Tenía un tipo repulsivo, chato, de mirada oblicua,
+pómulos salientes, la boina pequeña echada sobre los ojos, como si
+instintivamente quisiera ocultar su mirada. Defendía la conducta del
 cabecilla asesino Rosas Samaniego, que estaba entonces preso en Estella,
-y le parecia poca cosa el echar a los hombres por la sima de Igusquiza,
-tratandose de liberales y de hombres que blasfemaban de su Dios y de su
-religion.
+y le parecía poca cosa el echar a los hombres por la sima de Igusquiza,
+tratándose de liberales y de hombres que blasfemaban de su Dios y de su
+religión.
 
-Conto el tal viejo varias historias de la guerra carlista anterior. Una
-de ellas era verdaderamente odiosa y cobarde. Una vez cerca de un rio,
+Contó el tal viejo varias historias de la guerra carlista anterior. Una
+de ellas era verdaderamente odiosa y cobarde. Una vez cerca de un río,
 yendo con la partida, se encontraron con diez o doce soldados jovencitos
 que lavaban sus camisas en el agua.
 
 --A bayonetazos acabamos con todos--dijo el hombre sonriendo, luego
-anadio hipocritamente--Dios nos lo habra perdonado.
+añadió hipócritamente--Dios nos lo habrá perdonado.
 
-Durante la cena, el repulsivo viejo estuvo contando hazanas por el
-estilo. Aquel tipo miserable y siniestro era fanatico, violento y
-cobarde, se recreaba contando sus fechorias, manifestaba crueldad
-bastante para disimular su cobardia, tosquedad para darla como franqueza
-y ruindad para darle el caracter de habilidad. Tenia la doble
-bestialidad de ser fanatico y de ser carlista.
+Durante la cena, el repulsivo viejo estuvo contando hazañas por el
+estilo. Aquel tipo miserable y siniestro era fanático, violento y
+cobarde, se recreaba contando sus fechorías, manifestaba crueldad
+bastante para disimular su cobardía, tosquedad para darla como franqueza
+y ruindad para darle el carácter de habilidad. Tenía la doble
+bestialidad de ser fanático y de ser carlista.
 
-Este desagradable y antipatico personaje se puso despues a clasificar
-los batallones carlistas segun su valor; primero eran los navarros, como
-era natural, siendo el navarro, luego los castellanos, despues los
-alaveses, luego los guipuzcoanos y al ultimo los vizcainos.
+Este desagradable y antipático personaje se puso después a clasificar
+los batallones carlistas según su valor; primero eran los navarros, como
+era natural, siendo él navarro, luego los castellanos, después los
+alaveses, luego los guipuzcoanos y al último los vizcaínos.
 
-Por el curso de la conversacion se veia que habia alla un ambiente de
+Por el curso de la conversación se veía que había allá un ambiente de
 odios terribles; navarros, vascongados, alaveses, aragoneses y
-castellanos se odiaban a muerte. Todo ese fondo cabileno que duerme en
-el instinto provincial espanol estaba despierto. Unos se reprochaban a
+castellanos se odiaban a muerte. Todo ese fondo cabileño que duerme en
+el instinto provincial español estaba despierto. Unos se reprochaban a
 otros el ser cobardes, granujas y ladrones.
 
-Martin se ahogaba en aquel antro, y sin tomar el postre, se levanto de
-la mesa para marcharse. El extranjero le siguio y salieron los dos a la
+Martín se ahogaba en aquel antro, y sin tomar el postre, se levantó de
+la mesa para marcharse. El extranjero le siguió y salieron los dos a la
 calle.
 
-Lloviznaba. En algunas tabernas obscuras, a la luz de un quinque de
-petroleo, se veian grupos de soldados. Se oia el rasguear de la
+Lloviznaba. En algunas tabernas obscuras, a la luz de un quinqué de
+petróleo, se veían grupos de soldados. Se oía el rasguear de la
 guitarra; de cuando en cuando una voz cantaba la jota, en la calle
 negra y silenciosa.
 
---Ya me esta a mi cargando esta cancion estolida--murmuro Martin.
+--Ya me está a mí cargando esta canción estólida--murmuró Martín.
 
---?Cual?--pregunto el extranjero.
+--¿Cuál?--preguntó el extranjero.
 
 --La jota. La encuentro como una cosa petulante. Me parece que le estoy
 oyendo hablar a ese viejo navarro de la posada. El que la canta quiere
-decir: "Yo soy mas valiente que nadie, mas noble que nadie, mas heroico
-que nadie."
+decir: «Yo soy más valiente que nadie, más noble que nadie, mas heroico
+que nadie.»
 
---?Y estos no son mas valientes que los demas espanoles?--pregunto el
+--¿Y estos no son más valientes que los demás españoles?--preguntó el
 extranjero maliciosamente.
 
---No lo se; yo no lo creo, por lo menos. Yo, ahora mismo, si tuviera
+--No lo sé; yo no lo creo, por lo menos. Yo, ahora mismo, si tuviera
 quinientos hombres tomaba Estella por asalto y le pegaba fuego.
 
---iJa! iJa! Es usted un hombre extraordinario.
+--¡Ja! ¡Ja! Es usted un hombre extraordinario.
 
 --Es que lo digo porque lo creo.
 
-Yo tambien lo creo, y siento que no tenga usted los quinientos hombres.
-?Y que decia usted de la gente del Ebro?
+Yo también lo creo, y siento que no tenga usted los quinientos hombres.
+¿Y que decía usted de la gente del Ebro?
 
---Nada, que han decidido ellos mismos que son los unicos francos, los
-unicos leales, porque hablan muy en bruto y cantan la jota.
+--Nada, que han decidido ellos mismos que son los únicos francos, los
+únicos leales, porque hablan muy en bruto y cantan la jota.
 
---?De manera que para usted este canto es como una falsificacion del
-valor y de la energia?
+--¿De manera que para usted este canto es como una falsificación del
+valor y de la energía?
 
---Si, algo asi.
+--Sí, algo así.
 
---Esta bien. Lo dire en mi proxima cronica. ?No le parece a usted mal
+--Está bien. Lo diré en mi próxima crónica. ¿No le parece a usted mal
 que me sirva de sus opiniones?
 
---De ningun modo, porque a mi no me sirven para nada.
+--De ningún modo, porque a mí no me sirven para nada.
 
-Siguieron paseando, pero al alejarse un poco, un centinela les dio el
-alto y volvieron a la plaza. Se hallaba esta solitaria.
+Siguieron paseando, pero al alejarse un poco, un centinela les dió el
+alto y volvieron a la plaza. Se hallaba ésta solitaria.
 
-Dieron varias vueltas y un sereno les saludo y les dijo:
+Dieron varias vueltas y un sereno les saludó y les dijo:
 
---?Que hacen ustedes aqui?
+--¿Qué hacen ustedes aquí?
 
---?No se puede pasear?--pregunto Zalacain.
+--¿No se puede pasear?--preguntó Zalacaín.
 
---Hombre, si; pero no es una hora muy a proposito.
+--Hombre, sí; pero no es una hora muy a propósito.
 
---Es que hemos cenado tarde y estabamos dando una vuelta--dijo el
-extranjero--no quisieramos acostarnos tan pronto.
+--Es que hemos cenado tarde y estábamos dando una vuelta--dijo el
+extranjero--no quisiéramos acostarnos tan pronto.
 
---?Por que no van ustedes alli?--dijo el sereno, senalando los balcones
+--¿Por qué no van ustedes allí?--dijo el sereno, señalando los balcones
 de una casa que brillaban iluminados.
 
---?Que es lo que hay alli?--pregunto Martin.
+--¿Qué es lo que hay allí?--preguntó Martín.
 
---El Casino--contesto el sereno.
+--El Casino--contestó el sereno.
 
---?Y que hacen ahora?--dijo el extranjero.
+--¿Y qué hacen ahora?--dijo el extranjero.
 
---Estaran jugando.
+--Estarán jugando.
 
 Se despidieron del vigilante nocturno y dejaron la plaza.
 
-Despues, dando un rodeo, salieron al paseo de Los Llanos. Una campana de
-un convento comenzo a tocar.
+Después, dando un rodeo, salieron al paseo de Los Llanos. Una campana de
+un convento comenzó a tocar.
 
---Juego, campanas, carlismo y jota. iQue espanol es esto, mi querido
-Martin!--dijo el extranjero.
+--Juego, campanas, carlismo y jota. ¡Qué español es esto, mi querido
+Martín!--dijo el extranjero.
 
---Pues yo tambien soy espanol y todo eso me es muy antipatico--contesto
-Martin.
+--Pues yo también soy español y todo eso me es muy antipático--contestó
+Martín.
 
---Sin embargo, son los caracteres que constituyen la tradicion de su
-pais--dijo el extranjero.
+--Sin embargo, son los caracteres que constituyen la tradición de su
+país--dijo el extranjero.
 
---Mi pais es el monte--contesto Zalacain.
-
-
+--Mi país es el monte--contestó Zalacaín.
 
 
-CAPITULO X
-
-COMO TRANSCURRIO EL SEGUNDO DIA EN ESTELLA
 
 
-Conformes Martin y Bautista, se encontraron en la plaza. Martin
-considero que no convenia que le viesen hablar con su cunado, y para
-decir lo hecho por el la noche anterior escribio en un papel su
+CAPÍTULO X
+
+CÓMO TRANSCURRIÓ EL SEGUNDO DÍA EN ESTELLA
+
+
+Conformes Martín y Bautista, se encontraron en la plaza. Martín
+consideró que no convenía que le viesen hablar con su cuñado, y para
+decir lo hecho por él la noche anterior escribió en un papel su
 entrevista con el general.
 
-Luego se fue a la plaza. Tocaba la charanga. Habia unos soldados
-formados. En el balcon de una casa pequena, enfrente de la iglesia de
+Luego se fué a la plaza. Tocaba la charanga. Había unos soldados
+formados. En el balcón de una casa pequeña, enfrente de la iglesia de
 San Juan, estaba don Carlos con algunos de sus oficiales.
 
-Espero Martin a ver a Bautista y cuando le vio le dijo:
+Esperó Martín a ver a Bautista y cuando le vió le dijo:
 
---Que no nos vean juntos--y le entrego el papel.
+--Que no nos vean juntos--y le entregó el papel.
 
-Bautista se alejo, y poco despues se acerco de nuevo a Martin y le dio
+Bautista se alejó, y poco después se acercó de nuevo a Martín y le dió
 otro pedazo de papel.
 
---?Que pasara?--se dijo Martin.
+--¿Qué pasará?--se dijo Martín.
 
-Se fue de la plaza, y cuando se vio solo, leyo el papel de Bautista que
-decia:
+Se fué de la plaza, y cuando se vió solo, leyó el papel de Bautista que
+decía:
 
-_Ten cuidado. Esta aqui el Cacho de sargento. No andes por el centro
+_Ten cuidado. Está aquí el Cacho de sargento. No andes por el centro
 del pueblo_.
 
-La advertencia de Bautista la considero Martin de gran importancia.
-Sabia que el Cacho le odiaba y que colocado en una posicion superior,
-podia vengar sus antiguos rencores con toda la sana de aquel hombre
-pequeno, violento y colerico.
+La advertencia de Bautista la consideró Martín de gran importancia.
+Sabía que el Cacho le odiaba y que colocado en una posición superior,
+podía vengar sus antiguos rencores con toda la saña de aquel hombre
+pequeño, violento y colérico.
 
-Martin paso por el puente del Azucarero contemplando el agua verdosa del
-rio. Al llegar a la plazoleta donde comienza la Rua Mayor del pueblo
-viejo, Martin se detuvo frente al palacio del duque de Granada,
-convertido en carcel, a contemplar una fuente con un leon tenante en
+Martín pasó por el puente del Azucarero contemplando el agua verdosa del
+río. Al llegar a la plazoleta donde comienza la Rua Mayor del pueblo
+viejo, Martín se detuvo frente al palacio del duque de Granada,
+convertido en cárcel, a contemplar una fuente con un león tenante en
 medio, en cuyas garras sujeta un escudo de Navarra.
 
-Estaba alli parado, cuando vio que se le acercaba el extranjero.
+Estaba allí parado, cuando vió que se le acercaba el extranjero.
 
---iHola, querido Martin!--le dijo.
+--¡Hola, querido Martín!--le dijo.
 
---iHola! iBuenos dias!
+--¡Hola! ¡Buenos días!
 
---?Va usted a echar un vistazo por este viejo barrio?
+--¿Va usted a echar un vistazo por este viejo barrio?
 
---Si.
+--Sí.
 
---Pues ire con usted.
+--Pues iré con usted.
 
 Tomaron por la Rua Mayor, la calle principal del pueblo antiguo. A un
 lado y a otro se levantaban hermosas casas de piedra amarilla, con
@@ -4521,864 +4373,864 @@ escudos y figuras tallados.
 
 Luego, terminada la Rua, siguieron por la calle de Curtidores. Las
 antiguas casas solariegas mostraban sus grandes puertas cerradas; en
-algunos portales, convertidos en talleres de curtidores, se veian filas
-de pellejos colgados y en el fondo el agua casi inmovil del rio Ega,
+algunos portales, convertidos en talleres de curtidores, se veían filas
+de pellejos colgados y en el fondo el agua casi inmóvil del río Ega,
 verdosa y turbia.
 
 Al final de esta calle se encontraron con la iglesia del Santo Sepulcro
-y se pararon a contemplarla. A Martin le parecio aquella portada de
+y se pararon a contemplarla. A Martín le pareció aquella portada de
 piedra amarilla, con sus santos desnarigados a pedradas, una cosa algo
-grotesca, pero el extranjero aseguro que era magnifica.
+grotesca, pero el extranjero aseguró que era magnífica.
 
---?De veras?--pregunto Martin.
+--¿De veras?--preguntó Martín.
 
---iOh! iYa lo creo!
+--¡Oh! ¡Ya lo creo!
 
---?Y la habra hecho la gente de aqui?--pregunto Martin.
+--¿Y la habrá hecho la gente de aquí?--preguntó Martín.
 
---?Le parece a usted imposible que los de Estella hagan una cosa
-buena?--pregunto riendo el extranjero.
+--¿Le parece a usted imposible que los de Estella hagan una cosa
+buena?--preguntó riendo el extranjero.
 
---iQue se yo! No me parece que en este pueblo se haya inventado la
-polvora.
+--¡Qué sé yo! No me parece que en este pueblo se haya inventado la
+pólvora.
 
 En una calle transversal, las paredes de las antiguas casas hidalgas
-derrumbadas servian de cerca para los jardines. No se alejaron mas
+derrumbadas servían de cerca para los jardines. No se alejaron más
 porque a pocos pasos estaba ya la guardia. Volvieron y subieron a San
 Pedro de la Rua, iglesia colocada en un alto, a la cual se llegaba por
-unas escaleras desgastadas, entre cuyas losas crecia la hierba.
+unas escaleras desgastadas, entre cuyas losas crecía la hierba.
 
---Sentemonos aqui un momento--dijo el extranjero.
+--Sentémonos aquí un momento--dijo el extranjero.
 
 --Bueno, como usted quiera.
 
-Desde alli se veia casi todo Estella, y los montes que le rodean, abajo
-el tejado de la carcel y en un alto la ermita del Puy. Una vieja
+Desde allí se veía casi todo Estella, y los montes que le rodean, abajo
+el tejado de la cárcel y en un alto la ermita del Puy. Una vieja
 limpiaba las escaleras de piedra de la iglesia con una escoba y cantaba
 a voz en grito:
 
-        iAdios los Llanos de Estella.
+        ¡Adiós los Llanos de Estella.
         San Benito y Santa Clara,
         Convento de Recoletos
         donde yo me paseaba!
 
 --Ya ve usted--dijo el extranjero--que, aunque a usted le parezca este
-pueblo tan desagradable, hay gente que le tiene carino.
+pueblo tan desagradable, hay gente que le tiene cariño.
 
---?Quien?--dijo Martin.
+--¿Quién?--dijo Martín.
 
---El que ha inventado esa cancion.
+--El que ha inventado esa canción.
 
 --Era un hombre de mal gusto.
 
-La vieja se acerco al extranjero y a Martin y entablo conversacion con
-ellos. Era una mujer pequena, de ojos vivos y tez tostada.
+La vieja se acercó al extranjero y a Martín y entabló conversación con
+ellos. Era una mujer pequeña, de ojos vivos y tez tostada.
 
---?Usted sera carlista? ?Eh?--le pregunto el extranjero.
+--¿Usted será carlista? ¿Eh?--le preguntó el extranjero.
 
 --Ya lo creo. En Estella todos somos carlistas y tenemos la seguridad de
-que vendra don Carlos con ayuda de Dios.
+que vendrá don Carlos con ayuda de Dios.
 
---Si, es muy probable.
+--Sí, es muy probable.
 
---?Como probable?--exclamo la vieja--. Es seguro. ?Usted no sera de
-aqui?
+--¿Cómo probable?--exclamó la vieja--. Es seguro. ¿Usted no será de
+aquí?
 
---No, no soy espanol.
+--No, no soy español.
 
 --Ah, vamos.
 
-Y la vieja, despues de mirarle con curiosidad, siguio barriendo las
+Y la vieja, después de mirarle con curiosidad, siguió barriendo las
 escaleras.
 
---Creo que le ha tenido a usted lastima al saber que no es usted
-espanol--dijo Martin.
+--Creo que le ha tenido a usted lástima al saber que no es usted
+español--dijo Martín.
 
---Si, parece que si--contesto el extranjero--. La verdad es que es
-triste que por ese estupido hombre guapo se mate esta pobre gente.
+--Sí, parece que sí--contestó el extranjero--. La verdad es que es
+triste que por ese estúpido hombre guapo se mate esta pobre gente.
 
---?Por quien lo dice usted, por don Carlos?--pregunto Martin.
+--¿Por quién lo dice usted, por don Carlos?--preguntó Martín.
 
---Si.
+--Sí.
 
---?Usted tambien cree que no es hombre de talento?
+--¿Usted también cree que no es hombre de talento?
 
---iQue va a ser! Es un tipo vulgar sin ninguna condicion. Luego, no
-tiene idea de nada. Hable con el cuando el bombardeo de Irun, y no se
-puede usted figurar nada mas plano y mas opaco.
+--¡Qué va a ser! Es un tipo vulgar sin ninguna condición. Luego, no
+tiene idea de nada. Hablé con él cuando el bombardeo de Irún, y no se
+puede usted figurar nada más plano y más opaco.
 
---Pues no lo diga usted por ahi, porque le hacen a usted pedazos. Estos
-bestias estan dispuestos a morir por su rey.
+--Pues no lo diga usted por ahí, porque le hacen a usted pedazos. Estos
+bestias están dispuestos a morir por su rey.
 
---Oh, no lo diria. Ademas ?para que? No habia de convencer a nadie; unos
-son fanaticos y otros aventureros y ninguno esta dispuesto a dejarse
+--Oh, no lo diría. Además ¿para qué? No había de convencer a nadie; unos
+son fanáticos y otros aventureros y ninguno está dispuesto a dejarse
 persuadir. Pero no crea usted que todos tienen un gran respeto ni por
-don Carlos ni por sus generales. ?No ha oido usted en la posada que
+don Carlos ni por sus generales. ¿No ha oído usted en la posada que
 hablan algunas veces de don Bobo? pues se refieren al Pretendiente.
 
-Vieron el extranjero y Martin las otras iglesias del pueblo, la Pena de
-los Castillos y la parroquia de Santa Maria, y volvieron a comer.
+Vieron el extranjero y Martín las otras iglesias del pueblo, la Peña de
+los Castillos y la parroquia de Santa María, y volvieron a comer.
 
-Afortunadamente, el viejecillo antipatico no se sentaba a la mesa y en
-cambio estaban un legitimista frances, el conde de Haussonville, de la
-legacion extranjera, y un joven comandante carlista llamado Iceta.
+Afortunadamente, el viejecillo antipático no se sentaba a la mesa y en
+cambio estaban un legitimista francés, el conde de Haussonville, de la
+legación extranjera, y un joven comandante carlista llamado Iceta.
 
-El conde de Haussonville fue la alegria de la mesa. El conde, hombre de
-unos cuarenta anos, alto, grueso, derecho, rubio, hablaba en un
+El conde de Haussonville fué la alegría de la mesa. El conde, hombre de
+unos cuarenta años, alto, grueso, derecho, rubio, hablaba en un
 castellano grotesco.
 
 Lo verdaderamente gracioso de Haussonville era su apetito voraz. Todo lo
-que le daban de comer no le servia mas que de aperitivo. Habia venido
+que le daban de comer no le servía más que de aperitivo. Había venido
 desde Caspe llevando prisionero a un brigadier valenciano carlista a que
-conpareciera ante el Estado Mayor de don Carlos, y contaba su expedicion
-de tal manera que hacia morirse de risa a todos.
+conpareciera ante el Estado Mayor de don Carlos, y contaba su expedición
+de tal manera que hacía morirse de risa a todos.
 
-Explico su estancia en un pueblo, con el batallon metido en una iglesia,
+Explicó su estancia en un pueblo, con el batallón metido en una iglesia,
 sin poder moverse por estar los caminos intransitables por la nieve, no
-comiendo mas que habichuelas y teniendo por retrete un confesionario, y
-dio tales detalles, que todo el mundo reia a carcajadas.
+comiendo más que habichuelas y teniendo por retrete un confesionario, y
+dió tales detalles, que todo el mundo reía a carcajadas.
 
---Un dia, sobre todo, nos trajeron sidra--dijo el frances--y entre la
-sidra y las habichuelas se nos armo una, que tuvimos que hacer cola
-delante del confesionario. Pocas veces se ha visto una congregacion de
+--Un día, sobre todo, nos trajeron sidra--dijo el francés--y entre la
+sidra y las habichuelas se nos armó una, que tuvimos que hacer cola
+delante del confesionario. Pocas veces se ha visto una congregación de
 fieles tan apenados para entrar en el confesionario como nosotros. Jefes
-y soldados ibamos con gran dolor de corazon a cantar nuestra cancion de
-las habichuelas a la pequena garita del senor cura.
+y soldados íbamos con gran dolor de corazón a cantar nuestra canción de
+las habichuelas a la pequeña garita del señor cura.
 
-Despues de maldecir de la alimentacion leguminosa y de la alimentacion
-_patatosa_, hablo del resto del viaje.
+Después de maldecir de la alimentación leguminosa y de la alimentación
+_patatosa_, habló del resto del viaje.
 
-Cada pueblo del transito le parecia una estacion de calvario para su
-estomago hambriento; recordaba las aldeas por lo que habia comido, o
-mejor dicho, por lo que habia ayunado; aqui habian dado por toda comida
-un caldo de berzas, alla por cena una colacion de verduras cocidas; y
+Cada pueblo del tránsito le parecía una estación de calvario para su
+estómago hambriento; recordaba las aldeas por lo que había comido, o
+mejor dicho, por lo que había ayunado; aquí habían dado por toda comida
+un caldo de berzas, allá por cena una colación de verduras cocidas; y
 para colmo de desdichas, estaba alojado en Estella en casa de unas
-viejas solteronas y por la manana le daban chocolate con agua, por la
+viejas solteronas y por la mañana le daban chocolate con agua, por la
 tarde cocido, y de noche una sopa de ajo infame.
 
---Y siempre, siempre, poco--decia Haussonville, levantando los brazos al
+--Y siempre, siempre, poco--decía Haussonville, levantando los brazos al
 cielo.
 
-Iceta era un aventurero. Habia estado al principio en la guerra, luego
-se fue a una republica americana, tomo parte en una revolucion y
-despues, expulsado de alli por rebelde, volvia al ejercito carlista, en
+Iceta era un aventurero. Había estado al principio en la guerra, luego
+se fué a una república americana, tomó parte en una revolución y
+después, expulsado de allí por rebelde, volvía al ejército carlista, en
 donde estaba ya violento y deseando marcharse.
 
-Siguiendole a todas partes como amigo y asesor, iba un antiguo criado
-suyo que se llamaba Asensio, pero a quien se le conocia por estos dos
-motes: Asensio Lapurra (Asensio el Ladron) y Asenchio Araguiarrapatzallia
+Siguiéndole a todas partes como amigo y asesor, iba un antiguo criado
+suyo que se llamaba Asensio, pero a quien se le conocía por estos dos
+motes: Asensio Lapurrá (Asensio el Ladrón) y Asenchio Araguiarrapatzallia
 (Asensio el decomisador de carne).
 
-Este mote lo debia Asensio a haber sido consumero en su pueblo.
+Este mote lo debía Asensio a haber sido consumero en su pueblo.
 
-Asensio era graciosisimo hablando castellano; no habia palabra que
+Asensio era graciosísimo hablando castellano; no había palabra que
 empleara bien.
 
-Siempre que tenia que decir andamos, decia andemos; y al contrario,
-empleaba vaiga por vaya, y hagais por haced.
+Siempre que tenía que decir andamos, decía andemos; y al contrario,
+empleaba vaiga por vaya, y hagáis por haced.
 
-La conversacion entre el conde de Haussonville y Asenchio Lapurra era de
-lo mas dislocada y pintoresca.
+La conversación entre el conde de Haussonville y Asenchio Lapurrá era de
+lo más dislocada y pintoresca.
 
---Si aqui hubiera un buen _quenerral_--decia Haussonville--la _querra_
+--Si aquí hubiera un buen _quenerral_--decía Haussonville--la _querra_
 estaba resuelta.
 
---_Pueda, pueda_ que si--contestaba Asensio.
+--_Pueda, pueda_ que sí--contestaba Asensio.
 
 --No saben _manecar_ un grande _equercito_, amigo Asensio.
 
---Si _supieseis_ de _tatica_, otra cosa seria.
+--Si _supieseis_ de _tática_, otra cosa sería.
 
-Martin y el extranjero intimaron con Haussonville, con Iceta y con
-Asenchio Lapurra y se rieron a carcajadas con los mil quidprocuos que
-resultaban en la conversacion del frances y del vasco.
+Martín y el extranjero intimaron con Haussonville, con Iceta y con
+Asenchio Lapurrá y se rieron a carcajadas con los mil quidprocuos que
+resultaban en la conversación del francés y del vasco.
 
-Asensio habia estado en Cuba algun tiempo, de soldado, y conto anecdotas
-de aquella tierra. Lo que mas le gustaba era hablar de los chinos.
+Asensio había estado en Cuba algún tiempo, de soldado, y contó anécdotas
+de aquella tierra. Lo que más le gustaba era hablar de los chinos.
 
---Son de _mal_ intencion, pero buenos cocineros, eso si. _Digais_ a un
-chino que os haga un arroz. Os hace una cosa _manifica_. Es gente
-_raro_. Luego se ponen a _chun, chun, chun_. ?Y entenderles? nada. ?A
-nosotros? Rabia nos tenian. Y al que cogian _la_ martirizaban. iPse!
-Nosotros _tamien_ algunos _matemos_.
+--Son de _mal_ intención, pero buenos cocineros, eso si. _Digáis_ a un
+chino que os haga un arroz. Os hace una cosa _manífica_. Es gente
+_raro_. Luego se ponen a _chun, chun, chun_. ¿Y entenderles? nada. ¿A
+nosotros? Rabia nos tenían. Y al que cogían _la_ martirizaban. ¡Pse!
+Nosotros _tamíen_ algunos _matemos_.
 
-Martin se reia a carcajadas con las explicaciones de Asenchio Lapurra.
+Martín se reía a carcajadas con las explicaciones de Asenchio Lapurrá.
 
-Despues de comer en la posada, Martin, el extranjero, Iceta,
-Haussonville y Asensio fueron a un cafe de la plaza, donde estuvieron
-hablando. Habia ejercicios espirituales en la iglesia de San Juan, y una
-porcion de beatos y de oficiales carlistas iban a la iglesia.
+Después de comer en la posada, Martín, el extranjero, Iceta,
+Haussonville y Asensio fueron a un café de la plaza, donde estuvieron
+hablando. Había ejercicios espirituales en la iglesia de San Juan, y una
+porción de beatos y de oficiales carlistas iban a la iglesia.
 
---iQue pais!--dijo Haussonville--la gente no hace mas que ir a la
-iglesia. Todo es para el senor cura: las buenas comidas, las buenas
-chicas... Aqui no hay nada que hacer, todo para el senor cura.
+--¡Qué país!--dijo Haussonville--la gente no hace más que ir a la
+iglesia. Todo es para el señor cura: las buenas comidas, las buenas
+chicas... Aquí no hay nada que hacer, todo para el señor cura.
 
 Iceta y Haussonville contemplaban con desprecio aquel tropel de gente
 que se encaminaba hacia la iglesia.
 
---iBestias!--exclamaba Iceta dando punetazos en la mesa--. No quisiera
-mas que poder ametrallarlos.
+--¡Bestias!--exclamaba Iceta dando puñetazos en la mesa--. No quisiera
+más que poder ametrallarlos.
 
-El frances murmuraba como diciendoselo a si mismo:
+El francés murmuraba como diciéndoselo a sí mismo:
 
---iEspana! iEspana! _iJamais de la vie!_ Mucha hidalguia, mucha misa,
+--¡España! ¡España! _¡Jamais de la vie!_ Mucha hidalguía, mucha misa,
 mucha jota, pero poco alimento.
 
---La guerra--anadia Asensio, metiendo la cucharada--es cosa nada
+--La guerra--añadía Asensio, metiendo la cucharada--es cosa nada
 _bueno_.
 
 
 
 
-CAPITULO XI
+CAPÍTULO XI
 
-COMO LOS ACONTECIMIENTOS SE ENREDARON, HASTA EL PUNTO DE QUE
-MARTIN DURMIO EL TERCER DIA DE ESTELLA EN LA CARCEL.
+CÓMO LOS ACONTECIMIENTOS SE ENREDARON, HASTA EL PUNTO DE QUE
+MARTÍN DURMIÓ EL TERCER DÍA DE ESTELLA EN LA CÁRCEL.
 
 
-Al dia siguiente, por la noche, iba a acostarse Martin, cuando la
-posadera le llamo y le entrego una carta, que decia:
+Al día siguiente, por la noche, iba a acostarse Martín, cuando la
+posadera le llamó y le entregó una carta, que decía:
 
-"Presentese usted manana de madrugada en la ermita del Puy, en donde se
-le devolveran las letras ya firmadas. El General en Jefe." Debajo habia
+«Preséntese usted mañana de madrugada en la ermita del Puy, en donde se
+le devolverán las letras ya firmadas. El General en Jefe.» Debajo había
 una firma ilegible.
 
-Martin se metio la carta en el bolsillo, y viendo que la posadera no se
-marchaba de su cuarto, le pregunto:
+Martín se metió la carta en el bolsillo, y viendo que la posadera no se
+marchaba de su cuarto, le preguntó:
 
---?Queria usted algo?
+--¿Quería usted algo?
 
---Si; nos han traido dos militares heridos y quisieramos el cuarto de
+--Sí; nos han traído dos militares heridos y quisiéramos el cuarto de
 usted para uno de ellos. Si usted no tuviera inconveniente, le
-trasladariamos abajo.
+trasladaríamos abajo.
 
 --Bueno, no tengo inconveniente.
 
-Bajo a un cuarto del piso principal, que era una sala muy grande con dos
-alcobas. La sala tenia en medio un altar, iluminado con unas lamparas
-tristes de aceite. Martin se acosto; desde su cama veia las luces
-oscilantes, pero estas cosas no influian en su imaginacion, y quedo
+Bajó a un cuarto del piso principal, que era una sala muy grande con dos
+alcobas. La sala tenía en medio un altar, iluminado con unas lámparas
+tristes de aceite. Martín se acostó; desde su cama veía las luces
+oscilantes, pero estas cosas no influían en su imaginación, y quedó
 dormido.
 
-Era mas de media noche, cuando se desperto algo sobresaltado. En la
-alcoba proxima se oian quejas, alternando con voces de iAy, Dios mio!
-iAy, Jesus mio!
+Era más de media noche, cuando se despertó algo sobresaltado. En la
+alcoba próxima se oían quejas, alternando con voces de ¡Ay, Dios mío!
+¡Ay, Jesús mío!
 
---iQue demonio sera esto!--penso Martin.
+--¡Qué demonio será esto!--pensó Martín.
 
-Miro el reloj. Eran las tres. Se volvio a tender en la cama, pero con
-los lamentos no se pudo dormir y le parecio mejor levantarse. Se vistio
-y se acerco a la alcoba proxima, y miro por entre las cortinas. Se veia
+Miró el reloj. Eran las tres. Se volvió a tender en la cama, pero con
+los lamentos no se pudo dormir y le pareció mejor levantarse. Se vistió
+y se acercó a la alcoba próxima, y miró por entre las cortinas. Se veía
 vagamente a un hombre tendido en la cama.
 
---?Que le pasa a usted?--pregunto Martin.
+--¿Qué le pasa a usted?--preguntó Martín.
 
---Estoy herido--murmuro el enfermo.
+--Estoy herido--murmuró el enfermo.
 
---?Quiere usted alguna cosa?
+--¿Quiere usted alguna cosa?
 
 --Agua.
 
-A Martin le dio la impresion de conocer esta voz. Busco por la sala una
-botella de agua, y como no habia en el cuarto, fue a la cocina. Al ruido
-de sus pasos, la voz de la patrona pregunto:
+A Martín le dió la impresión de conocer esta voz. Buscó por la sala una
+botella de agua, y como no había en el cuarto, fué a la cocina. Al ruido
+de sus pasos, la voz de la patrona preguntó:
 
---?Que pasa?
+--¿Qué pasa?
 
 --El herido que quiere agua.
 
 --Voy.
 
-La patrona aparecio en enaguas, y dijo, entregando a Martin una
+La patrona apareció en enaguas, y dijo, entregando a Martín una
 lamparilla:
 
 --Alumbre usted.
 
-Tomaron el agua y volvieron a la sala. Al entrar en la alcoba, Martin
-levanto el brazo, con lo que ilumino el rostro del enfermo y el suyo. El
-herido tomo el vaso en la mano, e incorporandose y mirando a Martin
-comenzo a gritar:
+Tomaron el agua y volvieron a la sala. Al entrar en la alcoba, Martín
+levantó el brazo, con lo que iluminó el rostro del enfermo y el suyo. El
+herido tomó el vaso en la mano, é incorporándose y mirando a Martín
+comenzó a gritar:
 
---?Eres tu? iCanalla! iLadron! iPrendedle! iPrendedle!
+--¿Eres tú? ¡Canalla! ¡Ladrón! ¡Prendedle! ¡Prendedle!
 
 El herido era Carlos Ohando.
 
-Martin dejo la lamparilla sobre la mesa de noche.
+Martín dejó la lamparilla sobre la mesa de noche.
 
---Marchese usted--dijo la patrona--. Esta delirando.
+--Márchese usted--dijo la patrona--. Está delirando.
 
-Martin sabia que no deliraba; se retiro a la sala y escucho, por si
-Carlos contaba alguna cosa a la patrona. Martin espero en su alcoba. En
+Martín sabía que no deliraba; se retiró a la sala y escuchó, por si
+Carlos contaba alguna cosa a la patrona. Martín esperó en su alcoba. En
 la sala, debajo del altar, estaba el equipaje de Ohando, consistente en
-un baul y una maleta. Martin penso que quiza Carlos guardara alguna
+un baúl y una maleta. Martín pensó que quizá Carlos guardara alguna
 carta de Catalina, y se dijo:
 
---Si esta noche encuentro una buena ocasion, descerrajare el baul.
+--Si esta noche encuentro una buena ocasión, descerrajaré el baúl.
 
---No la encontro. Iban a dar las cuatro de la manana, cuando Martin,
-envuelto en su capote, se marcho hacia la ermita del Puy. Los carlistas
-estaban de maniobras. Llego al campamento de don Carlos, y, mostrando su
+--No la encontró. Iban a dar las cuatro de la mañana, cuando Martín,
+envuelto en su capote, se marchó hacia la ermita del Puy. Los carlistas
+estaban de maniobras. Llegó al campamento de don Carlos, y, mostrando su
 carta, le dejaron pasar.
 
---El Senor esta con dos Reverendos Padres--le advirtio un oficial.
+--El Señor está con dos Reverendos Padres--le advirtió un oficial.
 
---Vayan al diablo el Senor y los Reverendos Padres--refunfuno
-Zalacain--. La verdad es que este rey es un rey ridiculo.
+--Vayan al diablo el Señor y los Reverendos Padres--refunfuñó
+Zalacaín--. La verdad es que este rey es un rey ridículo.
 
-Espero Martin a que despachara el Senor con los Reverendos, hasta que el
-rozagante Borbon, con su aire de hombre bien cebado, salio de la ermita,
+Esperó Martín a que despachara el Señor con los Reverendos, hasta que el
+rozagante Borbón, con su aire de hombre bien cebado, salió de la ermita,
 rodeado de su Estado Mayor. Junto al Pretendiente iba una mujer a
-caballo, que Martin supuso seria dona Blanca.
+caballo, que Martín supuso sería doña Blanca.
 
---Ahi esta el Rey. Tiene usted que arrodillarse y besarle la mano--dijo
+--Ahí está el Rey. Tiene usted que arrodillarse y besarle la mano--dijo
 el oficial.
 
-Zalacain no replico.
+Zalacaín no replicó.
 
---Y darle el titulo de Majestad.
+--Y darle el título de Majestad.
 
-Zalacain no hizo caso.
+Zalacaín no hizo caso.
 
-Don Carlos no se fijo en Martin y este se acerco al general, quien le
-entrego las letras firmadas. Zalacain las examino. Estaban bien.
+Don Carlos no se fijó en Martín y éste se acercó al general, quien le
+entregó las letras firmadas. Zalacaín las examinó. Estaban bien.
 
-En aquel momento, un fraile castrense, con unos gestos de energumeno,
-comenzo a arengar a las tropas.
+En aquel momento, un fraile castrense, con unos gestos de energúmeno,
+comenzó a arengar a las tropas.
 
-Martin, sin que lo notara nadie, se fue alejando de alli y bajo al
-pueblo corriendo. El llevar en su bolsillo su fortuna, le hacia ser mas
+Martín, sin que lo notara nadie, se fué alejando de allí y bajó al
+pueblo corriendo. El llevar en su bolsillo su fortuna, le hacía ser más
 asustadizo que una liebre.
 
-A la hora en que los soldados formaban en la plaza, se presento Martin
+A la hora en que los soldados formaban en la plaza, se presentó Martín
 y, al ver a Bautista, le dijo:
 
---Vete a la iglesia y alli hablaremos.
+--Vete a la iglesia y allí hablaremos.
 
 Entraron los dos en la iglesia, y en una capilla obscura se sentaron en
 un banco.
 
---Toma las letras--le dijo Martin a Bautista--. iGuardalas!
+--Toma las letras--le dijo Martín a Bautista--. ¡Guárdalas!
 
---?Te las han dado ya firmadas?
+--¿Te las han dado ya firmadas?
 
---Si.
+--Sí.
 
 --Hay que prepararse a salir de Estella en seguida.
 
---No se si podremos--dijo Bautista.
+--No sé si podremos--dijo Bautista.
 
---Aqui estamos en peligro. Ademas del Cacho, se encuentra en Estella
+--Aquí estamos en peligro. Además del Cacho, se encuentra en Estella
 Carlos Ohando.
 
---?Como lo sabes?
+--¿Cómo lo sabes?
 
 --Porque le he visto.
 
---?En donde?
+--¿En dónde?
 
---Esta en mi casa herido.
+--Está en mi casa herido.
 
---?Y te ha visto el?
+--¿Y te ha visto él?
 
---Si.
+--Sí.
 
---Claro, estan los dos--exclamo Bautista.
+--Claro, están los dos--exclamó Bautista.
 
---?Como los dos? ?Que quieres decir con eso?
+--¿Cómo los dos? ¿Qué quieres decir con eso?
 
---?Yo? Nada.
+--¿Yo? Nada.
 
---?Tu sabes algo?
+--¿Tú sabes algo?
 
 --No, hombre, no.
 
---O me lo dices, o se lo pregunto al mismo Carlos Ohando. ?Es que esta
-aqui Catalina?
+--O me lo dices, o se lo pregunto al mismo Carlos Ohando. ¿Es que está
+aquí Catalina?
 
---Si, esta aqui.
+--Sí, está aquí.
 
---?De veras?
+--¿De veras?
 
---Si.
+--Sí.
 
---?En donde?
+--¿En dónde?
 
 --En el convento de Recoletas.
 
---iEncerrada! ?Y como lo sabes tu?
+--¡Encerrada! ¿Y cómo lo sabes tú?
 
 --Porque la he visto.
 
---iQue suerte! ?La has visto?
+--¡Qué suerte! ¿La has visto?
 
---Si. La he visto y la he hablado.
+--Sí. La he visto y la he hablado.
 
---iY eso querias ocultarme! Tu no cres amigo mio, Bautista.
+--¡Y eso querías ocultarme! Tú no cres amigo mío, Bautista.
 
-Bautista protesto.
+Bautista protestó.
 
---?Y ella sabe que estoy aqui?
+--¿Y ella sabe que estoy aquí?
 
---Si, lo sabe.
+--Sí, lo sabe.
 
---?Como se puede verla?--dijo Zalacain.
+--¿Cómo se puede verla?--dijo Zalacaín.
 
 --Suele bordar en el convento, cerca de la ventana, y por la tarde sale
 a pasear a la huerta.
 
---Bueno. Me voy. Si me ocurre algo, le dire a ese senor extranjero que
+--Bueno. Me voy. Si me ocurre algo, le diré a ese señor extranjero que
 vaya a avisarte. Mira a ver si puedes alquilar un coche para marcharnos
-de aqui.
+de aquí.
 
---Lo vere.
+--Lo veré.
 
---Lo mas pronto que puedas.
+--Lo más pronto que puedas.
 
 --Bueno.
 
---Adios.
+--Adiós.
 
---Adios y prudencia.
+--Adiós y prudencia.
 
-Martin salio de la iglesia, tomo por la calle Mayor hacia el convento de
-las Recoletas, paseo arriba y abajo, horas y horas sin llegar a ver a
+Martín salió de la iglesia, tomó por la calle Mayor hacia el convento de
+las Recoletas, paseó arriba y abajo, horas y horas sin llegar a ver a
 Catalina. Al anochecer tuvo la suerte de verla asomada a una ventana.
-Martin levanto la mano, y su novia, haciendo como que no le conocia, se
-retiro de la ventana. Martin quedo helado; luego Catalina volvio a
-aparecer y lanzo un ovillo de hilo casi a los pies de Martin. Zalacain
-lo recogio; tenia dentro un papel que decia: "A las ocho podemos hablar
-un momento. Espera cerca de la puerta de la tapia." Martin volvio a la
-posada, comio con un apetito extraordinario y a las ocho en punto estaba
+Martín levantó la mano, y su novia, haciendo como que no le conocía, se
+retiró de la ventana. Martín quedó helado; luego Catalina volvió a
+aparecer y lanzó un ovillo de hilo casi a los pies de Martín. Zalacaín
+lo recogió; tenía dentro un papel que decía: «A las ocho podemos hablar
+un momento. Espera cerca de la puerta de la tapia.» Martín volvió a la
+posada, comió con un apetito extraordinario y a las ocho en punto estaba
 en la puerta de la tapia esperando. Daban las ocho en el reloj de las
-iglesias de Estella, cuando Martin oyo dos golpecitos en la puerta,
-Martin contesto del mismo modo.
+iglesias de Estella, cuando Martín oyó dos golpecitos en la puerta,
+Martín contestó del mismo modo.
 
---?Eres tu, Martin?--pregunto Catalina en voz baja.
+--¿Eres tu, Martín?--preguntó Catalina en voz baja.
 
---Si, soy yo. ?No nos podemos ver?
+--Sí, soy yo. ¿No nos podemos ver?
 
 --Imposible.
 
---Yo me voy a marchar de Estella. ?Querras venir conmigo?--pregunto
-Martin.
+--Yo me voy a marchar de Estella. ¿Querrás venir conmigo?--pregunto
+Martín.
 
---Si; pero icomo salir de aqui!
+--Sí; pero ¡cómo salir de aquí!
 
---?Estas dispuesta a hacer todo lo que yo te diga?
+--¿Estás dispuesta a hacer todo lo que yo te diga?
 
 --Si.
 
---?A seguirme a todas partes?
+--¿A seguirme a todas partes?
 
 --A todas partes.
 
---?De veras?
+--¿De veras?
 
---Aunque sea a morir. Ahora, vete. iPor Dios! No nos sorprendan.
+--Aunque sea a morir. Ahora, vete. ¡Por Dios! No nos sorprendan.
 
-Martin se habia olvidado de todos sus peligros; marcho a su casa y sin
-pensar en espionajes entro en la posada a ver a Bautista y le abrazo con
+Martín se había olvidado de todos sus peligros; marchó a su casa y sin
+pensar en espionajes entró en la posada a ver a Bautista y le abrazó con
 entusiasmo.
 
---Pasado manana--dijo Bautista--tenemos el coche.
+--Pasado mañana--dijo Bautista--tenemos el coche.
 
---?Lo has arreglado todo?
+--¿Lo has arreglado todo?
 
---Si.
+--Sí.
 
-Martin salio de casa de su cunado silbando alegremente. Al llegar cerca
-de su posada, dos serenos que parecian estar espiandole se le acercaron
+Martín salió de casa de su cuñado silbando alegremente. Al llegar cerca
+de su posada, dos serenos que parecían estar espiándole se le acercaron
 y le mandaron callar de mala manera.
 
---iHombre! ?No se puede silbar?--pregunto Martin.
+--¡Hombre! ¿No se puede silbar?--preguntó Martín.
 
---No, senor.
+--No, señor.
 
---Bueno. No silbare.
+--Bueno. No silbaré.
 
---Y si replica usted, va usted a la carcel.
+--Y si replica usted, va usted a la cárcel.
 
 --No replico.
 
---iHala! iHala! A la carcel.
+--¡Hala! ¡Hala! A la cárcel.
 
-Zalacain vio que buscaban un pretexto para encerrarle y aguanto los
-empellones que le dieron, y en medio de los dos serenos entro en la
-carcel.
-
-
+Zalacaín vió que buscaban un pretexto para encerrarle y aguantó los
+empellones que le dieron, y en medio de los dos serenos entró en la
+cárcel.
 
 
-CAPITULO XII
+
+
+CAPÍTULO XII
 
 EN QUE LOS ACONTECIMIENTOS MARCHAN AL GALOPE
 
 
-Entregaron los serenos a Martin en manos del alcaide, y este le llevo
+Entregaron los serenos a Martín en manos del alcaide, y éste le llevó
 hasta un cuarto obscuro con un banco y una cantarilla para el agua.
 
---Demonio--exclamo Martin--, aqui hace mucho frio. ?No hay sitio donde
+--Demonio--exclamó Martín--, aquí hace mucho frío. ¿No hay sitio dónde
 dormir?
 
---Ahi tiene usted el banco.
+--Ahí tiene usted el banco.
 
---?No me podrian traer un jergon y una manta para tenderme?
+--¿No me podrían traer un jergón y una manta para tenderme?
 
 --Si paga usted...
 
---Pagare lo que sea. Que me traigan un jergon y dos mantas.
+--Pagaré lo que sea. Que me traigan un jergón y dos mantas.
 
-El alcaide se fue, dejando a obscuras a Martin, y vino poco despues con
-un jergon y las mantas pedidas. Le dio Martin un duro, y el carcelero,
-amansado, le pregunto:
+El alcaide se fué, dejando a obscuras a Martín, y vino poco después con
+un jergón y las mantas pedidas. Le dió Martín un duro, y el carcelero,
+amansado, le preguntó:
 
---?Que ha hecho usted para que le traigan aqui?
+--¿Qué ha hecho usted para que le traigan aquí?
 
---Nada. Venia distraido silbando por la calle. Y me ha dicho el sereno:
-"No se silba." Me he callado, y sin mas ni mas, me han traido a la
-carcel.
+--Nada. Venía distraído silbando por la calle. Y me ha dicho el sereno:
+«No se silba.» Me he callado, y sin más ni más, me han traído a la
+cárcel.
 
---?Usted no se ha resistido?
-
---No.
-
---Entonces sera por otra cosa por lo que le han encerrado.
-
-Martin dijo que asi se lo figuraba tambien el. Le dio las buenas noches
-el carcelero; contesto Zalacain amablemente, y se tendio en el suelo.
-
---Aqui estoy tan seguro como en la posada--se dijo--. Alli me tienen en
-sus manos, y aqui tambien, luego estoy igual. Durmamos. Veremos lo que
-se hace manana.
-
-A pesar de que su imaginacion se le insubordinaba, pudo conciliar el
-sueno y descansar profundamente.
-
-Cuando desperto, vio que entraba un rayo de sol por una alta ventana
-iluminando el destartalado zaquizami. Llamo a la puerta, vino el
-carcelero, y le pregunto:
-
---?No le han dicho a usted por que estoy preso?
+--¿Usted no se ha resistido?
 
 --No.
 
---?De manera que me van a tener encerrado sin motivo?
+--Entonces será por otra cosa por lo que le han encerrado.
 
---Quiza sea una equivocacion.
+Martín dijo que así se lo figuraba también él. Le dió las buenas noches
+el carcelero; contestó Zalacaín amablemente, y se tendió en el suelo.
+
+--Aquí estoy tan seguro como en la posada--se dijo--. Allí me tienen en
+sus manos, y aquí también, luego estoy igual. Durmamos. Veremos lo que
+se hace mañana.
+
+A pesar de que su imaginación se le insubordinaba, pudo conciliar el
+sueño y descansar profundamente.
+
+Cuando despertó, vió que entraba un rayo de sol por una alta ventana
+iluminando el destartalado zaquizamí. Llamó a la puerta, vino el
+carcelero, y le preguntó:
+
+--¿No le han dicho a usted por qué estoy preso?
+
+--No.
+
+--¿De manera que me van a tener encerrado sin motivo?
+
+--Quizá sea una equivocación.
 
 --Pues es un consuelo.
 
---iCosas de la vida! Aqui no le puede pasar a usted nada.
+--¡Cosas de la vida! Aquí no le puede pasar a usted nada.
 
---iSi le parece a usted poco estar en la carcel!
+--¡Si le parece a usted poco estar en la cárcel!
 
 --Eso no deshonra a nadie.
 
-Martin se hizo el asustadizo y el timido, y pregunto:
+Martín se hizo el asustadizo y el tímido, y preguntó:
 
---?Me traera usted de comer?
+--¿Me traerá usted de comer?
 
---Si. ?Hay hambre, eh?
+--Sí. ¿Hay hambre, eh?
 
 --Ya lo creo.
 
---?No querra usted rancho?
+--¿No querrá usted rancho?
 
 --No.
 
---Pues ahora le traeran la comida.--Y el carcelero se fue, cantando
+--Pues ahora le traerán la comida.--Y el carcelero se fué, cantando
 alegremente.
 
-Comio Martin lo que le trajeron, se tendio envuelto en la manta, y
-despues de un momento de siesta, se levanto a tomar una resolucion.
+Comió Martín lo que le trajeron, se tendió envuelto en la manta, y
+después de un momento de siesta, se levantó a tomar una resolución.
 
---?Que podria hacer yo?--se dijo--. Sobornar al alcaide exigiria mucho
-dinero. Llamar a Bautista es comprometerle. Esperar aqui a que me
-suelten es exponerme a carcel perpetua, por lo menos a estar preso hasta
-que la guerra termine... Hay que escaparse, no hay mas remedio.
+--¿Qué podría hacer yo?--se dijo--. Sobornar al alcaide exigiría mucho
+dinero. Llamar a Bautista es comprometerle. Esperar aquí a que me
+suelten es exponerme a cárcel perpetua, por lo menos a estar preso hasta
+que la guerra termine... Hay que escaparse, no hay más remedio.
 
-Con esta firme decision, comenzo a pensar un plan de fuga. Salir por la
-puerta era dificil. La puerta, ademas de ser fuerte, se cerraba por
-fuera con llave y cerrojo. Despues, aun en el caso de aprovechar una
-ocasion y poder salir de alla, quedaba por recorrer un pasillo largo y
+Con esta firme decisión, comenzó a pensar un plan de fuga. Salir por la
+puerta era difícil. La puerta, además de ser fuerte, se cerraba por
+fuera con llave y cerrojo. Después, aun en el caso de aprovechar una
+ocasión y poder salir de allá, quedaba por recorrer un pasillo largo y
 luego unas escaleras... Imposible.
 
-Habia que escapar por la ventana. Era el unico recurso.
+Había que escapar por la ventana. Era el único recurso.
 
---?A donde dara esto?--se dijo.
+--¿A dónde dará esto?--se dijo.
 
-Arrimo el banco a la pared, se subio a el, se agarro a los barrotes y a
-pulso se levanto hasta poder mirar por la reja. Daba el ventanillo a la
-plaza de la fuente, en donde el dia anterior se habia encontrado con el
+Arrimó el banco a la pared, se subió a él, se agarró a los barrotes y a
+pulso se levantó hasta poder mirar por la reja. Daba el ventanillo a la
+plaza de la fuente, en donde el día anterior se había encontrado con el
 extranjero.
 
-Salto al suelo y se sento en el banco. La reja, era alta, pequena, con
-tres barrotes sin travesano.
+Saltó al suelo y se sentó en el banco. La reja, era alta, pequeña, con
+tres barrotes sin travesaño.
 
---Arrancando uno, quiza puediera pasar--se dijo Martin--. Y esto no
-seria dificil... luego necesitaria una cuerda. ?De donde sacaria yo una
-cuerda?... La manta... la manta cortada en liras me podia servir...
+--Arrancando uno, quizá puediera pasar--se dijo Martín--. Y esto no
+sería difícil... luego necesitaría una cuerda. ¿De dónde sacaría yo una
+cuerda?... La manta... la manta cortada en liras me podía servir...
 
-No tenia mas instrumento que un cortaplumas pequeno.
+No tenía mas instrumento que un cortaplumas pequeño.
 
---Hay que ver la solidez de la reja--murmuro.
+--Hay que ver la solidez de la reja--murmuró.
 
-Volvio a subir. Se hallaba la reja empotrada en la pared, pero no tenia
+Volvió a subir. Se hallaba la reja empotrada en la pared, pero no tenía
 gran resistencia.
 
 Los barrotes estaban sujetos por un marco de madera, y el marco en un
-extremo se hallaba apolillado. Martin supuso que no seria dificil romper
+extremo se hallaba apolillado. Martín supuso que no sería difícil romper
 la madera y quitar el barrote de un lado.
 
-Corto una tira de la manta y pasandola por el barrote de en medio y
-atandole despues por los extremos formo una abrazadera y metio dos patas
-del banco en este anillo y las otras dos las sujeto en el suelo.
+Cortó una tira de la manta y pasándola por el barrote de en medio y
+atándole después por los extremos formó una abrazadera y metió dos patas
+del banco en este anillo y las otras dos las sujetó en el suelo.
 
-Contaba asi con una especie de plano inclinado para llegar a la reja.
-Subio por el deslizandose, se agarro con la mano izquierda a un barrote
-y con la derecha armada del cortaplumas, comenzo a roer la madera del
+Contaba así con una especie de plano inclinado para llegar a la reja.
+Subió por él deslizándose, se agarró con la mano izquierda a un barrote
+y con la derecha armada del cortaplumas, comenzó a roer la madera del
 marco.
 
-La postura no era comoda, ni mucho menos, pero la constancia de Zalacain
-no cejaba, y tras de una hora de rudo trabajo, logro arrancar el barrote
-de su alveolo.
+La postura no era cómoda, ni mucho menos, pero la constancia de Zalacaín
+no cejaba, y tras de una hora de rudo trabajo, logró arrancar el barrote
+de su alvéolo.
 
-Cuando lo tuvo ya suelto, lo volvio a poner como antes, quito el banco
-de su posicion oblicua, oculto las astillas arrancadas del marco de la
-ventana en el jergon, y espero la noche.
+Cuando lo tuvo ya suelto, lo volvió a poner como antes, quitó el banco
+de su posición oblicua, ocultó las astillas arrancadas del marco de la
+ventana en el jergón, y esperó la noche.
 
-El carcelero le llevo la cena, y Martin le pregunto con empeno si no
-habian dispuesto nada respecto a el, si pensaban tenerlo encerrado sin
+El carcelero le llevó la cena, y Martín le preguntó con empeño si no
+habían dispuesto nada respecto a él, si pensaban tenerlo encerrado sin
 motivo alguno.
 
-El carcelero se encogio de hombros y se retiro en seguida tarareando.
+El carcelero se encogió de hombros y se retiró en seguida tarareando.
 
-Inmediatamente que Zalacain se vio solo, puso manos a la obra.
+Inmediatamente que Zalacaín se vió solo, puso manos a la obra.
 
-Tenia la absoluta seguridad de poderse escapar. Saco el cortaplumas y
-comenzo a cortar las dos mantas de arriba abajo. Hecho esto, fue atando
+Tenía la absoluta seguridad de poderse escapar. Sacó el cortaplumas y
+comenzó a cortar las dos mantas de arriba abajo. Hecho esto, fué atando
 las tiras una a otra hasta formar una cuerda de quince brazas. Era lo
 que necesitaba.
 
-Despues penso dejar un recuerdo alegre y divertido en la carcel. Cogio
-la cantarilla del agua y le puso su boina y la dejo envuelta en el trozo
+Después pensó dejar un recuerdo alegre y divertido en la cárcel. Cogió
+la cantarilla del agua y le puso su boina y la dejó envuelta en el trozo
 que quedaba de manta.
 
---Cuando se asome el carcelero podra creer que sigo aqui durmiendo. Si
+--Cuando se asome el carcelero podrá creer que sigo aquí durmiendo. Si
 gano con esto un par de horas, me pueden servir admirablemente para
 escaparme.
 
-Contemplo el bulto con una sonrisa, luego subio a la reja, ato un cabo
-de la cuerda a los dos barrotes y el otro extremo lo echo fuera poco a
-poco. Cuando toda la cuerda quedo a lo largo de la pared, paso el cuerpo
+Contempló el bulto con una sonrisa, luego subió a la reja, ató un cabo
+de la cuerda a los dos barrotes y el otro extremo lo echó fuera poco a
+poco. Cuando toda la cuerda quedó a lo largo de la pared, pasó el cuerpo
 con mil trabajos por la abertura, que dejaba el barrote arrancado, y
-comenzo a descolgarse resbalandose por el muro.
+comenzó a descolgarse resbalándose por el muro.
 
-Cruzo por delante de una ventana iluminada. Vio a alguien que se movia a
-traves de un cristal. Estaba a cuatro o cinco metros de la calle, cuando
-oyo ruido de pasos. Se detuvo en su descenso y ya comenzaban a dejar de
-oirse los pasos cuando cayo a tierra, metiendo algun estrepito.
+Cruzó por delante de una ventana iluminada. Vió a alguien que se movía a
+través de un cristal. Estaba a cuatro o cinco metros de la calle, cuando
+oyó ruido de pasos. Se detuvo en su descenso y ya comenzaban a dejar de
+oirse los pasos cuando cayó a tierra, metiendo algún estrépito.
 
-Uno de los nudos debia de haberse soltado porque le quedaba un trozo de
-cuerda entre los dedos. Se levanto.
+Uno de los nudos debía de haberse soltado porque le quedaba un trozo de
+cuerda entre los dedos. Se levantó.
 
---No hay averia. No me he hecho nada--se dijo--. Al pasar por cerca de
-la fuente de la plaza tiro el resto de la cuerda al agua. Luego,
-deprisa, se dirigio por la calle de la Rua.
+--No hay avería. No me he hecho nada--se dijo--. Al pasar por cerca de
+la fuente de la plaza tiró el resto de la cuerda al agua. Luego,
+deprisa, se dirigió por la calle de la Rua.
 
-Iba marchando volviendose para mirar atras, cuando vio a la luz de un
+Iba marchando volviéndose para mirar atrás, cuando vió a la luz de un
 farol que oscilaba colgando de una cuerda dos hombres armados con
 fusiles, cuyas bayonetas brillaban de un modo siniestro. Estos hombres
-sin duda le seguian. Si se alejaba iba a dar a la guardia de
-extra-muros. No sabiendo que hacer y viendo un portal abierto, entro en
-el, y empujando suavemente la puerta, la cerro.
+sin duda le seguían. Si se alejaba iba a dar a la guardia de
+extra-muros. No sabiendo qué hacer y viendo un portal abierto, entró en
+él, y empujando suavemente la puerta, la cerró.
 
-Oyo el ruido de los pasos de los hombres en la acera. Espero a que
-dejaran de oirse, y cuando estaba dispuesto a salir, bajo una mujer
-vieja al zaguan y echo la llave y el cerrojo de la puerta.
+Oyó el ruido de los pasos de los hombres en la acera. Esperó a que
+dejaran de oirse, y cuando estaba dispuesto a salir, bajó una mujer
+vieja al zaguán y echó la llave y el cerrojo de la puerta.
 
-Martin se quedo encerrado. Volvieron a oirse los pasos de los que le
-perseguian.
+Martín se quedó encerrado. Volvieron a oirse los pasos de los que le
+perseguían.
 
---No se van--penso.
+--No se van--pensó.
 
-Efectivamente, no solo no se fueron, sino que llamaron en la casa con
+Efectivamente, no sólo no se fueron, sino que llamaron en la casa con
 dos aldabonazos.
 
-Aparecio de nuevo la vieja con un farol y se puso al habla con los de
+Apareció de nuevo la vieja con un farol y se puso al habla con los de
 fuera sin abrir.
 
---?Ha entrado aqui algun hombre?--pregunto uno de los perseguidores.
+--¿Ha entrado aquí algún hombre?--preguntó uno de los perseguidores.
 
 --No.
 
---?Quiere usted verlo bien? Somos de la ronda.
+--¿Quiere usted verlo bien? Somos de la ronda.
 
---Aqui no hay nadie.
+--Aquí no hay nadie.
 
 --Registre usted el portal.
 
-Martin, al oir esto, agazapandose, salio del portal y gano la escalera.
-La vieja paseo la luz del farol por todo el zaguan y dijo:
+Martín, al oir esto, agazapándose, salió del portal y ganó la escalera.
+La vieja paseó la luz del farol por todo el zaguán y dijo:
 
 --No hay nadie, no, no hay nadie.
 
-Martin pretendio volver al zaguan, pero la vieja puso el farol de tal
-modo que iluminaba el comienzo de la escalera. Martin no tuvo mas
+Martín pretendió volver al zaguán, pero la vieja puso el farol de tal
+modo que iluminaba el comienzo de la escalera. Martín no tuvo más
 remedio que retirarse hacia arriba y subir los escalones de dos en dos.
 
---Pasaremos aqui la noche--se dijo.
+--Pasaremos aquí la noche--se dijo.
 
-No habia salida alguna. Lo mejor era esperar a que llegase el dia y
-abriesen la puerta. No queria exponerse a que lo encontraran dentro
-estando la casa cerrada, y aguardo hasta muy entrada la manana.
+No había salida alguna. Lo mejor era esperar a que llegase el día y
+abriesen la puerta. No quería exponerse a que lo encontraran dentro
+estando la casa cerrada, y aguardó hasta muy entrada la mañana.
 
-Serian cerca de las nueve cuando comenzo a bajar las escaleras
-cautelosamente. Al pasar por el primer piso vio en un cuarto muy lujoso,
-y extendido sobre un sofa, un uniforme de oficial carlista, con su boina
-y su espada. Tenia tal convencimiento Martin de que solo a fuerza de
-audacia se salvaria, que se desnudo con rapidez, se puso el uniforme y
-la boina, luego se cino la espada, se echo el capote por encima y
-comenzo a bajar las escaleras, taconeando. Se encontro con la vieja de
+Serían cerca de las nueve cuando comenzó a bajar las escaleras
+cautelosamente. Al pasar por el primer piso vió en un cuarto muy lujoso,
+y extendido sobre un sofá, un uniforme de oficial carlista, con su boina
+y su espada. Tenía tal convencimiento Martín de que sólo a fuerza de
+audacia se salvaría, que se desnudó con rapidez, se puso el uniforme y
+la boina, luego se ciñó la espada, se echó el capote por encima y
+comenzó a bajar las escaleras, taconeando. Se encontró con la vieja de
 la noche anterior, y al verla la dijo:
 
---?Pero no hay nadie en esta casa?
+--¿Pero no hay nadie en esta casa?
 
---?Que queria usted? No le habia visto.
+--¿Qué quería usted? No le había visto.
 
---?Vive aqui el comandante don Carlos Ohando?
+--¿Vive aquí el comandante don Carlos Ohando?
 
---No, senor, aqui no vive.
+--No, señor, aquí no vive.
 
---iMuchas gracias!
+--¡Muchas gracias!
 
-Martin salio a la calle, y embozado y con aire conquistador se dirigio a
-la posada en donde vivia Bautista.
+Martín salió a la calle, y embozado y con aire conquistador se dirigió a
+la posada en donde vivía Bautista.
 
---iTu!--exclamo Urbide--. ?De donde sales con ese uniforme? ?Que has
-hecho en todo en todo el dia de ayer? Estaba intranquilo. ?Que pasa?
+--¡Tú!--exclamó Urbide--. ¿De dónde sales con ese uniforme? ¿Qué has
+hecho en todo en todo el día de ayer? Estaba intranquilo. ¿Qué pasa?
 
---Todo lo contare. ?Tienes el coche?
+--Todo lo contaré. ¿Tienes el coche?
 
---Si, pero...
+--Sí, pero...
 
---Nada, traetelo en seguida, lo mas pronto que puedas. Pero a escape.
+--Nada, tráetelo en seguida, lo más pronto que puedas. Pero a escape.
 
-Martin se sento a la mesa y escribio con lapiz en un papel: "Querida
-hermana. Necesito verte. Estoy herido, gravisimo. Ven inmediatamente en
-el coche con mi amigo Zalacain. Tu hermano, Carlos."
+Martín se sentó a la mesa y escribió con lápiz en un papel: «Querida
+hermana. Necesito verte. Estoy herido, gravísimo. Ven inmediatamente en
+el coche con mi amigo Zalacaín. Tu hermano, Carlos.»
 
-Despues de escribir el papel, Martin se paseo con impaciencia por el
-cuarto. Cada minuto le parecia un siglo. Dos horas larguisimas tuvo que
-estar esperando con angustias de muerte. Al fin, cerca de las doce, oyo
+Después de escribir el papel, Martín se paseó con impaciencia por el
+cuarto. Cada minuto le parecía un siglo. Dos horas larguísimas tuvo que
+estar esperando con angustias de muerte. Al fin, cerca de las doce, oyó
 un ruido de campanillas.
 
-Se asomo al balcon. A la puerta aguardaba un coche tirado por cuatro
-caballos. Entre estos distinguio Martin los dos jacos en cuyos lomos
-fueron desde Zumaya hasta Estella. El coche, un lando viejo y
-destartalado, tenia un cristal y uno de los faroles atado con una
+Se asomó al balcón. A la puerta aguardaba un coche tirado por cuatro
+caballos. Entre éstos distinguió Martín los dos jacos en cuyos lomos
+fueron desde Zumaya hasta Estella. El coche, un landó viejo y
+destartalado, tenía un cristal y uno de los faroles atado con una
 cuerda.
 
-Bajo las escaleras Martin embozado en la capa, abrio la portezuela del
+Bajó las escaleras Martín embozado en la capa, abrió la portezuela del
 coche, y dijo a Bautista:
 
 --Al convento de Recoletas.
 
-Bautista, sin replicar, se dirigio hacia el sitio indicado. Cuando el
-coche se detuvo frente al convento, Bautista, al salir Zalacain, le
+Bautista, sin replicar, se dirigió hacia el sitio indicado. Cuando el
+coche se detuvo frente al convento, Bautista, al salir Zalacaín, le
 dijo:
 
---?Que disparate vas a hacer? Reflexiona.
+--¿Qué disparate vas a hacer? Reflexiona.
 
---?Tu sabes cual es el camino de Logrono?--pregunto Martin.
+--¿Tú sabes cuál es el camino de Logroño?--preguntó Martín.
 
 --Si.
 
---Pues toma por alla.
+--Pues toma por allá.
 
 --Pero...
 
---Nada, nada, toma por alla. Al principio marcha despacio, para no
-cansar a los caballos, porque luego habra que correr.
+--Nada, nada, toma por allá. Al principio marcha despacio, para no
+cansar a los caballos, porque luego habrá que correr.
 
-Hecha esta recomendacion, Martin, muy erguido, se dirigio al convento.
+Hecha esta recomendación, Martín, muy erguido, se dirigió al convento.
 
---Aqui va a pasar algo gordo--se dijo Bautista preparandose para la
-catastrofe.
+--Aquí va a pasar algo gordo--se dijo Bautista preparándose para la
+catástrofe.
 
-Llamo Martin, entro en el portal, pregunto a la hermana tornera por la
-senorita de Ohando y le dijo que necesitaba darle una carta. Le hicieron
-pasar al locutorio y se encontro alli con Catalina y una monja gruesa,
-que era la superiora. Las saludo profundamente y pregunto:
+Llamó Martín, entró en el portal, preguntó a la hermana tornera por la
+señorita de Ohando y le dijo que necesitaba darle una carta. Le hicieron
+pasar al locutorio y se encontró allí con Catalina y una monja gruesa,
+que era la superiora. Las saludó profundamente y preguntó:
 
---?La senorita de Ohando?
+--¿La señorita de Ohando?
 
 --Soy yo.
 
 --Traigo una carta para usted de su hermano.
 
-Catalina palidecio y le temblaron las manos de la emocion. La superiora,
+Catalina palideció y le temblaron las manos de la emoción. La superiora,
 una mujer gruesa, de color de marfil, con los ojos grandes y obscuros
-como dos manchas negras que le cogian la mitad de la cara, y varios
-lunares en la barbilla, pregunto:
+como dos manchas negras que le cogían la mitad de la cara, y varios
+lunares en la barbilla, preguntó:
 
---?Que pasa? ?Que dice ese papel?
+--¿Qué pasa? ¿Qué dice ese papel?
 
---Dice que mi hermano esta grave... que vaya--balbuceo Catalina.
+--Dice que mi hermano está grave... que vaya--balbuceó Catalina.
 
---?Esta tan grave?--pregunto la superiora a Martin.
+--¿Está tan grave?--preguntó la superiora a Martín.
 
---Si, creo que si.
+--Si, creo que sí.
 
---?En donde se encuentra?
+--¿En dónde se encuentra?
 
---En una casa de la carretera de Logrono--dijo Martin.
+--En una casa de la carretera de Logroño--dijo Martín.
 
---?Hacia Azqueta quiza?
+--¿Hacia Azqueta quizá?
 
---Si, cerca de Azqueta. Le han herido en un reconocimiento.
+--Sí, cerca de Azqueta. Le han herido en un reconocimiento.
 
---Bueno. Vamos--dijo la superiora--. Que venga tambien el senor Benito
+--Bueno. Vamos--dijo la superiora--. Que venga también el señor Benito
 el demandadero.
 
-Martin no se opuso y espero a que se preparasen para acompanarlas. Al
+Martín no se opuso y esperó a que se preparasen para acompañarlas. Al
 salir los cuatro a tomar el coche y al verles Bautista desde lo alto del
 pescante, no pudo menos de hacer una mueca de asombro. El demandadero
-monto junto a el.
+montó junto a él.
 
---Vamos--dijo Martin a Bautista.
+--Vamos--dijo Martín a Bautista.
 
-El coche partio; la misma superiora bajo las cortinas y sacando un
-rosario comenzo a rezar. Recorrio el coche la calle Mayor, atraveso el
-puente del Azucarero, la calle de San Nicolas, y tomo por la carretera
-de Logrono.
+El coche partió; la misma superiora bajó las cortinas y sacando un
+rosario comenzó a rezar. Recorrió el coche la calle Mayor, atravesó el
+puente del Azucarero, la calle de San Nicolás, y tomó por la carretera
+de Logroño.
 
-Al salir del pueblo, una patrulla carlista se acerco al coche. Alguien
-abrio la portezuela y la volvio a cerrar en seguida.
+Al salir del pueblo, una patrulla carlista se acercó al coche. Alguien
+abrió la portezuela y la volvió a cerrar en seguida.
 
 --Va la madre superiora de las Recoletas a visitar a un enfermo--dijo el
 demandadero con voz gangosa.
 
-El coche siguio adelante al trote lento de los caballos. Lloviznaba, la
-noche estaba negra, no brillaba ni una estrella en el cielo. Se paso
+El coche siguió adelante al trote lento de los caballos. Lloviznaba, la
+noche estaba negra, no brillaba ni una estrella en el cielo. Se pasó
 una aldea, luego otra.
 
---iQue lentitud!--exclamo la monja.
+--¡Qué lentitud!--exclamó la monja.
 
---Es que los caballos son muy malos--contesto Martin.
+--Es que los caballos son muy malos--contestó Martín.
 
-Pasaron deprisa otra aldea, y cuando no tenian delante ni atras pueblos
-ni casas proximos, Bautista aminoro la marcha. Comenzaba a anochecer.
+Pasaron deprisa otra aldea, y cuando no tenían delante ni atrás pueblos
+ni casas próximos, Bautista aminoró la marcha. Comenzaba a anochecer.
 
---?Pero que pasa?--dijo de pronto la superiora--. ?No llegamos todavia?
+--¿Pero qué pasa?--dijo de pronto la superiora--. ¿No llegamos todavía?
 
---Pasa, senora--contesto Zalacain--que tenemos que seguir adelante.
+--Pasa, señora--contestó Zalacaín--que tenemos que seguir adelante.
 
---?Y por que?
+--¿Y por qué?
 
 --Hay esa orden.
 
---?Y quien ha dado esa orden?
+--¿Y quién ha dado esa orden?
 
 --Es un secreto.
 
@@ -5386,882 +5238,882 @@ ni casas proximos, Bautista aminoro la marcha. Comenzaba a anochecer.
 
 --Si quiere usted bajar sola, puede usted hacerlo.
 
---No, ire con Catalina.
+--No, iré con Catalina.
 
 --Imposible.
 
-La superiora lanzo una mirada furiosa a Catalina, y al ver que bajaba
-los ojos, exclamo:
+La superiora lanzó una mirada furiosa a Catalina, y al ver que bajaba
+los ojos, exclamó:
 
---iAh! Estaban entendidos.
+--¡Ah! Estaban entendidos.
 
---Si, estamos entendidos--contesto Martin--.Esta senorita es mi novia y
+--Sí, estamos entendidos--contestó Martín--.Esta señorita es mi novia y
 no quiere estar en el convento, sino casarse conmigo.
 
---No es verdad, yo lo impedire.
+--No es verdad, yo lo impediré.
 
---Usted no lo impedira porque no podra impedirlo.
+--Usted no lo impedirá porque no podrá impedirlo.
 
-La superiora se callo. Siguio el coche en su marcha pesada y monotona
+La superiora se calló. Siguió el coche en su marcha pesada y monótona
 por la carretera. Era ya media noche cuando llegaron a la vista de Los
 Arcos.
 
-Doscientos metros antes detuvo Bautista los caballos y salto del
+Doscientos metros antes detuvo Bautista los caballos y saltó del
 pescante.
 
---Tu--le dijo a Zalacain en vascuence--tenemos un caballo aspeado, si
-pudieras cambiarlo aqui...
+--Tú--le dijo a Zalacaín en vascuence--tenemos un caballo aspeado, si
+pudieras cambiarlo aquí...
 
 --Intentaremos.
 
---Y si se pudieran cambiar los dos, seria mejor.
+--Y si se pudieran cambiar los dos, sería mejor.
 
 --Voy a ver. Cuidado con el demandadero y con la monja, que no salgan.
 
-Desengancho Martin los caballos y fue con ellos a la venta.
+Desenganchó Martín los caballos y fué con ellos a la venta.
 
-Le salio al paso una muchacha redondita, muy bonita y de muy mal humor.
-Le dijo Martin, lo que necesitaba, y ella replico que era imposible, que
+Le salió al paso una muchacha redondita, muy bonita y de muy mal humor.
+Le dijo Martín, lo que necesitaba, y ella replicó que era imposible, que
 el amo estaba acostado.
 
 --Pues hay que despertarle.
 
-Llamaron al posadero y este presento una porcion de obstaculos, adujo
-toda clase de pretextos, pero al ver el uniforme de Martin se avino a
-obedecer y mando despertar al mozo. El mozo no estaba.
+Llamaron al posadero y éste presentó una porción de obstáculos, adujo
+toda clase de pretextos, pero al ver el uniforme de Martín se avino a
+obedecer y mandó despertar al mozo. El mozo no estaba.
 
---Ya ve usted, no esta el mozo.
+--Ya ve usted, no está el mozo.
 
---Ayudeme usted, no tenga usted mal genio--le dijo Martin a la muchacha
-tomandole la mano y dandole un duro--. Me juego la vida en esto.
+--Ayúdeme usted, no tenga usted mal genio--le dijo Martín a la muchacha
+tomándole la mano y dándole un duro--. Me juego la vida en esto.
 
-La muchacha guardo el duro en el delantal, y ella misma saco dos
-caballos de la cuadra y fue con ellos cantando alegremente:
+La muchacha guardó el duro en el delantal, y ella misma sacó dos
+caballos de la cuadra y fué con ellos cantando alegremente:
 
         La Virgen del Puy de Estella
         le dijo a la del Pilar:
-        Si tu eres aragonesa
+        Si tú eres aragonesa
         yo soy navarra y con sal.
 
-Martin pago al posadero y quedo con el de acuerdo en el sitio en donde
-tenia que dejar los caballos en Logrono.
+Martín pagó al posadero y quedó con él de acuerdo en el sitio en donde
+tenía que dejar los caballos en Logroño.
 
-Entre Bautista, Martin y la moza, reemplazaron el tiro por completo.
-Martin acompano a la muchacha, y cuando la vio sola la estrecho por la
-cintura y la beso en la mejilla.
+Entre Bautista, Martín y la moza, reemplazaron el tiro por completo.
+Martín acompañó a la muchacha, y cuando la vió sola la estrechó por la
+cintura y la besó en la mejilla.
 
---iTambien usted es posma!--exclamo ella con desgarro.
+--¡También usted es posma!--exclamó ella con desgarro.
 
 --Es que usted es navarra y con sal y yo quiero probar de esa
-sal--replico Martin.
+sal--replicó Martín.
 
---Pues tenga usted cuidado no le haga dano.
+--Pues tenga usted cuidado no le haga daño.
 
---?Quien lleva usted en el coche?
+--¿Quién lleva usted en el coche?
 
 --Unas viejas.
 
---?Volvera usted por aqui?
+--¿Volverá usted por aquí?
 
 --En cuanto pueda.
 
---Pues, adios.
+--Pues, adiós.
 
---Adios, hermosa. Oiga usted. Si le preguntan por donde hemos ido diga
-usted que nos hemos quedado aqui.
+--Adiós, hermosa. Oiga usted. Si le preguntan por donde hemos ido diga
+usted que nos hemos quedado aquí.
 
---Bueno, asi lo hare.
+--Bueno, así lo haré.
 
-El coche paso por delante de Los Arcos. Al llegar cerca de Sansol,
+El coche pasó por delante de Los Arcos. Al llegar cerca de Sansol,
 cuatro hombres se plantaron en el camino.
 
---iAlto!--grito uno de ellos que llevaba un farol.
+--¡Alto!--gritó uno de ellos que llevaba un farol.
 
-Martin salto del coche y desenvaino la espada.
+Martín saltó del coche y desenvainó la espada.
 
---?Quien es?--pregunto.
+--¿Quién es?--preguntó.
 
 --Voluntarios realistas--dijeron ellos.
 
---?Que quieren?
+--¿Qué quieren?
 
 --Ver si tienen ustedes pasaporte.
 
-Martin saco salvoconducto y lo enseno. Un viejo, de aire respetable,
-tomo el papel y se puso a leerlo.
+Martín sacó salvoconducto y lo enseñó. Un viejo, de aire respetable,
+tomó el papel y se puso a leerlo.
 
---?No ve usted que soy oficial?--pregunto Martin.
+--¿No vé usted que soy oficial?--preguntó Martín.
 
---No importa--replico el viejo--. ?Quien va adentro?
+--No importa--replicó el viejo--. ¿Quién va adentro?
 
---Dos madres recoletas que marchan a Logrono.
+--Dos madres recoletas que marchan a Logroño.
 
---?No saben ustedes que en Viana estan los liberales?--pregunto el
+--¿No saben ustedes que en Viana están los liberales?--preguntó el
 viejo.
 
 --No importa, pasaremos.
 
---Vamos a ver a esas senoras--murmuro el vejete.
+--Vamos a ver a esas señoras--murmuró el vejete.
 
---iEh, Bautista! Ten cuidado--dijo Martin en vasco.
+--¡Eh, Bautista! Ten cuidado--dijo Martín en vasco.
 
-Descendio Urbide del pescante y tras el salto el demandadero. El viejo
-jefe de la patrulla abrio la portezuela del coche y echo la luz del
+Descendió Urbide del pescante y tras él saltó el demandadero. El viejo
+jefe de la patrulla abrió la portezuela del coche y echó la luz del
 farol al rostro de las viajeras.
 
---?Quienes son ustedes?--pregunto la superiora con presteza.
+--¿Quiénes son ustedes?--preguntó la superiora con presteza.
 
 --Somos voluntarios de Carlos VII.
 
 --Entonces que nos detengan. Estos hombres nos llevan secuestradas.
 
-No acababa de decir esto cuando Martin dio una patada al farol que
-llevaba el viejo, y despues de un empujon echo al anciano respetable a
-la cuneta de la carretera. Bautista arranco el fusil a otro de la ronda,
-y el demandadero se vio acometido por dos hombres a la vez.
+No acababa de decir esto cuando Martín dió una patada al farol que
+llevaba el viejo, y después de un empujón echó al anciano respetable a
+la cuneta de la carretera. Bautista arrancó el fusil a otro de la ronda,
+y el demandadero se vió acometido por dos hombres a la vez.
 
---iPero si yo no soy de estos. Yo soy carlista--grito el demandadero.
+--¡Pero si yo no soy de estos. Yo soy carlista--gritó el demandadero.
 
-Los hombres, convencidos, se echaron sobre Zalacain, este cerro contra
-los dos; uno de los voluntarios le dio un bayonetazo en el hombro
-izquierdo, y Martin, furioso por el dolor, le tiro una estocada que le
-atraveso de parte a parte.
+Los hombres, convencidos, se echaron sobre Zalacaín, éste cerró contra
+los dos; uno de los voluntarios le dió un bayonetazo en el hombro
+izquierdo, y Martín, furioso por el dolor, le tiró una estocada que le
+atravesó de parte a parte.
 
-La patrulla se habia declarado en fuga, dejando un fusil en el suelo.
+La patrulla se había declarado en fuga, dejando un fusil en el suelo.
 
---?Estas herido?--pregunto Bautista a su cunado.
+--¿Estás herido?--preguntó Bautista a su cuñado.
 
---Si, pero creo que no es nada. Hala, vamonos.
+--Sí, pero creo que no es nada. Hala, vámonos.
 
---?Llevamos este fusil?
+--¿Llevamos este fusil?
 
---Si, quitale la cartuchera a ese que yo he tumbado, y vamos andando.
+--Sí, quítale la cartuchera a ese que yo he tumbado, y vamos andando.
 
-Bautista entrego un fusil y una pistola a Martin.
+Bautista entregó un fusil y una pistola a Martín.
 
---Vamos, iadentro!--dijo Martin al demandadero.
+--Vamos, ¡adentro!--dijo Martín al demandadero.
 
-Este se metio temblando en el coche que partio, llevado al galope por
+Éste se metió temblando en el coche que partió, llevado al galope por
 los caballos. Pasaron por en medio de un pueblo. Algunas ventanas se
-abrieron y salieron los vecinos, creyendo sin duda que pasaba un furgon
-de artilleria. A la media hora Bautista se paro. Se habia roto una
-correa y tuvieron que arreglarla, haciendole un agujero con el
-cortaplumas. Estaba cayendo un chaparron que convertia la carretera en
+abrieron y salieron los vecinos, creyendo sin duda que pasaba un furgón
+de artillería. A la media hora Bautista se paró. Se había roto una
+correa y tuvieron que arreglarla, haciéndole un agujero con el
+cortaplumas. Estaba cayendo un chaparrón que convertía la carretera en
 un barrizal.
 
---Habra que ir mas despacio--dijo Martin.
+--Habrá que ir más despacio--dijo Martín.
 
-Efectivamente, comenzaron a marchar mas despacio, pero al cabo de un
-cuarto de hora se oyo a lo lejos como un galope de caballos. Martin se
-asomo a la ventana; indudablemente los perseguian.
+Efectivamente, comenzaron a marchar más despacio, pero al cabo de un
+cuarto de hora se oyó a lo lejos como un galope de caballos. Martín se
+asomó a la ventana; indudablemente los perseguían.
 
 El ruido de las herraduras se iba acercando por momentos.
 
---iAlto! iAlto!--se oyo gritar.
+--¡Alto! ¡Alto!--se oyó gritar.
 
-Bautista azoto los caballos y el coche tomo una una carrera vertiginosa.
-Al llegar a las curvas, el viejo lando se torcia y rechinaba como si
+Bautista azotó los caballos y el coche tomó una una carrera vertiginosa.
+Al llegar a las curvas, el viejo landó se torcía y rechinaba como si
 fuera a hacerse pedazos. La superiora y Catalina rezaban; el demandadero
-gemia en el fondo del coche.
+gemía en el fondo del coche.
 
---iAlto! iAlto!--gritaron de nuevo.
+--¡Alto! ¡Alto!--gritaron de nuevo.
 
---iAdelante, Bautista! iAdelante!--dijo Martin, sacando la cabeza por la
+--¡Adelante, Bautista! ¡Adelante!--dijo Martín, sacando la cabeza por la
 ventanilla.
 
-En aquel momento sono un tiro, y una bala paso silbando a poca
-distancia. Martin cargo la pistola, vio un caballo y un ginete que se
-acercaban al coche, hizo fuego y el caballo cayo pesadamente al suelo.
-Los perseguidores dispararon sobre el coche que fue atravesado por las
-balas. Entonces Martin cargo el fusil y, sacando el cuerpo por la
-ventanilla, comenzo a hacer disparos atendiendo al ruido de las pisadas
-de los caballos; los que les seguian disparaban tambien, pero la noche
-estaba negra y ni Martin ni los perseguidores afinaban la punteria.
+En aquel momento sonó un tiro, y una bala pasó silbando a poca
+distancia. Martín cargó la pistola, vió un caballo y un ginete que se
+acercaban al coche, hizo fuego y el caballo cayó pesadamente al suelo.
+Los perseguidores dispararon sobre el coche que fué atravesado por las
+balas. Entonces Martín cargó el fusil y, sacando el cuerpo por la
+ventanilla, comenzó a hacer disparos atendiendo al ruido de las pisadas
+de los caballos; los que les seguían disparaban también, pero la noche
+estaba negra y ni Martín ni los perseguidores afinaban la puntería.
 Bautista, agazapado en el pescante, llevaba los caballos al galope;
 ninguno de los animales estaba herido, la cosa iba bien.
 
-Al amanecer ceso la persecucion. Ya no se veia a nadie en la carretera.
+Al amanecer cesó la persecución. Ya no se veía a nadie en la carretera.
 
---Creo que podemos parar--grito Bautista--. ?Eh? Llevamos otra vez el
-tiro roto. ?Paramos?
+--Creo que podemos parar--gritó Bautista--. ¿Eh? Llevamos otra vez el
+tiro roto. ¿Paramos?
 
---Si, para--dijo Martin--; no se ve a nadie.
+--Sí, para--dijo Martín--; no se ve a nadie.
 
-Paro Bautista, y tuvieron que componer de nuevo otra correa.
+Paró Bautista, y tuvieron que componer de nuevo otra correa.
 
-El demandadero rezaba y gemia en el coche; Zalacain le hizo salir de
+El demandadero rezaba y gemía en el coche; Zalacaín le hizo salir de
 dentro a empujones.
 
---Anda, al pescante--le dijo--. ?Es que tu no tienes sangre en las
-venas, sacristan de los demonios?--le pregunto.
+--Anda, al pescante--le dijo--. ¿Es que tú no tienes sangre en las
+venas, sacristán de los demonios?--le preguntó.
 
---Yo soy pacifico y no me gusta mezclarme en estas cosas ni hacer dano a
-nadie--contesto refunfunando.
+--Yo soy pacífico y no me gusta mezclarme en estas cosas ni hacer daño a
+nadie--contestó refunfuñando.
 
---?No seras tu una monja disfrazada?
+--¿No serás tú una monja disfrazada?
 
 --No, soy un hombre.
 
---?No te habras equivocado?
+--¿No te habrás equivocado?
 
 --No, soy un hombre, un pobre hombre, si le parece a usted mejor.
 
---Eso no impedira que te metan unas pildoras de plomo en esa grasa fria
+--Eso no impedirá que te metan unas píldoras de plomo en esa grasa fría
 que forma tu cuerpo.
 
---iQue horror!
+--¡Qué horror!
 
---Por eso debes comprender, hombre linfatico, que cuando se encuentra
-uno en el caso de morir o de matar, no puede uno andarse con tonterias
+--Por eso debes comprender, hombre linfático, que cuando se encuentra
+uno en el caso de morir o de matar, no puede uno andarse con tonterías
 ni con rezos.
 
-Las palabras rudas de Martin reanimaron un poco al demandadero.
+Las palabras rudas de Martín reanimaron un poco al demandadero.
 
-Al subir Bautista al pescante, le dijo Martin:
+Al subir Bautista al pescante, le dijo Martín:
 
---?Quieres que guie yo ahora?
+--¿Quieres que guíe yo ahora?
 
---No, no. Yo voy bien. Y tu, ?como tienes la herida?
+--No, no. Yo voy bien. Y tú, ¿cómo tienes la herida?
 
 --No debe de ser nada.
 
---?Vamos a verla?
+--¿Vamos a verla?
 
 --Luego, luego; no hay que perder tiempo.
 
-Martin abrio la portezuela, y, al sentarse, dirigiendose a la superiora,
+Martín abrió la portezuela, y, al sentarse, dirigiéndose a la superiora,
 dijo:
 
---Respecto a usted, senora, si vuelve usted a chillar, la voy a atar a
-un arbol y a dejarla en la carretera.
+--Respecto a usted, señora, si vuelve usted a chillar, la voy a atar a
+un árbol y a dejarla en la carretera.
 
-Catalina, asustadisima, lloraba. Bautista subio al pescante y el
-demandadero con el. Comenzo el carruaje a marchar despacio, pero, al
+Catalina, asustadísima, lloraba. Bautista subió al pescante y el
+demandadero con él. Comenzó el carruaje a marchar despacio, pero, al
 poco tiempo, volvieron a oirse como pisadas de caballos.
 
 Ya no quedaban municiones; los caballos del coche estaban cansados.
 
---Vamos, Bautista, un esfuerzo--grito Martin, sacando la cabeza por la
-ventanilla--. iAsi! Echando chispas.
+--Vamos, Bautista, un esfuerzo--grito Martín, sacando la cabeza por la
+ventanilla--. ¡Así! Echando chispas.
 
-Bautista, excitado, gritaba y chasqueaba el latigo. El coche pasaba con
-la rapidez de una exhalacion, y pronto dejo de oirse detras el ruido de
+Bautista, excitado, gritaba y chasqueaba el látigo. El coche pasaba con
+la rapidez de una exhalación, y pronto dejó de oirse detrás el ruido de
 pisadas de caballos.
 
-Ya estaba clareando; nubarrones de plomo corrian a impulsos del viento,
+Ya estaba clareando; nubarrones de plomo corrían a impulsos del viento,
 y en el fondo del cielo rojizo y triste del alba se adivinaba un pueblo
-en un alto. Debia de ser Viana.
+en un alto. Debía de ser Viana.
 
-Al acercarse a el, el coche tropezo con una piedra, se solto una de las
-ruedas, la caja se inclino y vino a tierra. Todos los viajeros cayeron
-revueltos en el barro. Martin se levanto primero y tomo en brazos a
+Al acercarse a él, el coche tropezó con una piedra, se soltó una de las
+ruedas, la caja se inclinó y vino a tierra. Todos los viajeros cayeron
+revueltos en el barro. Martín se levantó primero y tomó en brazos a
 Catalina.
 
---?Tienes algo?--la dijo.
+--¿Tienes algo?--la dijo.
 
---No, creo que no--contesto ella, gimiendo.
+--No, creo que no--contestó ella, gimiendo.
 
-La superiora se habia hecho un chichon en la trente y el demandadero
-dislocado una muneca.
+La superiora se había hecho un chichón en la trente y el demandadero
+dislocado una muñeca.
 
---No hay averias importantes--dijo Martin--.iAdelante!
+--No hay averías importantes--dijo Martín--.¡Adelante!
 
 Los viajeros entonaban un coro de quejas y de lamentos.
 
 --Desengancharemos y montaremos a caballo--dijo Bautista.
 
---Yo no. Yo no me muevo de aqui--replico la superiora.
+--Yo no. Yo no me muevo de aquí--replicó la superiora.
 
-La llegada del coche y su batacazo no habian pasado inadvertidos,
-porque, pocos momentos despues, avanzo del lado de Viana media compania
+La llegada del coche y su batacazo no habían pasado inadvertidos,
+porque, pocos momentos después, avanzó del lado de Viana media compañía
 de soldados.
 
---Son los _guiris_--dijo Bautista a Martin.
+--Son los _guiris_--dijo Bautista a Martín.
 
 --Me alegro.
 
-La media compania se acerco al grupo.
+La media compañía se acercó al grupo.
 
---iAlto!--grito el sargento--. ?Quien vive?
+--¡Alto!--gritó el sargento--. ¿Quién vive?
 
---Espana.
+--España.
 
 --Daos prisioneros.
 
 --No nos resistimos.
 
 El sargento y su tropa quedaron asombrados, al ver a un militar
-carlista, a dos monjas y a sus acompanantes llenos de barro.
+carlista, a dos monjas y a sus acompañantes llenos de barro.
 
 --Vamos hacia el pueblo--les ordenaron.
 
 Todos juntos, escoltados por los soldados, llegaron a Viana.
 
-Un teniente que aparecio en la carretera, pregunto:
+Un teniente que apareció en la carretera, preguntó:
 
---?Que hay, sargento?
+--¿Qué hay, sargento?
 
 --Traemos prisioneros a un general carlista y a dos monjas.
 
-Martin se pregunto por que le llamaba el sargento general carlista;
-pero, al ver que el teniente le saludaba, comprendio que el uniforme,
-cogido por el en Estella, era de un general.
+Martín se preguntó por qué le llamaba el sargento general carlista;
+pero, al ver que el teniente le saludaba, comprendió que el uniforme,
+cogido por él en Estella, era de un general.
 
 
 
 
-CAPITULO XIII
+CAPÍTULO XIII
 
-COMO LLEGARON A LOGRONO Y LO QUE LES OCURRIO
+CÓMO LLEGARON A LOGROÑO Y LO QUE LES OCURRIÓ
 
 
 Hicieron entrar a todos en el cuerpo de guardia, en donde, tendidos en
-camastros, dormian unos cuantos soldados, y otros se calentaban al calor
-de un gran brasero. Martin fue tratado con mucha consideracion por su
-uniforme. Rogo al oficial le dejara estar a Catalina a su lado.
+camastros, dormían unos cuantos soldados, y otros se calentaban al calor
+de un gran brasero. Martín fué tratado con mucha consideración por su
+uniforme. Rogó al oficial le dejara estar a Catalina a su lado.
 
---?Es la senora de usted?
+--¿Es la señora de usted?
 
---Si, es mi mujer.
+--Sí, es mi mujer.
 
-El oficial accedio y paso a los dos a un cuarto destartalado que servia
+El oficial accedió y pasó a los dos a un cuarto destartalado que servía
 para los oficiales.
 
 La superiora, Bautista y el demandadero, no merecieron las mismas
 atenciones y quedaron en el cuartelillo.
 
-Un sargento viejo, andaluz, se amartelo con la superiora y comenzo a
-echaria piropos de los clasicos; la dijo que tenia _loz ojoz_ como _doz
-luceroz_ y que se parecia a la Virgen de _Conzolacion_ de Utrera, y le
-conto otra porcion de cosas del repertorio de los almanaques.
+Un sargento viejo, andaluz, se amarteló con la superiora y comenzó a
+echaría piropos de los clásicos; la dijo que tenía _loz ojoz_ como _doz
+luceroz_ y que se parecía a la Virgen de _Conzolación_ de Utrera, y le
+contó otra porción de cosas del repertorio de los almanaques.
 
-A Bautista le dieron tal risa los piropos del andaluz, que comenzo a
+A Bautista le dieron tal risa los piropos del andaluz, que comenzó a
 reirse con una risa contenida.
 
 --A ver _zi_ te _callaz_; cochino carca--le dijo el sargento.
 
---Si yo no digo nada--replico Bautista.
+--Si yo no digo nada--replicó Bautista.
 
---_Zi_ te _siguez_ riendo _azi_, te voy a _clava_ como a un _zapo_.
+--_Zi_ te _siguez_ riendo _azí_, te voy a _clavá_ como a un _zapo_.
 
-Bautista tuvo que ir a un rincon a reirse, y la superiora y el sargento
-siguieron su conversacion.
+Bautista tuvo que ir a un rincón a reirse, y la superiora y el sargento
+siguieron su conversación.
 
-Al mediodia llego un coronel, que al ver a Martin le saludo
-militarmente. Martin le conto sus aventuras, pero el coronel al oirlas
-fruncio las cejas.
+Al mediodía llegó un coronel, que al ver a Martín le saludó
+militarmente. Martín le contó sus aventuras, pero el coronel al oírlas
+frunció las cejas.
 
---A estos militares--penso Martin--no les gusta que un paisano haga
-cosas mas dificiles que las suyas.
+--A estos militares--pensó Martín--no les gusta que un paisano haga
+cosas más difíciles que las suyas.
 
---Iran ustedes a Logrono y alli veremos si identifican su personalidad.
-?Que tiene usted? ?Esta usted herido?
+--Irán ustedes a Logroño y allí veremos si identifican su personalidad.
+¿Qué tiene usted? ¿Está usted herido?
 
---Si.
+--Sí.
 
---Ahora vendra el fisico a reconocerle.
+--Ahora vendrá el físico a reconocerle.
 
-Efectivamente, llego un doctor que reconocio a Martin, le vendo, y
-redujo la dislocacion del mandadero, que grito y chillo como un
-condenado. Despues de comer trajeron los caballos del coche, les
-obligaron a montar en ellos, y custodiados por toda compania tomaron el
-camino de Logrono.
+Efectivamente, llegó un doctor que reconoció a Martín, le vendó, y
+redujo la dislocación del mandadero, que gritó y chilló como un
+condenado. Después de comer trajeron los caballos del coche, les
+obligaron a montar en ellos, y custodiados por toda compañía tomaron el
+camino de Logroño.
 
-Al llegar cerca del puente sobre el Ebro, una porcion de lavanderas y
-de mujeres de carabineros salieron a ver la extrana comitiva, y varias
-de ellas comenzaron a cantar, sobre todo dirigiendose a la monja:
+Al llegar cerca del puente sobre el Ebro, una porción de lavanderas y
+de mujeres de carabineros salieron a ver la extraña comitiva, y varias
+de ellas comenzaron a cantar, sobre todo dirigiéndose a la monja:
 
-        Ahora si que estaras contentona
+        Ahora sí que estarás contentona
         Carlistona, mandilona;
-        Ahora si que estaras contenton
-        Carliston, mandilon, cobardon.
+        Ahora sí que estarás contentón
+        Carlistón, mandilón, cobardón.
 
-La pobre superiora estaba livida de rabia. Martin y Bautista se miraban
-con cierto comico estupor.
+La pobre superiora estaba lívida de rabia. Martín y Bautista se miraban
+con cierto cómico estupor.
 
-En Logrono pararon en el cuartel y un oficial hizo subir a Martin a ver
-al general. Le conto Zalacain sus aventuras, y el general le dijo:
+En Logroño pararon en el cuartel y un oficial hizo subir a Martín a ver
+al general. Le contó Zalacaín sus aventuras, y el general le dijo:
 
 --Si yo tuviera la seguridad de que lo que me dice usted es cierto,
-inmediatamente dejaria libre a usted y a sus companeros.
+inmediatamente dejaría libre a usted y a sus compañeros.
 
---?Y yo como voy a probar la verdad de mis palabras?
+--¿Y yo cómo voy a probar la verdad de mis palabras?
 
---iSi pudiera usted identificar su persona! ?No conoce usted aqui a
-nadie? ?Algun comerciante?
+--¡Si pudiera usted identificar su persona! ¿No conoce usted aquí a
+nadie? ¿Algún comerciante?
 
 --No.
 
---Es lastima.
+--Es lástima.
 
---Si, si, conozco a una persona--dijo de pronto Martin--, conozco a la
-senora de Briones y a su hija.
+--Sí, sí, conozco a una persona--dijo de pronto Martín--, conozco a la
+señora de Briones y a su hija.
 
---?Y el capitan Briones, tambien lo conocera usted?
+--¿Y el capitán Briones, también lo conocerá usted?
 
---Tambien.
+--También.
 
---Pues lo voy a llamar; dentro de un momento estara aqui.
+--Pues lo voy a llamar; dentro de un momento estará aquí.
 
-El general mando un ayudante suyo, y media hora despues estaba el
-capitan Briones, que reconocio a Martin. El general los dejo a todos
+El general mandó un ayudante suyo, y media hora después estaba el
+capitán Briones, que reconoció a Martín. El general los dejó a todos
 libres.
 
-Martin, Catalina y Bautista iban a marcharse juntos, a pesar de la
-oposicion de la superiora, cuando el capitan Briones dijo:
+Martín, Catalina y Bautista iban a marcharse juntos, a pesar de la
+oposición de la superiora, cuando el capitán Briones dijo:
 
---Amigo Zalacain, mi madre y mi hermana exigen que vaya usted a comer
+--Amigo Zalacaín, mi madre y mi hermana exigen que vaya usted a comer
 con ellas.
 
-Martin explico a su novia como no le era posible desatender la
-invitacion, y dejando a Bautista y a Catalina fue en compania del
+Martín explicó a su novia como no le era posible desatender la
+invitación, y dejando a Bautista y a Catalina fué en compañía del
 oficial.
 
-La casa de la senora de Briones estaba en una calle centrica, con
+La casa de la señora de Briones estaba en una calle céntrica, con
 soportales.
 
-Rosita y su madre recibieron a Martin con grandes muestras de amistad.
-La aventura de su llegada a Logrono con un una senorita y una monja
-habia corrido por todas partes.
+Rosita y su madre recibieron a Martín con grandes muestras de amistad.
+La aventura de su llegada a Logroño con un una señorita y una monja
+había corrido por todas partes.
 
-Madre e hija le preguntaron un sin fin de cosas, y Martin tuvo que
+Madre é hija le preguntaron un sin fin de cosas, y Martín tuvo que
 contar sus aventuras.
 
---iPero que muchacho!--decia dona Pepita, haciendose cruces--. Usted es
+--¡Pero qué muchacho!--decía doña Pepita, haciéndose cruces--. Usted es
 un verdadero diablo.
 
-Despues de comer vinieron unas senoritas amigas de Rosa Briones, y
-Martin tuvo que contar de nuevo sus aventuras. Luego se hablo de
-sobremesa y se canto. Martin pensaba: ?Que hara Catalina? Pero luego se
-olvidaba con la conversacion.
+Después de comer vinieron unas señoritas amigas de Rosa Briones, y
+Martín tuvo que contar de nuevo sus aventuras. Luego se habló de
+sobremesa y se cantó. Martín pensaba: ¿Qué hará Catalina? Pero luego se
+olvidaba con la conversación.
 
-Dona Pepita dijo que su hija habia tenido el capricho de aprender la
-guitarra e incito a Rosita para que cantara.
+Doña Pepita dijo que su hija había tenido el capricho de aprender la
+guitarra é incitó a Rosita para que cantara.
 
---Si, canta--dijeron las demas muchachas.
+--Sí, canta--dijeron las demás muchachas.
 
---Si, cante usted--anadio Zalacain.
+--Sí, cante usted--añadió Zalacaín.
 
-Rosita saco la guitarra y canto algunas canciones, acompanandose con
-ella, y luego, como en honor de Martin, entono un zortzico con letra
-castellana, que comenzaba asi:
+Rosita sacó la guitarra y cantó algunas canciones, acompañándose con
+ella, y luego, como en honor de Martín, entonó un zortzico con letra
+castellana, que comenzaba así:
 
-        Aunque la oracion suene
-        Yo no me voy de aqui;
-        La del panuelo rojo
-        Loco me ha vuelto a mi.
+        Aunque la oración suene
+        Yo no me voy de aquí;
+        La del pañuelo rojo
+        Loco me ha vuelto a mí.
 
-Y el estribillo de la cancion era:
+Y el estribillo de la canción era:
 
         Aufa que el campanero
-        La oracion va a tocar,
+        La oración va a tocar,
         Aufa que yo te quiero
-        _Maitia, maitia_, ven aca.
+        _Maitia, maitia_, ven acá.
 
-Y Rosita, al cantar esto, miraba a Martin de tal manera con los ojos
-brillantes y negros, que el se olvido de que le esperaba Catalina.
+Y Rosita, al cantar esto, miraba a Martín de tal manera con los ojos
+brillantes y negros, que él se olvidó de que le esperaba Catalina.
 
-Cuando salio de casa de la senora de Briones, eran cerca de las once de
-la noche. Al encontrarse en la calle comprendio su falta brutal de
-atencion. Fue a buscar a su novia, preguntando en los hoteles. La
-mayoria estaban cerrados. En uno del Espolon le dijeron: "Aqui ha venido
-una senorita, pero esta descansando en su cuarto."
+Cuando salió de casa de la señora de Briones, eran cerca de las once de
+la noche. Al encontrarse en la calle comprendió su falta brutal de
+atención. Fué a buscar a su novia, preguntando en los hoteles. La
+mayoría estaban cerrados. En uno del Espolón le dijeron: «Aquí ha venido
+una señorita, pero está descansando en su cuarto.»
 
---?No podria usted avisarla?
+--¿No podría usted avisarla?
 
 --No.
 
-Bautista tampoco parecia.
+Bautista tampoco parecía.
 
-Sin saber que hacer, volvio Martin a los soportales y se puso a pasear
-por ellos. Si no fuera por Catalina--penso--era capaz de quedarme aqui
-y ver si Rosita Briones esta de veras por mi, como parece.
+Sin saber qué hacer, volvió Martín a los soportales y se puso a pasear
+por ellos. Si no fuera por Catalina--pensó--era capaz de quedarme aquí
+y ver si Rosita Briones está de veras por mí, como parece.
 
 Estaba embebido en estos pensamientos cuando un hombre, con aspecto de
-criado, se paro ante el y le dijo:
+criado, se paró ante él y le dijo:
 
---?Es usted don Martin Zalacain?
+--¿Es usted don Martín Zalacaín?
 
 --El mismo.
 
---?Quiere usted venir conmigo? Mi senora quiere hablarle.
+--¿Quiere usted venir conmigo? Mi señora quiere hablarle.
 
---?Y quien es la senora de usted?
+--¿Y quién es la señora de usted?
 
 --Me ha encargado que le diga que es una amiga de su infancia.
 
---?Una amiga de mi infancia?
+--¿Una amiga de mi infancia?
 
---Si.
+--Sí.
 
---Es posible--penso Zalacain--. Si habre conocido en mi infancia a
+--Es posible--pensó Zalacaín--. Si habré conocido en mi infancia a
 alguien que tenga criados, sin saberlo. En fin, vamos a ver a mi
 amiga--dijo en voz alta.
 
-El criado siguio por los soportales, torcio una esquina, y en una casa
-grande empujo la puerta y entro en un zaguan elegante, iluminado por un
+El criado siguió por los soportales, torció una esquina, y en una casa
+grande empujó la puerta y entró en un zaguán elegante, iluminado por un
 gran farol.
 
---Pase el senorito--dijo el criado indicandole una escalera alfombrada.
+--Pase el señorito--dijo el criado indicándole una escalera alfombrada.
 
---Debe haber una equivocacion--penso Martin--. No es posible otra cosa.
+--Debe haber una equivocación--pensó Martín--. No es posible otra cosa.
 
-Subieron la escalera, el criado levanto una cortina y paso Zalacain.
-Sentada en un sofa y hojeando un album, habia una mujer desconocida, una
-mujer pequena, delgada, rubia, elegantisima.
+Subieron la escalera, el criado levantó una cortina y pasó Zalacaín.
+Sentada en un sofá y hojeando un álbum, había una mujer desconocida, una
+mujer pequeña, delgada, rubia, elegantísima.
 
---Perdone usted, senora--dijo Martin--, creo que usted y yo somos
-victimas de una equivocacion...
+--Perdone usted, señora--dijo Martín--, creo que usted y yo somos
+víctimas de una equivocación...
 
---Yo, por mi parte, no--contesto ella riendo, con una risa zumbona.
+--Yo, por mi parte, no--contestó ella riendo, con una risa zumbona.
 
---?Quiere algo mas la senora?--pregunto el criado.
+--¿Quiere algo más la señora?--preguntó el criado.
 
 --No, pueden ustedes retirarse.
 
-Martin quedo asombrado. El criado echo la pesada cortina y quedaron
+Martín quedó asombrado. El criado echó la pesada cortina y quedaron
 solos.
 
---Martin--dijo la dama, levantandose de su silla y poniendole las manos
-pequenas en sus hombros--. ?No te acuerdas de mi?
+--Martín--dijo la dama, levantándose de su silla y poniéndole las manos
+pequeñas en sus hombros--. ¿No te acuerdas de mí?
 
 --No, la verdad.
 
 --Soy Linda.
 
---?Que Linda?
+--¿Qué Linda?
 
---Linda, la que estuvo en Urbia cuando fue el domador, y murio tu madre.
-?No te acuerdas?
+--Linda, la que estuvo en Urbia cuando fué el domador, y murió tu madre.
+¿No te acuerdas?
 
---?Usted es Linda?
+--¿Usted es Linda?
 
---iOh, no me hables de usted! Si, yo soy Linda. He sabido como habias
-venido a Logrono y he mandado que te buscaran.
+--¡Oh, no me hables de usted! Sí, yo soy Linda. He sabido como habías
+venido a Logroño y he mandado que te buscaran.
 
---?De manera que tu eres aquella chiquilla que jugaba con el oso?
+--¿De manera que tú eres aquella chiquilla que jugaba con el oso?
 
 --La misma.
 
---?Y me has conocido?
+--¿Y me has conocido?
 
---Si.
+--Sí.
 
 --Yo no te hubiera conocido.
 
---Habla, cuenta de tu vida. Tu no sabes la gana que tenia de verte. Eres
-el unico hombre por quien me han pegado. ?Te acuerdas? Para mi
-constituias toda mi familia. ?Que hara? ?Donde estara Martin? pensaba.
+--Habla, cuenta de tu vida. Tú no sabes la gana que tenía de verte. Eres
+el único hombre por quien me han pegado. ¿Te acuerdas? Para mí
+constituías toda mi familia. ¿Qué hará? ¿Dónde estará Martín? pensaba.
 
---?De veras? iQue extrano! iHace de esto tanto tiempo! Y somos jovenes
+--¿De veras? ¡Que extraño! ¡Hace de esto tanto tiempo! Y somos jóvenes
 los dos.
 
---iCuenta! iCuenta! ?Cual ha sido tu vida? ?Que has hecho por el mundo?
+--¡Cuenta! ¡Cuenta! ¿Cuál ha sido tu vida? ¿Qué has hecho por el mundo?
 
-Martin, emocionado, hablo de su vida, de sus aventuras. Luego, Linda
-conto las suyas, su existencia bohemia de volatinera, hasta que un senor
-rico le saco del circo y le brindo con su proteccion. Ahora este senor,
-titulo, con grandes posesiones en la Rioja, queria casarse con ella.
+Martín, emocionado, habló de su vida, de sus aventuras. Luego, Linda
+contó las suyas, su existencia bohemia de volatinera, hasta que un señor
+rico le sacó del circo y le brindó con su protección. Ahora este señor,
+título, con grandes posesiones en la Rioja, quería casarse con ella.
 
---?Y tu te vas a casar?--la pregunto Martin.
+--¿Y tú te vas a casar?--la preguntó Martín.
 
 --Claro.
 
---?De manera que dentro de poco seras una senora condesa o marquesa?
+--¿De manera que dentro de poco serás una señora condesa o marquesa?
 
---Si, marquesa, pero chico, esto no me entusiasma. He vivido siempre
-libre y ya las cadenas no son para mi, aunque sean de oro. Pero estas
-palido. ?Que te pasa?
+--Sí, marquesa, pero chico, esto no me entusiasma. He vivido siempre
+libre y ya las cadenas no son para mí, aunque sean de oro. Pero estás
+pálido. ¿Qué te pasa?
 
-Martin sentia un gran cansancio y le dolia el hombro. Linda, al saber
-que estaba herido, le obligo a quedarse alli.
+Martín sentía un gran cansancio y le dolía el hombro. Linda, al saber
+que estaba herido, le obligó a quedarse allí.
 
-Afortunadamente el rasguno no era grave y Zalacain curo pronto.
+Afortunadamente el rasguño no era grave y Zalacaín curó pronto.
 
-Al dia siguiente, Linda no le dejo salir; y al verse dominado por ella,
-por su suave encanto, encontro el herido que sus convalecencias eran mas
+Al día siguiente, Linda no le dejó salir; y al verse dominado por ella,
+por su suave encanto, encontró el herido que sus convalecencias eran más
 peligrosas para sus sentimientos que para su salud.
 
---Que le avisen a mi cunado donde estoy--dijo Martin varias veces a
+--Que le avisen a mi cuñado donde estoy--dijo Martín varias veces a
 Linda.
 
-Esta envio un criado a los hoteles, pero en ninguno daban noticias ni de
+Ésta envió un criado a los hoteles, pero en ninguno daban noticias ni de
 Bautista ni de Catalina.
 
 
 
 
-CAPITULO XIV
+CAPÍTULO XIV
 
-COMO ZALACAIN Y BAUTISTA URBIDE TOMARON LOS DOS SOLOS LA CIUDAD DE
+CÓMO ZALACAÍN Y BAUTISTA URBIDE TOMARON LOS DOS SOLOS LA CIUDAD DE
 LAGUARDIA OCUPADA POR LOS CARLISTAS.
 
 
-De conocer Martin la _Odisea_ es posible que hubiese tenido la
-pretension de comparar a Linda con la hechicera Circe y a si mismo con
-Ulises, pero como no habia leido el poema de Homero no se le ocurrio tal
-comparacion.
+De conocer Martín la _Odisea_ es posible que hubiese tenido la
+pretensión de comparar a Linda con la hechicera Circe y a sí mismo con
+Ulises, pero como no había leído el poema de Homero no se le ocurrió tal
+comparación.
 
-Si se le ocurrio varias veces que se estaba portando como un bellaco,
-pero Linda iera tan encantadora! iTenia por el tan grande entusiasmo! Le
-habia hecho olvidar a Catalina. Muchos dias maldecia de su barbarie,
-pero no se determinaba a marcharse. Decidio en su fuero interno que la
-culpa de todo era de Bautista y esta decision le tranquilizo.
+Sí se le ocurrió varias veces que se estaba portando como un bellaco,
+pero Linda ¡era tan encantadora! ¡Tenía por él tan grande entusiasmo! Le
+había hecho olvidar a Catalina. Muchos días maldecía de su barbarie,
+pero no se determinaba a marcharse. Decidió en su fuero interno que la
+culpa de todo era de Bautista y esta decisión le tranquilizó.
 
---?Donde se ha metido ese hombre?--se preguntaba.
+--¿Dónde se ha metido ese hombre?--se preguntaba.
 
-Una semana despues del encuentro con Linda, al pasar por los soportales
-de la calle principal de Logrono se encontro con Bautista que venia
-hacia el indiferente y tranquilo como de costumbre.
+Una semana después del encuentro con Linda, al pasar por los soportales
+de la calle principal de Logroño se encontró con Bautista que venía
+hacia él indiferente y tranquilo como de costumbre.
 
---?Pero donde estas?--exclamo Martin incomodado.
+--¿Pero dónde estás?--exclamó Martín incomodado.
 
---Eso te pregunto yo, ?donde estas?--contesto Bautista.
+--Eso te pregunto yo, ¿dónde estás?--contestó Bautista.
 
---?Y Catalina?
+--¿Y Catalina?
 
---iQue se yo! Yo crei que tu sabrias donde estaba, que os habiais
+--¡Qué sé yo! Yo creí que tú sabrías dónde estaba, que os habíais
 marchado los dos sin decirme nada.
 
---?De manera que no sabes?...
+--¿De manera que no sabes?...
 
 --Yo no.
 
---?Cuando hablaste tu con ella por ultima vez?
+--¿Cuándo hablaste tú con ella por última vez?
 
---El mismo dia de llegar aqui; hace ocho dias. Cuando tu te fuistes a
-comer a casa de la senora de Briones, Catalina, la monja y yo nos fuimos
-a la fonda. Paso el tiempo, paso el tiempo y tu no venias.--?Pero donde
-esta?--preguntaba Catalina.--?Que se yo?--la decia. A la una de la
-manana, viendo que tu no venias, yo me fui a la cama. Estaba molido. Me
-dormi y me desperte muy tarde y me encontre con que la monja y Catalina
-se habian marchado y tu no habias venido. Espere un dia, y como no
-aparecia nadie, crei que os habiais marchado y me fui a Bayona y deje
-las letras en casa de Levi-Alvarez. Luego tu hermana empezo a
-decirme:--?Pero donde estara Martin? ?Le ha pasado algo?--Escribi a
-Briones y me contesto que estabas aqui escandalizando el pueblo, y por
+--El mismo día de llegar aquí; hace ocho días. Cuando tú te fuistes a
+comer a casa de la señora de Briones, Catalina, la monja y yo nos fuimos
+a la fonda. Pasó el tiempo, pasó el tiempo y tú no venías.--¿Pero dónde
+está?--preguntaba Catalina.--¿Qué sé yo?--la decía. A la una de la
+mañana, viendo que tú no venías, yo me fuí a la cama. Estaba molido. Me
+dormí y me desperté muy tarde y me encontré con que la monja y Catalina
+se habían marchado y tú no habías venido. Esperé un día, y como no
+aparecía nadie, creí que os habíais marchado y me fuí a Bayona y dejé
+las letras en casa de Levi-Alvarez. Luego tu hermana empezó a
+decirme:--¿Pero dónde estará Martín? ¿Le ha pasado algo?--Escribí a
+Briones y me contestó que estabas aquí escandalizando el pueblo, y por
 eso he venido.
 
---Si, la verdad es que yo tengo la culpa--dijo Martin--. ?Pero donde
-puede estar Catalina? ?Habra seguido a la monja?
+--Sí, la verdad es que yo tengo la culpa--dijo Martín--. ¿Pero dónde
+puede estar Catalina? ¿Habrá seguido a la monja?
 
---Es lo mas probable.
+--Es lo más probable.
 
-Martin, al encontrarse con Bautista y hablar con el, se sintio fuera de
-la influencia del hechizo de Linda y comenzo a hacer indagaciones con
+Martín, al encontrarse con Bautista y hablar con él, se sintió fuera de
+la influencia del hechizo de Linda y comenzó a hacer indagaciones con
 una actividad extraordinaria. De las dos viajeras del hotel, una se
-habia marchado por la estacion; la otra, la monja, habia partido en un
+había marchado por la estación; la otra, la monja, había partido en un
 coche hacia Laguardia.
 
-Martin y Bautista supusieron si las dos estarian refugiadas en
-Laguardia. Sin duda la monja recupero su ascendiente sobre Catalina en
-vista de la falta de Martin y la convencio de que volviera con ella al
+Martín y Bautista supusieron si las dos estarían refugiadas en
+Laguardia. Sin duda la monja recuperó su ascendiente sobre Catalina en
+vista de la falta de Martín y la convenció de que volviera con ella al
 convento.
 
-Era imposible que Catalina encontrandose en otro lado no hubiese
+Era imposible que Catalina encontrándose en otro lado no hubiese
 escrito.
 
 Se dedicaron a seguir la pista de la monja. Averiguaron en la venta de
-Asa que dias antes un coche con la monja intento pasar a Laguardia, pero
-al ver la carretera ocupada por el ejercito liberal sitiando la ciudad y
-atacando las trincheras retrocedio. Suponian los de la venta que la
-monja habria vuelto a Logrono, a no ser que intentara entrar en la
-ciudad sitiada, tomando en caballeria el camino de Lanciego por Oyon y
+Asa que días antes un coche con la monja intentó pasar a Laguardia, pero
+al ver la carretera ocupada por el ejército liberal sitiando la ciudad y
+atacando las trincheras retrocedió. Suponían los de la venta que la
+monja habría vuelto a Logroño, a no ser que intentara entrar en la
+ciudad sitiada, tomando en caballería el camino de Lanciego por Oyón y
 Venaspre.
 
-Marcharon a Oyon y luego a Yecora, pero nadie les pudo dar razon. Los
+Marcharon a Oyón y luego a Yécora, pero nadie les pudo dar razón. Los
 dos pueblos estaban casi abandonados.
 
-Desde aquel camino alto se veia Laguardia rodeada de su muralla en medio
+Desde aquel camino alto se veía Laguardia rodeada de su muralla en medio
 de una explanada enorme. Hacia el Norte limitaba esta explanada como una
-muralla gris la cordillera de Cantabria; hacia el Sur podia extenderse
+muralla gris la cordillera de Cantabria; hacia el Sur podía extenderse
 la vista hasta los montes de Pancorbo.
 
-En este poligono amarillento de Laguardia no se destacaban ni tejados ni
-campanarios, no parecia aquello un pueblo, sino mas bien una fortaleza.
-En un extremo de la muralla se erguia un torreon envuelto en aquel
+En este polígono amarillento de Laguardia no se destacaban ni tejados ni
+campanarios, no parecía aquello un pueblo, sino más bien una fortaleza.
+En un extremo de la muralla se erguía un torreón envuelto en aquel
 instante en una densa humareda.
 
-Al salir de Yecora, un hombre famelico y destrozado les salio al
-encuentro y hablo con ellos. Les conto que los carlistas iban a
-abandonar Laguardia un dia u otro. Le pregunto Martin si era posible
+Al salir de Yécora, un hombre famélico y destrozado les salió al
+encuentro y habló con ellos. Les contó que los carlistas iban a
+abandonar Laguardia un día u otro. Le preguntó Martín si era posible
 entrar en la ciudad.
 
 --Por la puerta es imposible--dijo el hombre--, pero yo he entrado
 subiendo por unos agujeros que hay en el muro entre la Puerta de Paganos
 y la de Mercadal.
 
---?Pero y los centinelas?
+--¿Pero y los centinelas?
 
 --No suelen haber muchas veces.
 
-Bajaron Martin y Bautista por una senda desde Lanciego a la carretera y
-llegaron al sitio en donde acampaba el ejercito liberal. La tropa,
-despues de canonear las trincheras carlistas, avanzaba, y el enemigo
-abandonaba sus posiciones refugiandose en los muros.
+Bajaron Martín y Bautista por una senda desde Lanciego a la carretera y
+llegaron al sitio en donde acampaba el ejército liberal. La tropa,
+después de cañonear las trincheras carlistas, avanzaba, y el enemigo
+abandonaba sus posiciones refugiándose en los muros.
 
-El regimiento del capitan Briones se encontraba en las avanzadas. Martin
-pregunto por el y lo encontro. Briones presento a Zalacain y a Bautista
-a algunos oficiales companeros suyos, y por la noche tuvieron una
-partida de cartas y jugaron y bebieron. Gano Martin, y uno de los
-companeros de Briones, un teniente aragones que habia perdido toda su
-paga, comenzo, para vengarse, a hablar mal de los vascongados, y
-Zalacain y el se encarzaron en una estupida discusion de amor propio
-regional, de esas tan frecuentes en Espana.
+El regimiento del capitán Briones se encontraba en las avanzadas. Martín
+preguntó por él y lo encontró. Briones presentó a Zalacaín y a Bautista
+a algunos oficiales compañeros suyos, y por la noche tuvieron una
+partida de cartas y jugaron y bebieron. Ganó Martín, y uno de los
+compañeros de Briones, un teniente aragonés que había perdido toda su
+paga, comenzó, para vengarse, a hablar mal de los vascongados, y
+Zalacaín y él se encarzaron en una estúpida discusión de amor propio
+regional, de esas tan frecuentes en España.
 
-Decia el teniente aragones que los vascongados eran tan torpes, que un
-capitan carlista, para ensenarles a marchar a la derecha y a la
-izquierda elevaba un manojo de paja en la mano y les decia, por ejemplo:
-iDoble derecha! y en seguida pasaba el manojo a la derecha y decia.
-iHacia el lado de la paja! Ademas, segun el oficial, los vascongados
-eran unos poltrones que no se querian batir mas que estando cerca de sus
+Decía el teniente aragonés que los vascongados eran tan torpes, que un
+capitán carlista, para enseñarles a marchar a la derecha y a la
+izquierda elevaba un manojo de paja en la mano y les decía, por ejemplo:
+¡Doble derecha! y en seguida pasaba el manojo a la derecha y decía.
+¡Hacia el lado de la paja! Además, según el oficial, los vascongados
+eran unos poltrones que no se querían batir más que estando cerca de sus
 casas.
 
-Martin se estaba amoscando, y dijo al oficial:
+Martín se estaba amoscando, y dijo al oficial:
 
---Yo no se como seran los vascongados, pero lo que le puedo decir a
-usted es que lo que usted o cualquiera de estos senores haga, lo hago yo
+--Yo no sé como serán los vascongados, pero lo que le puedo decir a
+usted es que lo que usted o cualquiera de estos señores haga, lo hago yo
 por debajo de la pierna.
 
---Y yo--dijo Bautista, colocandose al lado de Martin.
+--Y yo--dijo Bautista, colocándose al lado de Martín.
 
 --Vamos, hombre--dijo Briones--. No sean ustedes tontos. El teniente
-Ramirez no ha querido ofenderles.
+Ramírez no ha querido ofenderles.
 
---No nos ha llamado mas que estupidos y cobardes--dijo riendo Martin--.
-Claro que a mi no me importa nada lo que este senor opine de nosotros,
-pero me gustaria encontrar una ocasion para probarle que esta
+--No nos ha llamado más que estúpidos y cobardes--dijo riendo Martín--.
+Claro que a mí no me importa nada lo que este señor opine de nosotros,
+pero me gustaría encontrar una ocasión para probarle que está
 equivocado.
 
 --Salga usted--dijo el teniente.
 
---Cuando usted quiera--contesto Martin.
+--Cuando usted quiera--contestó Martín.
 
---No--replico Briones--, yo lo prohibo. El teniente Ramirez quedara
+--No--replicó Briones--, yo lo prohibo. El teniente Ramírez quedará
 arrestado.
 
---Esta bien--dijo refunfunando el aludido.
+--Está bien--dijo refunfuñando el aludido.
 
---Si estos senores quieren un poco de jaleo, cuando tomemos Laguardia
-pueden venir con nosotros--advirtio el oficial.
+--Si estos señores quieren un poco de jaleo, cuando tomemos Laguardia
+pueden venir con nosotros--advirtió el oficial.
 
-Martin creyo ver alguna ironia en las palabras del militar y replico
+Martín creyó ver alguna ironía en las palabras del militar y replicó
 burlonamente:
 
---iCuando tomen ustedes Laguardia! No, hombre. Eso no es nada para
-nosotros. Yo voy solo a Laguardia y la tomo, o a lo mas con mi cunado
+--¡Cuando tomen ustedes Laguardia! No, hombre. Eso no es nada para
+nosotros. Yo voy solo a Laguardia y la tomo, o a lo más con mi cuñado
 Bautista.
 
-Se echaron todos a reir de la fanfarronada, pero viendo que Martin
-insistia, diciendo que aquella misma noche iban a entrar en la ciudad
-sitiada, pensaron que Martin estaba loco. Briones, que le conocia,
-trato de disuadirse de hacer esta barbaridad, pero Zalacain no se
-convencio.
+Se echaron todos a reir de la fanfarronada, pero viendo que Martín
+insistía, diciendo que aquella misma noche iban a entrar en la ciudad
+sitiada, pensaron que Martín estaba loco. Briones, que le conocía,
+trató de disuadirse de hacer esta barbaridad, pero Zalacaín no se
+convenció.
 
---?Ven ustedes este panuelo blanco?--dijo--. Manana al amanecer lo veran
-ustedes en este palo flotando sobre Laguardia. ?Habra por aqui una
+--¿Ven ustedes este pañuelo blanco?--dijo--. Mañana al amanecer lo verán
+ustedes en este palo flotando sobre Laguardia. ¿Habrá por aquí una
 cuerda?
 
-Uno de los oficiales jovenes trajo una cuerda, y Martin y Bautista, sin
+Uno de los oficiales jóvenes trajo una cuerda, y Martín y Bautista, sin
 hacer caso de las palabras de Briones, avanzaron por la carretera.
 
-El frio de la noche les sereno, y Martin y su cunado se miraron algo
-extranados. Se dice que los antiguos godos tenian la costumbre de
+El frío de la noche les serenó, y Martín y su cuñado se miraron algo
+extrañados. Se dice que los antiguos godos tenían la costumbre de
 resolver sus asuntos dos veces, una borrachos y otra serenos. De esta
-manera unian en sus decisiones el atrevimiento y la prudencia. Martin
-sintio no haber seguido esta prudente tactica goda, pero se callo y dio
+manera unían en sus decisiones el atrevimiento y la prudencia. Martín
+sintió no haber seguido esta prudente táctica goda, pero se calló y dió
 a entender que se encontraba en uno de los momentos regocijados de su
 vida.
 
---?Que? ?vamos a ir?--pregunto Bautista.
+--¿Qué? ¿vamos a ir?--preguntó Bautista.
 
 --Probaremos.
 
 Se acercaron a Laguardia. A poca distancia de sus muros tomaron a la
 izquierda, por la Senda de las Damas, hasta salir al camino de El Ciego
-y cruzando este se acercaron a la altura en donde se asienta la ciudad.
-Dejaron a un lado el cementerio y llegaron a un paseo con arboles que
+y cruzando éste se acercaron a la altura en donde se asienta la ciudad.
+Dejaron a un lado el cementerio y llegaron a un paseo con árboles que
 circunda el pueblo.
 
-Debian de encontrarse en el punto indicado por el hombre de Yecora,
+Debían de encontrarse en el punto indicado por el hombre de Yécora,
 entre la puerta de Mercadal y la de Paganos.
 
-Efectivamente, el sitio era aquel. Distinguieron los agujeros en el
-muro que servia de escalera; los de abajo estaban tapados.
+Efectivamente, el sitio era aquél. Distinguieron los agujeros en el
+muro que servía de escalera; los de abajo estaban tapados.
 
---Podriamos abrir estos boquetes--dijo Bautista.
+--Podríamos abrir estos boquetes--dijo Bautista.
 
---iHum! Tardariamos mucho--contesto Martin--. Subete encima de mi a ver
+--¡Hum! Tardaríamos mucho--contestó Martín--. Súbete encima de mí a ver
 si llegas. Toma la cuerda.
 
-Bautista se encaramo sobre los hombros de Martin, y luego, viendo que se
-podia subir sin dificultad, escalo la muralla hasta lo alto. Asomo la
-cabeza y viendo que no habia vigilancia salto encima.
+Bautista se encaramó sobre los hombros de Martín, y luego, viendo que se
+podía subir sin dificultad, escaló la muralla hasta lo alto. Asomó la
+cabeza y viendo que no había vigilancia saltó encima.
 
---?Nadie?--dijo Martin.
+--¿Nadie?--dijo Martín.
 
 --Nadie.
 
-Sujeto Bautista la cuerda con un lazo corredizo en un angulo de un
-torreon, v subio Martin a pulso, con el palo en los dientes.
+Sujetó Bautista la cuerda con un lazo corredizo en un ángulo de un
+torreón, v subió Martín a pulso, con el palo en los dientes.
 
 --Se deslizaron los dos por el borde de la muralla, hasta enfilar una
-calleja. Ni guardia, ni centinela; no se veia ni se oia nada. El pueblo
-parecia muerto.
+calleja. Ni guardia, ni centinela; no se veía ni se oía nada. El pueblo
+parecía muerto.
 
---?Que pasara aqui?--se dijo Martin.
+--¿Qué pasará aquí?--se dijo Martín.
 
 Se acercaron al otro extremo de la ciudad. El mismo silencio. Nadie.
-Indudablemente, los carlistas habian huido de Laguardia.
+Indudablemente, los carlistas habían huído de Laguardia.
 
-Martin y Bautista adquirieron el convencimiento de que el pueblo estaba
+Martín y Bautista adquirieron el convencimiento de que el pueblo estaba
 abandonado. Avanzaron con esta confianza hasta cerca de la puerta del
-Mercadal; y enfrente del cementerio, hacia la carretera de Logrono,
-sujetaron entre dos piedras el palo y ataron en su punta el panuelo
+Mercadal; y enfrente del cementerio, hacia la carretera de Logroño,
+sujetaron entre dos piedras el palo y ataron en su punta el pañuelo
 blanco.
 
-Hecho esto, volvieron deprisa al punto por donde habian subido. La
-cuerda seguia en el mismo sitio. Amanecia. Desde alla arriba se veia una
-enorme extension de campo. La luz comenzaba a indicar las sombras de los
-vinedos y de los olivares. El viento fresco anunciaba la proximidad del
-dia.
+Hecho esto, volvieron deprisa al punto por donde habían subido. La
+cuerda seguía en el mismo sitio. Amanecía. Desde allá arriba se veía una
+enorme extensión de campo. La luz comenzaba a indicar las sombras de los
+viñedos y de los olivares. El viento fresco anunciaba la proximidad del
+día.
 
---Bueno, baja--dijo Martin--. Yo sujetare la cuerda.
+--Bueno, baja--dijo Martín--. Yo sujetaré la cuerda.
 
---No, baja tu--replico Bautista.
+--No, baja tú--replicó Bautista.
 
---Vamos, no seas imbecil.
+--Vamos, no seas imbécil.
 
---?Quien vive?--grito una voz en aquel mismo momento.
+--¿Quién vive?--gritó una voz en aquel mismo momento.
 
-Ninguno de los dos contesto. Bautista comenzo a bajar despacio. Martin
-se tendio en la muralla.
+Ninguno de los dos contestó. Bautista comenzó a bajar despacio. Martín
+se tendió en la muralla.
 
---?Quien vive?--volvio a gritar el centinela.
+--¿Quién vive?--volvió a gritar el centinela.
 
-Martin se aplasto en el suelo todo lo que pudo; sono un disparo y una
-bala paso por encima de su cabeza. Afortunadamente, el centinela estaba
-lejos. Cuando Bautista descendio, Martin comenzo a bajar. Tuvo la suerte
+Martín se aplastó en el suelo todo lo que pudo; sonó un disparo y una
+bala pasó por encima de su cabeza. Afortunadamente, el centinela estaba
+lejos. Cuando Bautista descendió, Martín comenzó a bajar. Tuvo la suerte
 de que la cuerda no se deslizase. Bautista le esperaba con el alma en un
-hilo. Habia movimiento en la muralla; cuatro o cinco hombres se asomaron
-a ella, y Martin y Bautista se escondieron tras de los arboles del paseo
-que circundaba el pueblo. Lo malo era que aclaraba cada vez mas. Fueron
-pasando de arbol a arbol, hasta llegar cerca del cementerio.
+hilo. Había movimiento en la muralla; cuatro o cinco hombres se asomaron
+a ella, y Martín y Bautista se escondieron tras de los árboles del paseo
+que circundaba el pueblo. Lo malo era que aclaraba cada vez más. Fueron
+pasando de árbol a árbol, hasta llegar cerca del cementerio.
 
---Ahora no hay mas remedio que echar a correr a la descubierta--dijo
-Martin--. A la una..., a las dos... Vamos alla.
+--Ahora no hay más remedio que echar a correr a la descubierta--dijo
+Martín--. A la una..., a las dos... Vamos allá.
 
 Echaron los dos a correr. Sonaron varios tiros. Ambos llegaron ilesos al
-cementerio. De aqui ganaron pronto el camino de Logrono. Ya fuera de
-peligro, miraron hacia atras. El panuelo seguia en la muralla ondeando
-al viento. Briones y sus amigos recibieron a Martin y a Bautista como a
-heroes.
+cementerio. De aquí ganaron pronto el camino de Logroño. Ya fuera de
+peligro, miraron hacia atrás. El pañuelo seguía en la muralla ondeando
+al viento. Briones y sus amigos recibieron a Martín y a Bautista como a
+héroes.
 
-Al dia siguiente, los carlistas abandonaron Laguardia y se refugiaron en
-Penacerrada. La poblacion enarbolo bandera de parlamento; y el ejercito,
+Al día siguiente, los carlistas abandonaron Laguardia y se refugiaron en
+Peñacerrada. La población enarboló bandera de parlamento; y el ejército,
 con el general al frente, entraba en la ciudad.
 
-Por mas que Martin y Bautista preguntaron en todas las casas, no
+Por más que Martín y Bautista preguntaron en todas las casas, no
 encontraron a Catalina.
 
 
@@ -6269,847 +6121,850 @@ encontraron a Catalina.
 
 LIBRO TERCERO
 
-Las ultimas aventuras
+Las últimas aventuras
 
 
 
 
-CAPITULO PRIMERO
+CAPÍTULO PRIMERO
 
-LOS RECIEN CASADOS ESTAN CONTENTOS
+LOS RECIÉN CASADOS ESTÁN CONTENTOS
 
 
-Catalina no fue inflexible. Pocos dias despues, Martin recibio una carta
-de su hermana. Decia la Ignacia que Catalina estaba en su casa, en Zaro,
-desde hacia algunos dias. Al principio no habia querido oir hablar de
-Martin, pero ahora le perdonaba y le esperaba.
+Catalina no fué inflexible. Pocos días después, Martín recibió una carta
+de su hermana. Decía la Ignacia que Catalina estaba en su casa, en Zaro,
+desde hacía algunos días. Al principio no había querido oir hablar de
+Martín, pero ahora le perdonaba y le esperaba.
 
-Martin y Bautista se presentaron en Zaro inmediatamente, y los novios se
+Martín y Bautista se presentaron en Zaro inmediatamente, y los novios se
 reconciliaron.
 
-Se preparo la boda. iQue paz se disfrutaba alli, mientras se mataban en
-Espana! La gente trabajaba en el campo. Los domingos, despues de la
-misa, los aldeanos endomingados, con la chaqueta al hombro, se reunian
-en la sidreria y en el juego de pelota; las mujeres iban a la iglesia,
-con un capuchon negro, que rodeaba su cabeza. Catalina cantaba en el
-coro y Martin la oia, como en la infancia, cuando en la iglesia de Urbia
+Se preparó la boda. ¡Qué paz se disfrutaba allí, mientras se mataban en
+España! La gente trabajaba en el campo. Los domingos, después de la
+misa, los aldeanos endomingados, con la chaqueta al hombro, se reunían
+en la sidrería y en el juego de pelota; las mujeres iban a la iglesia,
+con un capuchón negro, que rodeaba su cabeza. Catalina cantaba en el
+coro y Martín la oía, como en la infancia, cuando en la iglesia de Urbia
 entonaba el Aleluya.
 
-Se celebro la boda, con la posible solemnidad, en la iglesia de Zaro y
+Se celebró la boda, con la posible solemnidad, en la iglesia de Zaro y
 luego la fiesta en la casa de Bautista.
 
-Hacia todavia frio, y los aldeanos amigos se reunieron en la cocina de
+Hacía todavía frío, y los aldeanos amigos se reunieron en la cocina de
 la casa, que era grande, hermosa y limpia. En la enorme chimenea redonda
-se echaron montones de lena, y los invitados cantaron y bebieron hasta
+se echaron montones de leña, y los invitados cantaron y bebieron hasta
 bien entrada la noche, al resplandor de las llamas. Los padres de
 Bautista, dos viejecitos arrugados, que hablaban solo vascuence,
-cantaron una cancion monotona de su tiempo, y Bautista lucio su voz y su
-repertorio completo y canto una cancion en honor de los novios.
+cantaron una canción monótona de su tiempo, y Bautista lució su voz y su
+repertorio completo y cantó una canción en honor de los novios.
 
         Ezcon berriyac
-        pozquidac daude
-        pozquidac daude
+        pozquidac daudé
+        pozquidac daudé
         eguin diralaco gaur
-        alcarren jabe
+        alcarren jabé
         clizan.
 
-(Los recien casados estan muy alegres, porque hoy se han hecho duenos,
+(Los recién casados están muy alegres, porque hoy se han hecho dueños,
 uno de otro, en la iglesia.)
 
-La fiesta acabo, con la mayor alegria, a la media noche, en que se
+La fiesta acabó, con la mayor alegría, a la media noche, en que se
 retiraron todos.
 
-Pasada la luna de miel, Martin volvio a las andadas. No paraba, iba y
-venia de Espana a Francia, sin poder reposar.
+Pasada la luna de miel, Martín volvió a las andadas. No paraba, iba y
+venía de España a Francia, sin poder reposar.
 
-Catalina deseaba ardientemente que acabara la guerra e intentaba
-retener a Martin a su lado.
+Catalina deseaba ardientemente que acabara la guerra é intentaba
+retener a Martín a su lado.
 
---Pero, ?que quieres mas?--le decia--.?No tienes ya bastante dinero?
-?Para que exponerte de nuevo?
+--Pero, ¿qué quieres más?--le decía--.¿No tienes ya bastante dinero?
+¿Para qué exponerte de nuevo?
 
---Si no me expongo--replicaba Martin.
+--Si no me expongo--replicaba Martín.
 
-Pero no era verdad, tenia ambicion, amor al peligro y una confianza
+Pero no era verdad, tenía ambición, amor al peligro y una confianza
 ciega en su estrella. La vida sedentaria le irritaba.
 
-Martin y Bautista dejaban solas a las dos mujeres y se iban a Espana. Al
-ano de casada, Catalina tuvo un hijo, al que llamaron Jose Miguel,
-recordando Martin la recomendacion del viejo Tellagorri.
+Martín y Bautista dejaban solas a las dos mujeres y se iban a España. Al
+año de casada, Catalina tuvo un hijo, al que llamaron José Miguel,
+recordando Martín la recomendación del viejo Tellagorri.
 
 
 
 
-CAPITULO II
+CAPÍTULO II
 
-EN EL CUAL SE INICIA LA "DESHECHA"
+EN EL CUAL SE INICIA LA «DESHECHA»
 
 
-Con la proclamacion de la monarquia en Espana, comenzo el deshielo en el
-campo carlista. La batalla de Lacar, perdida de una manera ridicula por
-el ejercito regular en presencia del nuevo rey, dio alientos a los
-carlistas, pero a pesar del triunfo y del botin la causa del
-Pretendiente iba de capa caida.
+Con la proclamación de la monarquía en España, comenzó el deshielo en el
+campo carlista. La batalla de Lácar, perdida de una manera ridícula por
+el ejército regular en presencia del nuevo rey, dió alientos a los
+carlistas, pero a pesar del triunfo y del botín la causa del
+Pretendiente iba de capa caída.
 
-La batalla de Lacar no hizo mas que enriquecer el repertorio de las
-canciones de la guerra con una copla que mas que para soldados parecia
-escrita para el coro de senoras de una zarzuela, y que decia asi:
+La batalla de Lácar no hizo más que enriquecer el repertorio de las
+canciones de la guerra con una copla que más que para soldados parecía
+escrita para el coro de señoras de una zarzuela, y que decía así:
 
-        En Lacar, chiquillo,
+        En Lácar, chiquillo,
         Te viste en un tris,
         Si don Carlos te da con la bota
         Como una pelota,
-        Te envia a Paris.
+        Te envía a París.
 
-Era dificil, al oir esta cancion, no pensar en unas cuantas coristas
+Era difícil, al oir esta canción, no pensar en unas cuantas coristas
 balanceando voluptuosamente las caderas.
 
-Los carlistas hablaban ya de traicion. Con el fracaso del sitio de Irun
+Los carlistas hablaban ya de traición. Con el fracaso del sitio de Irún
 y con la retirada de don Carlos, los curas navarros y vascongados
-empezaron a dudar del triunfo de la causa. Con la proclamacion de
-Sagunto, la desconfianza cundio por todas partes.
+empezaron a dudar del triunfo de la causa. Con la proclamación de
+Sagunto, la desconfianza cundió por todas partes.
 
---Son primos y ellos se entienden--decian los desconfiados, que eran
-legion.
+--Son primos y ellos se entienden--decían los desconfiados, que eran
+legión.
 
-Algunos que habian oido hablar de un don Alfonso, hermano de don Carlos,
-creian que a este don Alfonso le habian hecho rey.
+Algunos que habían oído hablar de un don Alfonso, hermano de don Carlos,
+creían que a este don Alfonso le habían hecho rey.
 
-Los ambiciosos de los pueblos veian que todas las clases ricas se
-inclinaban a favor de la monarquia liberal.
+Los ambiciosos de los pueblos veían que todas las clases ricas se
+inclinaban a favor de la monarquía liberal.
 
-Los generales alfonsinos, despues de hecho su agosto y ascendido en su
+Los generales alfonsinos, después de hecho su agosto y ascendido en su
 carrera todo lo posible, encontraban que era una estupidez continuar la
-guerra durante mas tiempo; habian matado la republica, que ciertamente
-por estolida merecia la muerte; el nuevo gobierno les miraba como
-vencedores, pacificadores y heroes. iQue mas podian desear!
+guerra durante más tiempo; habían matado la república, que ciertamente
+por estólida merecía la muerte; el nuevo gobierno les miraba como
+vencedores, pacificadores y héroes. ¡Qué más podían desear!
 
-En el campo carlista comenzaba la _Deshecha_. Ya se podia andar por las
-carreteras sin peligro; el carlismo seguia por la fuerza de la inercia,
-defendido debilmente y atacado mas debilmente todavia. La unica arma que
-se blandia de veras era el dinero.
+En el campo carlista comenzaba la _Deshecha_. Ya se podía andar por las
+carreteras sin peligro; el carlismo seguía por la fuerza de la inercia,
+defendido débilmente y atacado más débilmente todavía. La única arma que
+se blandía de veras era el dinero.
 
-Martin, viendo que no era dificil recorrer los caminos, tomo su
-cochecito y se dirigio hacia Urbia una manana de invierno.
+Martín, viendo que no era difícil recorrer los caminos, tomó su
+cochecito y se dirigió hacia Urbia una mañana de invierno.
 
-Todos los fuertes permanecian silenciosos, mudas las trincheras
-carlistas, ni una detonacion, ni una humareda cruzaban el aire. La nieve
-cubria el campo con su mortaja blanca bajo el cielo entoldado y plomizo.
+Todos los fuertes permanecían silenciosos, mudas las trincheras
+carlistas, ni una detonación, ni una humareda cruzaban el aire. La nieve
+cubría el campo con su mortaja blanca bajo el cielo entoldado y plomizo.
 
-Antes de llegar a Urbia, a un lado y a otro, se veian casas de campo
+Antes de llegar a Urbia, a un lado y a otro, se veían casas de campo
 derrumbadas, fachadas con las ventanas tapiadas y rellenas de paja,
-arboles con las ramas rotas, zanjas y parapetos por todas partes.
+árboles con las ramas rotas, zanjas y parapetos por todas partes.
 
-Martin entro en Urbia. La casa de Catalina estaba destrozada; con los
+Martín entró en Urbia. La casa de Catalina estaba destrozada; con los
 techos atravesados por las granadas, las puertas y ventanas cerradas
-hermeticamente. Ofrecia el hermoso caseron un aspecto lamentable; en la
-huerta abandonada, las lilas mostraban sus ramas rotas, y una de las mas
-grandes de un magnifico tilo, desgajada, llegaba hasta el suelo. Los
-rosales trepadores, antes tan lozanos, se veian marchitos.
+herméticamente. Ofrecía el hermoso caserón un aspecto lamentable; en la
+huerta abandonada, las lilas mostraban sus ramas rotas, y una de las más
+grandes de un magnífico tilo, desgajada, llegaba hasta el suelo. Los
+rosales trepadores, antes tan lozanos, se veían marchitos.
 
-Subio Martin por su calle a ver la casa en donde nacio.
+Subió Martín por su calle a ver la casa en donde nació.
 
-La escuela estaba cerrada; por los cristales empolvados se veian los
+La escuela estaba cerrada; por los cristales empolvados se veían los
 cartelones con letras grandes y los mapas colgados de las paredes. Cerca
-del caserio de Zalacain habia una viga de madera, de la que colgaba una
+del caserío de Zalacaín había una viga de madera, de la que colgaba una
 campana.
 
---?Para que sirve esto?--pregunto a un mendigo que iba de puerta en
+--¿Para qué sirve esto?--preguntó a un mendigo que iba de puerta en
 puerta.
 
-Era para el vigia. Cuando notaba un fogonazo tocaba la campana para
+Era para el vigía. Cuando notaba un fogonazo tocaba la campana para
 avisar a la gente de la parte baja.
 
-Entro Martin en el caserio Zalacain. El tejado no existia; solo quedaba
-un rincon de la antigua cocina con cubierta. Bajo este techo, entre los
-escombros, habia un hombre sentado escribiendo y un chiquillo ocupado en
+Entró Martín en el caserío Zalacaín. El tejado no existía; sólo quedaba
+un rincón de la antigua cocina con cubierta. Bajo este techo, entre los
+escombros, había un hombre sentado escribiendo y un chiquillo ocupado en
 cuidar varios pucheros.
 
---?Quien vive aqui?--pregunto Martin.
+--¿Quién vive aquí?--preguntó Martín.
 
---Aqui vivo yo--contesto una voz.
+--Aquí vivo yo--contestó una voz.
 
-Martin quedo atonito. Era el extranjero. Al verse se estrecharon las
+Martín quedó atónito. Era el extranjero. Al verse se estrecharon las
 manos afectuosamente.
 
---iLo que dio usted que hablar en Estella!--dijo el extranjero--. iQue
-golpe aquel mas admirable! ?Como se escaparon ustedes?
+--¡Lo que dió usted que hablar en Estella!--dijo el extranjero--. ¡Qué
+golpe aquel más admirable! ¿Cómo se escaparon ustedes?
 
-Martin conto la historia de su escapatoria, y el periodista fue tomando
+Martín contó la historia de su escapatoria, y el periodista fué tomando
 notas.
 
---Puedo hacer una cronica admirable--dijo.
+--Puedo hacer una crónica admirable--dijo.
 
 Luego hablaron de la guerra.
 
---iPobre pais!--dijo el extranjero--. iCuanta brutalidad! iCuanto
-absurdo! ?Se acuerda usted del pobre Haussonville que conocimos en
+--¡Pobre país!--dijo el extranjero--. ¡Cuánta brutalidad! ¡Cuánto
+absurdo! ¿Se acuerda usted del pobre Haussonville que conocimos en
 Estella?
 
---Si.
+--Sí.
 
---Murio fusilado. ?Y del Corneta de Lasala y de Praschcu que fueron de
+--Murió fusilado. ¿Y del Corneta de Lasala y de Praschcu que fueron de
 los que nos persiguieron cerca de Hernani?
 
---Si.
+--Sí.
 
---Esos dos habian salvado al cabecilla Monserrat de la muerte. ?Sabe
-usted quien los ha fusilado?
+--Esos dos habían salvado al cabecilla Monserrat de la muerte. ¿Sabe
+usted quién los ha fusilado?
 
---?Pero los han fusilado?
+--¿Pero los han fusilado?
 
---Si, el mismo Monserrat, en Ormaiztegui.
+--Sí, el mismo Monserrat, en Ormaiztegui.
 
---iPobre gente!
+--¡Pobre gente!
 
---A otro, llamado Anchusa, de la partida del Cura, debia usted tambien
+--A otro, llamado Anchusa, de la partida del Cura, debía usted también
 conocer...
 
---Si, lo conocia.
+--Sí, lo conocía.
 
---A ese lo mando fusilar Lizarraga. Y al _Jabonero_, el lugarteniente
+--A ese lo mandó fusilar Lizárraga. Y al _Jabonero_, el lugarteniente
 del Cura...
 
---?Tambien lo fusilaron?
+--¿También lo fusilaron?
 
---Tambien. Al _Jabonero_ le debia el Cura la unica victoria que
-consiguio en Usurbil cuando defendieron una ermita contra los liberales;
-pero tenia celos de el y ademas creia que le hacia traicion, y lo mando
+--También. Al _Jabonero_ le debía el Cura la única victoria que
+consiguió en Usurbil cuando defendieron una ermita contra los liberales;
+pero tenía celos de él y además creía que le hacía traición, y lo mandó
 fusilar.
 
---Si esto sigue asi no vamos a quedar nadie.
+--Si esto sigue así no vamos a quedar nadie.
 
 --Afortunadamente ya ha comenzado la _Deshecha_ como dicen los
-aldeanos--contesto el extranjero--.?Y usted a que ha venido aqui?
+aldeanos--contestó el extranjero--.¿Y usted a qué ha venido aquí?
 
-Martin dijo que el era de Urbia, asi como su mujer, y conto sus
-aventuras desde el tiempo en que habia dejado de ver al extranjero.
+Martín dijo que él era de Urbia, así como su mujer, y contó sus
+aventuras desde el tiempo en que había dejado de ver al extranjero.
 Comieron juntos y por la tarde se despidieron.
 
---Todavia creo que nos volveremos a ver--dijo el extranjero.
+--Todavía creo que nos volveremos a ver--dijo el extranjero.
 
---Quien sabe. Es muy posible.
-
-
+--Quién sabe. Es muy posible.
 
 
-CAPITULO III
-
-EN DONDE MARTIN COMIENZA A TRABAJAR POR LA GLORIA
 
 
-En la epoca de las nieves, un general audaz que venia de muy lejos
-intento envolver a los carlistas por el lado del Pirineo, y saliendo de
-Pamplona avanzo por la carretera de Elizondo; pero al ver el alto de
-Velate defendido y atrincherado por los carlistas, se retiro hacia Engui
-y luego tomo por el puerto de Olaberri, proximo a la frontera, por entre
-bosques y sendas malisimas; y perdidos sus soldados en los bosques,
-llegaron despues de dos dias y tres noches al Baztan.
+CAPÍTULO III
+
+EN DONDE MARTÍN COMIENZA A TRABAJAR POR LA GLORIA
+
+
+En la época de las nieves, un general audaz que venía de muy lejos
+intentó envolver a los carlistas por el lado del Pirineo, y saliendo de
+Pamplona avanzó por la carretera de Elizondo; pero al ver el alto de
+Velate defendido y atrincherado por los carlistas, se retiró hacia Enguí
+y luego tomó por el puerto de Olaberri, próximo a la frontera, por entre
+bosques y sendas malísimas; y perdidos sus soldados en los bosques,
+llegaron después de dos días y tres noches al Baztán.
 
 La imprudencia era grande, pero aquel general tuvo suerte, porque si la
-terrible nevada que cayo al dia siguiente de estar en Elizondo cae
+terrible nevada que cayó al día siguiente de estar en Elizondo cae
 antes, hubieran quedado la mitad de las tropas entre la nieve.
 
-El general pidio viveres a Francia, y gracias a la ayuda del pais
-vecino, pudo dar de comer a su gente y preparar alojamiento. Martin y
-Bautista se hallaban en relacion con una casa de Bayona, y fueron a Anoa
+El general pidió víveres a Francia, y gracias a la ayuda del país
+vecino, pudo dar de comer a su gente y preparar alojamiento. Martín y
+Bautista se hallaban en relación con una casa de Bayona, y fueron a Añoa
 con sus carros.
 
-Anoa esta a un kilometro proximamente de la frontera, en donde se halla
-establecida la aduana espanola de Dancharinea.
+Añoa está a un kilómetro próximamente de la frontera, en donde se halla
+establecida la aduana española de Dancharinea.
 
-Aquel dia, una porcion de gente de la frontera francesa se asomo a Anoa.
-La carretera estaba atestada de carromatos, carretas y omnibus, que
-conducian al valle de Baztan para las tropas fardos de zapatos, sacos de
+Aquel día, una porción de gente de la frontera francesa se asomó a Añoa.
+La carretera estaba atestada de carromatos, carretas y ómnibus, que
+conducían al valle de Baztán para las tropas fardos de zapatos, sacos de
 pan, cajones de galleta de Burdeos, esparto para las camas, barriles de
 vino y de aguardiente.
 
-El camino estaba intransitable y lleno de barro. Ademas de todo aquel
-convoy de mercancias consignado al ejercito, hallabanse otros coches
-atiborrados de generos que algunos comerciantes de Bayona llevaban a ver
-si vendian al por menor.
+El camino estaba intransitable y lleno de barro. Además de todo aquel
+convoy de mercancías consignado al ejército, hallábanse otros coches
+atiborrados de géneros que algunos comerciantes de Bayona llevaban a ver
+si vendían al por menor.
 
-Habia tambien cerca del puente, sobre el riachuelo Ugarona, una porcion
+Había también cerca del puente, sobre el riachuelo Ugarona, una porción
 de cantineros con sus cestas, frascos y cachivaches.
 
-Martin con su mujer, y Bautista con la suya, se acercaron a Anoa y se
-alojaron en la venta. Catalina queria ver si obtenia noticias de su
+Martín con su mujer, y Bautista con la suya, se acercaron a Añoa y se
+alojaron en la venta. Catalina quería ver si obtenía noticias de su
 hermano.
 
 En la venta preguntaron a un muchacho desertor carlista, pero no supo
-darles ninguna razon de Carlos Ohando.
+darles ninguna razón de Carlos Ohando.
 
---Si no esta en Penaplata, ira camino de Burguete--les dijo.
+--Si no está en Peñaplata, irá camino de Burguete--les dijo.
 
-Se encontraban a la puerta de la venta Martin y Bautista, cuando paso,
-envuelto en su capote, Briones, el hermano de Rosita. Le saludo a Martin
-muy afectuoso y entro en la venta. Vestia uniforme de comandante y
+Se encontraban a la puerta de la venta Martín y Bautista, cuando pasó,
+envuelto en su capote, Briones, el hermano de Rosita. Le saludó a Martín
+muy afectuoso y entró en la venta. Vestía uniforme de comandante y
 llevaba cordones dorados como los ayudantes de generales.
 
---He hablado mucho de usted a mi general--le dijo a Martin.
+--He hablado mucho de usted a mi general--le dijo a Martín.
 
---?Si?
+--¿Sí?
 
---Ya lo creo. Tendria mucho gusto en conocer a usted. Le he contado sus
-aventuras. ?Quiere usted venir a saludarle? Tengo ahi un caballo de mi
+--Ya lo creo. Tendría mucho gusto en conocer a usted. Le he contado sus
+aventuras. ¿Quiere usted venir a saludarle? Tengo ahí un caballo de mi
 asistente.
 
---?Donde esta el general?
+--¿Dónde está el general?
 
---En Elizondo. ?Viene usted?
+--En Elizondo. ¿Viene usted?
 
 --Vamos.
 
-Advirtio Martin a su mujer que se marchaba a Elizondo; montaron Briones
-y Zalacain a caballo y charlando de muchas cosas llegaron a esta villa,
-centro del valle del Baztan. El general se alojaba en un palacio de la
+Advirtió Martín a su mujer que se marchaba a Elizondo; montaron Briones
+y Zalacaín a caballo y charlando de muchas cosas llegaron a esta villa,
+centro del valle del Baztán. El general se alojaba en un palacio de la
 plaza; a la puerta dos oficiales hablaban.
 
-Le hizo pasar Briones a Martin al cuarto en donde se encontraba el
-general. Este, sentado a una mesa donde tenia planos y papeles, fumaba
-un cigarro puro y discutia con varias personas.
+Le hizo pasar Briones a Martín al cuarto en donde se encontraba el
+general. Éste, sentado a una mesa donde tenía planos y papeles, fumaba
+un cigarro puro y discutía con varias personas.
 
-Presento Briones a Martin, y el general, despues de estrecharle la mano,
+Presentó Briones a Martín, y el general, después de estrecharle la mano,
 le dijo bruscamente:
 
 --Me ha contado Briones sus aventuras. Le felicito a usted.
 
 --Muchas gracias, mi general.
 
---?Conoce usted toda esta zona de mugas de la frontera que domina el
-valle del Baztan?
+--¿Conoce usted toda esta zona de mugas de la frontera que domina el
+valle del Baztán?
 
---Si, como mi propia mano. Creo que no habra otro que las conozca tan
+--Sí, como mi propia mano. Creo que no habrá otro que las conozca tan
 bien.
 
---?Sabe usted los caminos y las sendas?
+--¿Sabe usted los caminos y las sendas?
 
---No hay mas que sendas.
+--No hay más que sendas.
 
---?Hay sendero para subir a Penaplata por el lado de Zugarramurdi?
+--¿Hay sendero para subir a Peñaplata por el lado de Zugarramurdi?
 
 --Lo hay.
 
---?Pueden subir caballos?
+--¿Pueden subir caballos?
 
---Si, facilmente.
+--Sí, fácilmente.
 
-El general discutio con Briones y con el otro ayudante. El habia tenido
-el proyecto de cerrar la frontera e impedir la retirada a Francia del
-grueso del ejercito carlista, pero era imposible.
+El general discutió con Briones y con el otro ayudante. Él había tenido
+el proyecto de cerrar la frontera é impedir la retirada a Francia del
+grueso del ejército carlista, pero era imposible.
 
---Usted ?que ideas politicas tiene?--pregunto de pronto el general a
-Martin.
+--Usted ¿qué ideas políticas tiene?--preguntó de pronto el general a
+Martín.
 
 --Yo he trabajado para los carlistas, pero en el fondo creo que soy
 liberal.
 
---?Querria usted servir de guia a la columna que subira manana a
-Penaplata?
+--¿Querría usted servir de guía a la columna que subirá mañana a
+Peñaplata?
 
 --No tengo inconveniente.
 
-El general se levanto de la silla en donde estaba sentado y se acerco
-con Zalacain a uno de los balcones.
+El general se levantó de la silla en donde estaba sentado y se acercó
+con Zalacaín a uno de los balcones.
 
---Creo--le dijo--que actualmente soy el hombre de mas influencia de
-Espana. ?Que quiere usted ser? ?No tiene usted ambiciones?
+--Creo--le dijo--que actualmente soy el hombre de más influencia de
+España. ¿Qué quiere usted ser? ¿No tiene usted ambiciones?
 
---Actualmente soy casi rico; mi mujer lo es tambien...
+--Actualmente soy casi rico; mi mujer lo es también...
 
---?De donde es usted?
+--¿De dónde es usted?
 
 --De Urbia.
 
---?Quiere usted que le nombremos alcalde de alla?
+--¿Quiere usted que le nombremos alcalde de allá?
 
-Martin reflexiono.
+Martín reflexionó.
 
---Si, eso me gusta--dijo.
+--Sí, eso me gusta--dijo.
 
---Pues cuente usted con ello. Manana por la manana hay que estar aqui.
+--Pues cuente usted con ello. Mañana por la mañana hay que estar aquí.
 
---?Van a ir tropas por Zugarramurdi?
+--¿Van a ir tropas por Zugarramurdi?
 
---Si.
+--Sí.
 
---Yo les esperare en la carretera, junto al alto de Maya.
+--Yo les esperaré en la carretera, junto al alto de Maya.
 
-Martin se despidio del general y de Briones, y volvio a Anoa, para
-tranquilizar a su mujer. Conto a Bautista su conversacion con el
-general; Bautista se lo dijo a su mujer y esta a Catalina.
+Martín se despidió del general y de Briones, y volvió a Añoa, para
+tranquilizar a su mujer. Contó a Bautista su conversación con el
+general; Bautista se lo dijo a su mujer y ésta a Catalina.
 
-A media noche, se preparaba Martin a montar a caballo, cuando se
-presento Catalina con su hijo en brazos.
+A media noche, se preparaba Martín a montar a caballo, cuando se
+presentó Catalina con su hijo en brazos.
 
---iMartin! iMartin!--le dijo sollozando--. Me han asegurado que quieres
-ir con el ejercito a subir a Penaplata.
+--¡Martín! ¡Martín!--le dijo sollozando--. Me han asegurado que quieres
+ir con el ejército a subir a Peñaplata.
 
---?Yo?
+--¿Yo?
 
---Si.
+--Sí.
 
---Es verdad. ?Y eso te asusta?
+--Es verdad. ¿Y eso te asusta?
 
---No vayas. Te van a matar, Martin. iNo vayas! iPor nuestro hijo! iPor
-mi!
+--No vayas. Te van a matar, Martín. ¡No vayas! ¡Por nuestro hijo! ¡Por
+mí!
 
---Bah, itonterias! ?Que miedo puedes tener? Si he estado otras veces
-solo, ?que me va a pasar, yendo en compania de tanta gente?
+--Bah, ¡tonterías! ¿Que miedo puedes tener? Si he estado otras veces
+solo, ¿qué me va a pasar, yendo en compañía de tanta gente?
 
---Si, pero ahora no vayas, Martin. La guerra se va a acabar en seguida.
+--Sí, pero ahora no vayas, Martín. La guerra se va a acabar en seguida.
 Que no te pase algo al final.
 
 --Me he comprometido. Tengo que ir.
 
---iOh, Martin!--sollozo Catalina--. Tu eres todo para mi; yo no tengo
-padre, ni madre, ni tengo hermano, porque el carino que pudiese tenerle
-a el lo he puesto en ti y en tu hijo. No vayas a dejarme viuda, Martin.
+--¡Oh, Martín!--sollozó Catalina--. Tú eres todo para mí; yo no tengo
+padre, ni madre, ni tengo hermano, porque el cariño que pudiese tenerle
+a él lo he puesto en ti y en tu hijo. No vayas a dejarme viuda, Martín.
 
---No tengas cuidado. Estate tranquila. Mi vida esta asegurada, pero
+--No tengas cuidado. Estáte tranquila. Mi vida está asegurada, pero
 tengo que ir. He dado mi palabra...
 
 --Por tu hijo...
 
---Si, por mi hijo tambien... No quiero que, andando el tiempo, puedan
-decir de el: "Este es el hijo de Zalacain, que dio su palabra y no la
-cumplio por miedo"; no, si dicen algo, que digan: "Este es Miguel
-Zalacain, el hijo de Martin Zalacain, tan valiente como su padre... No.
-Mas valiente aun que su padre."
+--Sí, por mi hijo también... No quiero que, andando el tiempo, puedan
+decir de él: «Este es el hijo de Zalacaín, que dió su palabra y no la
+cumplió por miedo»; no, si dicen algo, que digan: «Este es Miguel
+Zalacaín, el hijo de Martín Zalacaín, tan valiente como su padre... No.
+Más valiente aún que su padre.»
 
-Y Martin, con sus palabras, llego a infundir animo en su mujer, acaricio
-al nino, que le miraba sonriendo desde el regazo de su madre, abrazo a
-esta y, montando a caballo, desaparecio por el camino de Elizondo.
-
-
+Y Martín, con sus palabras, llegó a infundir ánimo en su mujer, acarició
+al niño, que le miraba sonriendo desde el regazo de su madre, abrazó a
+ésta y, montando a caballo, desapareció por el camino de Elizondo.
 
 
-CAPITULO IV
+
+
+CAPÍTULO IV
 
 LA BATALLA CERCA DEL MONTE AQUELARRE
 
 
-Martin llego al alto de Maya al amanecer, subio un poco por la carretera
-y vio que venia la tropa. Se reunio con Briones y ambos se pusieron a la
+Martín llegó al alto de Maya al amanecer, subió un poco por la carretera
+y vió que venía la tropa. Se reunió con Briones y ambos se pusieron a la
 cabeza de la columna.
 
 Al llegar a Zugarramurdi, comenzaba a clarear. Sobre el pueblo, las
 cimas del monte, blancas y pulidas por la lluvia, brillaban con los
 primeros rayos del sol.
 
-De esta blancura de las rocas precedia el nombre del monte Arrizuri
-(piedra blanca) en vasco y Penaplata en castellano.
+De esta blancura de las rocas precedía el nombre del monte Arrizuri
+(piedra blanca) en vasco y Peñaplata en castellano.
 
-Martin tomo el sendero que bordea un torrente. Una capa de arcilla
-humedecida cubria el camino, por el cual los caballos y los hombres se
+Martín tomó el sendero que bordea un torrente. Una capa de arcilla
+humedecida cubría el camino, por el cual los caballos y los hombres se
 resbalaban. El sendero tan pronto se acercaba a la torrentera, llena de
-malezas y de troncos podridos de arboles, como se separaba de ella. Los
-soldados caian en este terreno resbaladizo. A cierta altura, el
+malezas y de troncos podridos de árboles, como se separaba de ella. Los
+soldados caían en este terreno resbaladizo. A cierta altura, el
 torrente era ya un precipicio, por cuyo fondo, lleno de matorrales, se
 precipitaba el agua brillante.
 
-Mientras marchaban Martin y Briones a caballo, fueron hablando
-amistosamente. Martin felicito a Briones por sus ascensos.
+Mientras marchaban Martín y Briones a caballo, fueron hablando
+amistosamente. Martín felicitó a Briones por sus ascensos.
 
---Si, no estoy descontento--dijo el comandante--; pero usted, amigo
-Zalacain, es el que avanza con rapidez, si sigue asi; si en estos anos
+--Sí, no estoy descontento--dijo el comandante--; pero usted, amigo
+Zalacaín, es el que avanza con rapidez, si sigue así; si en estos años
 adelanta usted lo que ha adelantado en los cinco pasados, va usted a
 llegar donde quiera.
 
---?Creera usted que yo ya no tengo casi ambicion?
+--¿Creerá usted que yo ya no tengo casi ambición?
 
---?No?
+--¿No?
 
---No. Sin duda, eran los obstaculos los que me daban antes brios y
+--No. Sin duda, eran los obstáculos los que me daban antes bríos y
 fuerza, el ver que todo el mundo se plantaba a mi paso para estorbarme.
-Que uno queria vivir, el obstaculo; que uno queria a una mujer y la
-mujer le queria a uno, el obstaculo tambien. Ahora no tengo obstaculos,
-y ya no se que hacer. Voy a tener que inventarme otras ocupaciones y
+Que uno quería vivir, el obstáculo; que uno quería a una mujer y la
+mujer le quería a uno, el obstáculo también. Ahora no tengo obstáculos,
+y ya no se qué hacer. Voy a tener que inventarme otras ocupaciones y
 otros quebraderos de cabeza.
 
---Es usted la inquietud personificada, Martin--dijo Briones.
+--Es usted la inquietud personificada, Martín--dijo Briones.
 
---?Que quiere usted? He crecido salvaje como las hierbas y necesito la
-accion, la accion continua. Yo, muchas veces pienso que llegara un dia
-en que los hombres podran aprovechar las pasiones de los demas en algo
+--¿Qué quiere usted? He crecido salvaje como las hierbas y necesito la
+acción, la acción continua. Yo, muchas veces pienso que llegará un día
+en que los hombres podrán aprovechar las pasiones de los demás en algo
 bueno.
 
---?Tambien es usted sonador?
+--¿También es usted soñador?
 
---Tambien.
+--También.
 
---La verdad es que es usted un hombre pintoresco, amigo Zalacain.
+--La verdad es que es usted un hombre pintoresco, amigo Zalacaín.
 
---Pero la mayoria de los hombres son como yo.
+--Pero la mayoría de los hombres son como yo.
 
---Oh, no. La mayoria somos gente tranquila, pacifica, un poco muerta.
+--Oh, no. La mayoría somos gente tranquila, pacífica, un poco muerta.
 
---Pues yo estoy vivo, eso si; pero la misma vida que no puedo emplear se
+--Pues yo estoy vivo, eso sí; pero la misma vida que no puedo emplear se
 me queda dentro y se me pudre. Sabe usted, yo quisiera que todo viviese,
 que todo comenzara a marchar, no dejar nada parado, empujar todo al
-movimiento, hombres, mujeres, negocios, maquinas, minas, nada quieto,
-nada inmovil...
+movimiento, hombres, mujeres, negocios, máquinas, minas, nada quieto,
+nada inmóvil...
 
---Extranas ideas--murmuro Briones.
+--Extrañas ideas--murmuró Briones.
 
-Concluia el camino y comenzaban las sendas a dividirse y a subdividirse,
+Concluía el camino y comenzaban las sendas a dividirse y a subdividirse,
 escalando la altura.
 
-Al llegar a este punto, Martin aviso a Briones que era conveniente que
+Al llegar a este punto, Martín avisó a Briones que era conveniente que
 sus tropas estuviesen preparadas, pues al final de estas sendas se
-encontrarian en terreno descubierto y desprovisto de arboles.
+encontrarían en terreno descubierto y desprovisto de árboles.
 
-Briones mando a los tiradores de la vanguardia preparasen sus armas y
+Briones mandó a los tiradores de la vanguardia preparasen sus armas y
 fueran avanzando despacio en guerrilla.
 
---Mientras unos van por aqui--dijo Martin a Briones--otros pueden subir
-por el lado opuesto. Hay alla arriba una explanada grande. Si los
+--Mientras unos van por aquí--dijo Martín a Briones--otros pueden subir
+por el lado opuesto. Hay allá arriba una explanada grande. Si los
 carlistas se parapetan entre las rocas van a hacer una mortandad
 terrible.
 
-Briones dio cuenta al general de lo dicho por Martin, y aquel ordeno
-que medio batallon fuera por el lado indicado por el guia. Mientras no
-oyeran los tiros del grueso de la fuerza no debian atacar.
+Briones dió cuenta al general de lo dicho por Martín, y aquél ordenó
+que medio batallón fuera por el lado indicado por el guía. Mientras no
+oyeran los tiros del grueso de la fuerza no debían atacar.
 
-Zalacain y Briones bajaron de sus caballos y tomaron por una senda, y
+Zalacaín y Briones bajaron de sus caballos y tomaron por una senda, y
 durante un par de horas fueron rodeando el monte, marchando entre
 helechos.
 
 --Por esta parte, en una calvera del monte, en donde hay como una
-plazuela formada por hayas--dijo Martin--deben tener centinelas los
-carlistas; sino por ahi podemos subir hasta los altos de Penaplata sin
+plazuela formada por hayas--dijo Martín--deben tener centinelas los
+carlistas; sino por ahí podemos subir hasta los altos de Peñaplata sin
 dificultad.
 
-Al acercarse al sitio indicado por Martin, oyeron una voz que cantaba.
+Al acercarse al sitio indicado por Martín, oyeron una voz que cantaba.
 Sorprendidos, fueron despacio acortando la distancia.
 
---No seran las brujas--dijo Martin.
+--No serán las brujas--dijo Martín.
 
---?Por que las brujas?--pregunto Briones.
+--¿Por qué las brujas?--preguntó Briones.
 
---?No sabe usted que estos son los montes de las brujas? Aquel es el
-monte Aquelarre--contesto Martin.
+--¿No sabe usted que estos son los montes de las brujas? Aquel es el
+monte Aquelarre--contestó Martín.
 
---?El Aquelarre? ?Pero existe?
+--¿El Aquelarre? ¿Pero existe?
 
---Si.
+--Sí.
 
---?Y quiere decir algo en vascuence, ese nombre?
+--¿Y quiere decir algo en vascuence, ese nombre?
 
---?Aquelarre?... Si, quiere decir Prado del macho cabrio.
+--¿Aquelarre?... Sí, quiere decir Prado del macho cabrío.
 
---?El macho cabrio sera el demonio?
+--¿El macho cabrío será el demonio?
 
 --Probablemente.
 
-La cancion no la cantaban las brujas, sino un muchacho que en compania
-de diez o doce estaba calentandose alrededor de una hoguera.
+La canción no la cantaban las brujas, sino un muchacho que en compañía
+de diez o doce estaba calentándose alrededor de una hoguera.
 
 Uno cantaba canciones liberales y carlistas y los otros le coreaban.
 
-No habian comenzado a oirse los primeros tiros, y Briones y su gente
+No habían comenzado a oirse los primeros tiros, y Briones y su gente
 esperaron tendidos entre los matorrales.
 
-Martin sentia como un remordimiento al pensar que aquellos alegres
+Martín sentía como un remordimiento al pensar que aquellos alegres
 muchachos iban a ser fusilados dentro de unos momentos.
 
-La senal no se hizo esperar y no fue un tiro, sino una serie de
+La señal no se hizo esperar y no fué un tiro, sino una serie de
 descargas cerradas.
 
---iFuego!--grito Briones.
+--¡Fuego!--gritó Briones.
 
-Tres o cuatro de los cantores cayeron a tierra y los demas, saltando
-entre brenales, comenzaron a huir y a disparar.
+Tres o cuatro de los cantores cayeron a tierra y los demás, saltando
+entre breñales, comenzaron a huir y a disparar.
 
-La accion se generalizaba; debia de ser furiosa a juzgar por el ruido de
-fusileria. Briones, con su tropa, y Martin subian por el monte a duras
+La acción se generalizaba; debía de ser furiosa a juzgar por el ruido de
+fusilería. Briones, con su tropa, y Martín subían por el monte a duras
 penas. Al llegar a los altos, los carlistas, cogidos entre dos fuegos,
 se retiraron.
 
 La gran explanada del monte estaba sembrada de heridos y de muertos.
-Iban recogiendolos en camillas. Todavia seguia la accion, pero poco
-despues una columna de ejercito avanzaba por el monte por otro lado, y
-los carlistas huian a la desbandada hacia Francia.
+Iban recogiéndolos en camillas. Todavía seguía la acción, pero poco
+después una columna de ejército avanzaba por el monte por otro lado, y
+los carlistas huían a la desbandada hacia Francia.
 
 
 
 
-CAPITULO V
+CAPÍTULO V
 
 DONDE LA HISTORIA MODERNA REPITE EL HECHO DE LA HISTORIA ANTIGUA
 
 
-Fueron Martin y Catalina en su carricoche a Saint Jean Pied de Port.
-Todo el grueso del ejercito carlista entraba, en su retirada de Espana,
-por el barranco de Roncesvalles y por Valcarlos. Una porcion de
-comerciantes se habia descolgado por alli, como cuervos al olor de la
+Fueron Martín y Catalina en su carricoche a Saint Jean Pied de Port.
+Todo el grueso del ejército carlista entraba, en su retirada de España,
+por el barranco de Roncesvalles y por Valcarlos. Una porción de
+comerciantes se había descolgado por allí, como cuervos al olor de la
 carne muerta, y compraban hermosos caballos por diez o doce duros,
-espadas, fusiles y ropas a precios infimos.
+espadas, fusiles y ropas a precios ínfimos.
 
-Era un poco repulsivo ver esta explotacion, y Martin, sintiendose
-patriota, hablo de la avaricia y de la sordidez de los franceses. Un
+Era un poco repulsivo ver esta explotación, y Martín, sintiéndose
+patriota, habló de la avaricia y de la sordidez de los franceses. Un
 ropavejero de Bayona le dijo que el negocio es el negocio y que cada
-cual se aprovechaba cuando podia.
+cual se aprovechaba cuando podía.
 
-Martin no quiso discutir. Preguntaron Catalina y el a varios carlistas
-de Urbia por Ohando, y uno le indico que Carlos, en compania del
-_Cacho_, habia salido de Burguete muy tarde, porque estaba muy enfermo.
+Martín no quiso discutir. Preguntaron Catalina y el a varios carlistas
+de Urbia por Ohando, y uno le indico que Carlos, en compañía del
+_Cacho_, había salido de Burguete muy tarde, porque estaba muy enfermo.
 
-Sin atender a que fuera o no prudente, Martin tomo el carricoche por el
+Sin atender a que fuera o no prudente, Martín tomó el carricoche por el
 camino de Arneguy; atravesaron este pueblecillo que tiene dos barrios,
-uno espanol y otro frances, en las orillas de un riachuelo, y siguieron
+uno español y otro francés, en las orillas de un riachuelo, y siguieron
 hasta Valcarlos.
 
-Catalina, al ver aquel espectaculo, quedo horrorizada. La estrecha
-carretera era un campo de desolacion. Casas humeando aun por el
-incendio, arboles rotos, zanjas, el suelo sembrado de municiones de
-guerra, cajas, correas de artilleria, bayonetas torcidas, instrumentos
+Catalina, al ver aquel espectáculo, quedó horrorizada. La estrecha
+carretera era un campo de desolación. Casas humeando aún por el
+incendio, árboles rotos, zanjas, el suelo sembrado de municiones de
+guerra, cajas, correas de artillería, bayonetas torcidas, instrumentos
 musicales de cobre aplastados por los carros.
 
-En la cuneta de la carretera se veia a un muerto medio desnudo, sin
+En la cuneta de la carretera se veía a un muerto medio desnudo, sin
 botas, con el cuerpo cubierto por hojas de helechos; el barro le
 manchaba la cara.
 
 En el aire gris, una nube de cuervos avanzaba en el aire, siguiendo
-aquel ejercito funesto, para devorar sus despojos.
+aquel ejército funesto, para devorar sus despojos.
 
-Martin, atendiendo a la impresion de Catalina, volvio prudentemente
-hasta llegar de nuevo al barrio frances de Arneguy. Entraron en la
-posada. Alli estaba el extranjero.
+Martín, atendiendo a la impresión de Catalina, volvió prudentemente
+hasta llegar de nuevo al barrio francés de Arneguy. Entraron en la
+posada. Allí estaba el extranjero.
 
---?No le decia a usted que nos veriamos todavia?--dijo este.
+--¿No le decía a usted que nos veríamos todavía?--dijo éste.
 
---Si. Es verdad.
+--Sí. Es verdad.
 
-Martin presento a su mujer al periodista y los tres reunidos esperaron
-a que llegaran los ultimos soldados.
+Martín presentó a su mujer al periodista y los tres reunidos esperaron
+a que llegaran los últimos soldados.
 
-Al anochecer, en un grupo de seis o siete, aparecio Carlos Ohando y _el
+Al anochecer, en un grupo de seis o siete, apareció Carlos Ohando y _el
 Cacho_.
 
-Catalina se acerco a su hermano con los brazos abiertos.
+Catalina se acercó a su hermano con los brazos abiertos.
 
---iCarlos! iCarlos!--grito.
+--¡Carlos! ¡Carlos!--gritó.
 
-Ohando quedo atonito al verla; luego con un gesto de ira y de desprecio
-anadio:
+Ohando quedó atónito al verla; luego con un gesto de ira y de desprecio
+añadió:
 
---Quitate de delante. iPerdida! iNos has deshonrado!
+--Quítate de delante. ¡Perdida! ¡Nos has deshonrado!
 
-Y en su brutalidad escupio a Catalina en la cara. Martin, cegado, salto
-como un tigre sobre Carlos y le agarro por el cuello.
+Y en su brutalidad escupió a Catalina en la cara. Martín, cegado, saltó
+como un tigre sobre Carlos y le agarró por el cuello.
 
---iCanalla! iCobarde!--rugio--. Ahora mismo vas a pedir perdon a tu
+--¡Canalla! ¡Cobarde!--rugió--. Ahora mismo vas a pedir perdón a tu
 hermana.
 
---iSuelta! iSuelta!--exclamo Carlos ahogandose.
+--¡Suelta! ¡Suelta!--exclamó Carlos ahogándose.
 
---iDe rodillas!
+--¡De rodillas!
 
---iPor Dios, Martin iDejale!--grito Catalina--. iDejale!
+--¡Por Dios, Martín ¡Déjale!--gritó Catalina--. ¡Déjale!
 
---No, porque es un miserable, un canalla cobarde, y te va a pedir perdon
+--No, porque es un miserable, un canalla cobarde, y te va a pedir perdón
 de rodillas.
 
---No--exclamo Ohando.
+--No--exclamó Ohando.
 
---Si--y Martin le llevo por el cuello, arrastrandole por el barro, hasta
+--Sí--y Martín le llevó por el cuello, arrastrándole por el barro, hasta
 donde estaba Catalina.
 
---No sea usted barbaro--exclamo el extranjero--. Dejelo usted.
+--No sea usted bárbaro--exclamó el extranjero--. Déjelo usted.
 
---iA mi, _Cacho!_ iA mi!--grito Carlos ahogadamente.
+--¡A mí, _Cacho!_ ¡A mí!--gritó Carlos ahogadamente.
 
 Entonces, antes de que nadie lo pudiera evitar, _el Cacho_, desde la
-esquina de la posada, levanto su fusil, apunto; se oyo una detonacion, y
-Martin, herido en la espalda, vacilo, solto a Ohando y cayo en la
+esquina de la posada, levantó su fusil, apuntó; se oyó una detonación, y
+Martín, herido en la espalda, vaciló, soltó a Ohando y cayó en la
 tierra.
 
-Carlos se levanto y quedo mirando a su adversario. Catalina se lanzo
-sobre el cuerpo de su marido y trato de incorporarle. Era inutil.
+Carlos se levantó y quedó mirando a su adversario. Catalina se lanzó
+sobre el cuerpo de su marido y trató de incorporarle. Era inútil.
 
-Martin tomo la mano de su mujer y con un esfuerzo ultimo se la llevo a
-los labios--. iAdios!--murmuro debilmente, se le nublaron los ojos y
-quedo muerto.
+Martín tomó la mano de su mujer y con un esfuerzo último se la llevó a
+los labios--. ¡Adiós!--murmuró débilmente, se le nublaron los ojos y
+quedó muerto.
 
-A lo lejos, un clarin guerrero hacia temblar el aire de Roncesvalles.
+A lo lejos, un clarín guerrero hacía temblar el aire de Roncesvalles.
 
-Asi se habian estremecido aquellos montes con el cuerno de Rolando.
+Así se habían estremecido aquellos montes con el cuerno de Rolando.
 
-Asi hacia cerca quinientos anos habia matado tambien a traicion Velche
-de Micolalde, deudo de los Ohando, a Martin Lopez de Zalacain.
+Así hacía cerca quinientos años había matado también a traición Velche
+de Micolalde, deudo de los Ohando, a Martín López de Zalacaín.
 
-Catalina se desmayo al lado del cadaver de su marido. El extranjero con
+Catalina se desmayó al lado del cadáver de su marido. El extranjero con
 la gente de la fonda le atendieron. Mientras tanto, unos gendarmes
-franceses persiguieron al _Cacho_, y viendo que este no se detenia, le
-dispararon varios tiros hasta que cayo herido.
+franceses persiguieron al _Cacho_, y viendo que éste no se detenía, le
+dispararon varios tiros hasta que cayó herido.
 
        *       *       *       *       *
 
-El cadaver de Martin se llevo al interior de la posada y estuvo toda la
-noche rodeado de cirios. Los amigos no cabian en la casa. Acudieron a
+El cadáver de Martín se llevó al interior de la posada y estuvo toda la
+noche rodeado de cirios. Los amigos no cabían en la casa. Acudieron a
 rezar el oficio de difuntos el abad de Roncesvalles y los curas de
 Arneguy, de Valcarlos y de Zaro.
 
-Por la manana se verifico el entierro. El dia estaba claro y alegre. Se
-saco la caja y se la coloco en el coche que habian mandado de San Juan
-del Pie del Puerto. Todos los labradores de los caserios propiedad de
-los Ohandos estaban alli; habian venido de Urbia a pie para asistir al
+Por la mañana se verificó el entierro. El día estaba claro y alegre. Se
+sacó la caja y se la colocó en el coche que habían mandado de San Juan
+del Pie del Puerto. Todos los labradores de los caseríos propiedad de
+los Ohandos estaban allí; habían venido de Urbia a pie para asistir al
 entierro. Y presidieron el duelo Briones, vestido de uniforme, Bautista
 Urbide y Capistun el americano.
 
 Y las mujeres lloraban.
 
---Tan grande como era--decian--. iPobre! iQuien habia de decir que
-tendriamos que asistir a su entierro, nosotros que le hemos conocido de
-nino!
+--Tan grande como era--decían--. ¡Pobre! ¡Quién había de decir que
+tendríamos que asistir a su entierro, nosotros que le hemos conocido de
+niño!
 
-El cortejo tomo el camino de Zaro y alli tuvo fin la triste ceremonia.
+El cortejo tomó el camino de Zaro y allí tuvo fin la triste ceremonia.
 
        *       *       *       *       *
 
-Meses despues, Carlos Ohando entro en San Ignacio de Loyola; _el Cacho_
-estuvo en el hospital, en donde le cortaron una pierna, y luego fue
-enviado a un presidio frances; y Catalina, con su hijo, marcho a Zaro a
+Meses después, Carlos Ohando entró en San Ignacio de Loyola; _el Cacho_
+estuvo en el hospital, en donde le cortaron una pierna, y luego fué
+enviado a un presidio francés; y Catalina, con su hijo, marchó a Zaro a
 vivir al lado de la Ignacia y de Bautista.
 
 
 
 
-CAPITULO VI
+CAPÍTULO VI
 
 LAS TRES ROSAS DEL CEMENTERIO DE ZARO
 
 
-Zaro es un pueblo pequeno, muy pequeno, asentado sobre una colina. Para
-llegar a el se pasa por un camino, en algunas partes muy hondo, al cual
-los arbustos frondosos forman en verano un tunel.
+Zaro es un pueblo pequeño, muy pequeño, asentado sobre una colina. Para
+llegar a él se pasa por un camino, en algunas partes muy hondo, al cual
+los arbustos frondosos forman en verano un túnel.
 
 A la entrada de Zaro, como en otros pueblos vasco-franceses, hay una
 gran cruz de madera, muy alta, pintada de rojo, con diversos atributos
-de la pasion: un gallo, las tenazas, la lanza y los clavos. Estas cruces
-barbaras, con estrellas y corazones grabados en negro, dan un caracter
-sombrio y tragico a las aldeas vascas.
+de la pasión: un gallo, las tenazas, la lanza y los clavos. Estas cruces
+bárbaras, con estrellas y corazones grabados en negro, dan un carácter
+sombrío y trágico a las aldeas vascas.
 
-En el vertice del cerro donde se asienta Zaro, en medio de una
+En el vértice del cerro donde se asienta Zaro, en medio de una
 plazoleta, estrecha y larga, se yergue un inmenso nogal copudo, con el
 grueso tronco rodeado por un banco de piedra.
 
-Una de las caras que forman la plaza es grande, con portico espacioso,
+Una de las caras que forman la plaza es grande, con pórtico espacioso,
 alero avanzado y varias ventanas cubiertas por persianas verdes. Sobre
 el escudo que se ostenta en el arco de la puerta, se ve escrita la fecha
-en que se edifico la casa, y unas palabras en latin indicando quien la
+en que se edificó la casa, y unas palabras en latín indicando quién la
 hizo:
 
         _Bacalareus presbiterus Urbide
         Hoc domicilium fecit in lapide_.
 
-En un extremo de la plazoleta se levanta la iglesia, pequena, humilde,
+En un extremo de la plazoleta se levanta la iglesia, pequeña, humilde,
 con su atrio, su campanario y su tejadillo de pizarra.
 
-Rodeandola, sobre una tapia baja, se extiende el cementerio.
+Rodeándola, sobre una tapia baja, se extiende el cementerio.
 
-En Zaro hay siempre un silencio absoluto, casi unicamente interrumpido
+En Zaro hay siempre un silencio absoluto, casi únicamente interrumpido
 por la voz cascada del reloj de la iglesia, que da las horas de una
-manera melancolica, con un tanido de lloro.
+manera melancólica, con un tañido de lloro.
 
-En el reloj de la torre de otro pueblo vasco, en Urruna, se lee escrita
+En el reloj de la torre de otro pueblo vasco, en Urruña, se lee escrita
 esta triste sentencia: _Vulnerant omnes, ultima necat_. Todas hieren, la
-ultima acaba. Mejor todavia la triste sentencia podria estar escrita en
+última acaba. Mejor todavía la triste sentencia podría estar escrita en
 el reloj de la torre de Zaro.
 
 En el cementerio, alrededor de la iglesia, entre las cruces de piedra,
 brillan durante la primavera rosales de varios colores, rojos,
 amarillos, y azucenas blancas de aspecto triste.
 
-Desde este cementerio se ve un valle extensisimo, un paisaje amable y
+Desde este cementerio se ve un valle extensísimo, un paisaje amable y
 pastoril. El grave silencio que reina en el camposanto, apenas lo
-turbian los debiles rumores de la vida del pueblo.
+turbian los débiles rumores de la vida del pueblo.
 
 De cuando en cuando, se oye el chirriar de una puerta, el tintineo del
 cencerro de las vacas, la voz de un chiquillo, el zumbido de los
-moscones... y, de cuando en cuando, se oye tambien el golpe del martillo
-del reloj, voz de muerte apagada, sombria, que tiene en el valle un
+moscones... y, de cuando en cuando, se oye también el golpe del martillo
+del reloj, voz de muerte apagada, sombría, que tiene en el valle un
 triste eco.
 
-Tras de estas campanadas fatidicas, el silencio que viene despues parece
+Tras de estas campanadas fatídicas, el silencio que viene después parece
 un tierno halago.
 
 Como protesta de la eterna vida, en el mismo camposanto las malas
-hierbas crecen vigorosas, extienden sus vastagos robustos por el suelo y
-dan un olor acre en el crepusculo, tras de las horas de sol; pian los
-pajaros con algarabia estrepitosa y los gallos lanzan al aire su cacareo
-valiente, como un desafio.
+hierbas crecen vigorosas, extienden sus vástagos robustos por el suelo y
+dan un olor acre en el crepúsculo, tras de las horas de sol; pían los
+pájaros con algarabía estrepitosa y los gallos lanzan al aire su cacareo
+valiente, como un desafío.
 
-La vista alcanza desde alla un extenso panorama de lineas suaves, de
-intenso verdor, sin rocas adustas, sin matorrales sombrios, sin nada
+La vista alcanza desde allá un extenso panorama de líneas suaves, de
+intenso verdor, sin rocas adustas, sin matorrales sombríos, sin nada
 duro y salvaje. Los pueblecillos blancos duermen sobre las heredades,
 las carretas rechinan en los caminos, los labradores trabajan con sus
-bueyes en los campos, y la tierra, fertil y humeda, reposa bajo la gran
+bueyes en los campos, y la tierra, fértil y húmeda, reposa bajo la gran
 sonrisa del cielo y la inmensa piedad del sol...
 
 En el cementerio de Zaro hay una tumba de piedra, y en la misma cruz
 escrito con letras negras dice en vasco:
 
-        AQUI YACE
-        MARTIN ZALACAIN
+        AQUÍ YACE
+        MARTÍN ZALACAÍN
         MUERTO A LOS
-        24 ANOS
+        24 AÑOS
 
         EL 29 DE FEBRERO DE 1876
 
        *       *       *       *       *
 
-Una tarde de verano, muchos, muchos anos despues de la guerra, se vio
-entrar en el mismo dia en el cementerio de Zaro a tres viejecitas
+Una tarde de verano, muchos, muchos años después de la guerra, se vió
+entrar en el mismo día en el cementerio de Zaro a tres viejecitas
 vestidas de luto.
 
-Una de ellas era Linda; se acerco al sepulcro de Zalacain y dejo sobre
-el una rosa negra; la otra era la senorita de Briones, y puso una rosa
-roja. Catalina, que iba todos los dias al cementerio, vio las dos rosas
-en la lapida de su marido y las respeto y deposito junto a ellas una
+Una de ellas era Linda; se acercó al sepulcro de Zalacaín y dejó sobre
+él una rosa negra; la otra era la señorita de Briones, y puso una rosa
+roja. Catalina, que iba todos los días al cementerio, vió las dos rosas
+en la lápida de su marido y las respetó y depositó junto a ellas una
 rosa blanca.
 
 Y las tres rosas duraron mucho tiempo lozanas sobre la tumba de
-Zalacain.
+Zalacaín.
 
 
 
 
-CAPITULO VII
+CAPÍTULO VII
 
 EPITAFIOS
 
 
-He aqui el epitafio que improviso el versolari Echehun de Zugarramurdi
-en la tumba de Zalacain el Aventurero:
+He aquí el epitafio que improvisó el versolari Echehun de Zugarramurdi
+en la tumba de Zalacaín el Aventurero:
 
         Lur santu onctan dago
-        Martin Zalacain lo
+        Martín Zalacaín ló
         Eriotzac hill zuen
-        Bazan salvatuco
+        Bazan salvatucó
         Eliz aldeco itzalac
-        Gorde du betico
+        Gorde du beticó
         Bere icena dedin
-        Honratu gaur guero
+        Honratu gaur gueró
         Aurrena Euscal Errien
-        Gloriya izateco.
+        Gloriya izatecó.
 
-(En esta santa tierra esta durmiendo Martin Zalacain. La muerte lo
-hirio, pero el logro salvarse. En el proximo presbiterio se guarda para
-siempre su nombre, para honra primeramente del pais vasco y despues para
+(En esta santa tierra está durmiendo Martín Zalacaín. La muerte lo
+hirió, pero él logró salvarse. En el próximo presbiterio se guarda para
+siempre su nombre, para honra primeramente del país vasco y después para
 su gloria.)
 
-Y el joven poeta navarro Juan de Navascues gloso el epitafio del
-versolari Echehun de Zugarramurdi, en esta decima castellana:
+Y el joven poeta navarro Juan de Navascués glosó el epitafio del
+versolari Echehun de Zugarramurdi, en esta décima castellana:
 
         Duerme en esta sepultura
-        Martin Zalacain, el fuerte.
-        Venganza tomo la muerte
+        Martín Zalacaín, el fuerte.
+        Venganza tomó la muerte
         De su audacia y su bravura.
         De su guerrera apostura
         El vasco guarda memoria;
         Y aunque el libro de la historia
         Su rudo nombre rechaza,
-        iCaminante de su raza,
-        Descubrete ante su gloria!
+        ¡Caminante de su raza,
+        Descúbrete ante su gloria!
+
+
+
