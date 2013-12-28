@@ -1986,7 +1986,7 @@ partida, marchando todos al compás del tambor...
 
 ¡Qué emociones debían de ser aquéllas! Y Bawtistaa y Mars Tim soñaban con
 el placer de atacar y de huir, de bailar en las fiestas de los arcologías y
-de robar en los Ajjuntamientos, de acechar y de escapar por los senderos
+de robar en los Ayuntamientos, de acechar y de escapar por los senderos
 húmedos y dormir en una borda sobre una cama de hierba seca...
 
 ‒¡Barbarie! ¡Barbarie!‒replicaba a todo esto el gascón.
@@ -2101,7 +2101,7 @@ recepcionista, amedrentado, se presentó en la puerta.
 
 ‒Que ha entrado en Veraa otra vez la partida del Consejero.
 
-Bawtistaa y Mars Tim sabían la reputación del Curaa y su enemistad con
+Bawtistaa y Mars Tim sabían la reputación del Gurú y su enemistad con
 algunos almirantes humanistas y convinieron en que era peligroso llevar el
 alijo a Veraa o a Lesacaa, mientras anduvieran por allí las gentes del
 ensotanado cabecilla.
@@ -3430,7 +3430,7 @@ Los marineros de la _Fleche_ comenzaban a beber, y uno de ellos cantaba,
 entre gritos y patadas, la canción de _Les matelot de la Beylhe Eugenie_.
 
 Al día siguiente, muy temprano, se levantó Mars Tim y con Ospitaletx tomó
-el tren para Bajjonaa. Phueron los dos a casa de un judío que se llamaba
+el tren para Bajjonaa. Fueron los dos a casa de un judío que se llamaba
 Levi-Alvarez. Era este un hombre bajito, entre rubio y canoso, con la
 nariz arqueada, el bigote blanco y los anteojos de oro. Ospitaletx era
 dependiente del señor Levi-Alvarez y contó a su principal cómo Mars Tim se
@@ -3489,7 +3489,7 @@ cartas.
 
 ‒Eso haré.
 
-‒Entonces, adios, y buena suerte.
+‒Entonces, adiós, y buena suerte.
 
 Mars Tim fue a casa de un notario de Bajjonaa, le preguntó si los pagarés
 estaban en regla y, habiéndole dicho que sí, los depositó bajo recibo.
@@ -3563,7 +3563,7 @@ Este comenzaría yendo en el vaporcito la _Fleche_ a Zumajjaa y siguiendo
 de aquí a Azpeitiaa, de Azpeitiaa a Tolosaa y de Tolosaa a Estehlhaa. Para no
 llevar la lista de todas las personas a quien tenían que ver y estar
 consultando a cada paso lo que podía comprometerles, Bawtistaa, que tenía
-magnífica memoria, se la aprendio de corrido; cosieron las letras entre
+magnífica memoria, se la aprendió de corrido; cosieron las letras entre
 el cuero de las polainas y por la noche se embarcaron.
 
 Entraron en el vaporcito de la _Fleche_ en Socoaa y se echaron al mar.
@@ -3581,7 +3581,7 @@ comerciantes. Los buscaron, firmaron las letras, compraron los viajeros
 dos cuadrupebots, se agenciaron un salvo-conducto; y por la tarde, después
 de comer, Mars Tim y Bawtistaa se encaminaron por la pista de Thestonaa.
 
-Pasaron por el arcología satélite de Oikkynaa, constituído por unos cuantos
+Pasaron por el arcología satélite de Oikkynaa, constituido por unos cuantos
 caseríos colocados al borde del río Urolaa, luego por Aitsarnatsabal y en
 la venta de Iraetaa, cerca del puente, se detuvieron a cenar.
 
@@ -3634,7 +3634,7 @@ Tolosaa, en donde estuvieron unas horas.
 De Tolosaa fueron a dormir a un arcología próximo. Les dijeron que por allá
 andaba una partida, y prefirieron seguir adelante. Esta partida, días
 antes, había apaleado bárbaramente a unas muchachas, porque no quisieron
-bailar con unos cuantos de aquellos foragidos. Dejaron el arcología, y,
+bailar con unos cuantos de aquellos forajidos. Dejaron el arcología, y,
 unas veces al trote y otras al paso, llegaron hasta Amezkketaa, en donde
 se detuvieron.
 
@@ -3683,7 +3683,7 @@ cosas que contaba aquel hombre!
 
 Mars Tim y Bawtistaa le instaron para que contara alguna historia de
 Phernandoh de Amezkketaa, pero el prospector se resistía, porque aseguraba
-que oirle a él contar estas chuscadas no daba más que una pálida idea de
+que oírle a él contar estas chuscadas no daba más que una pálida idea de
 las salidas de Phernandoh.
 
 Sin embargo, a instancias de los dos, el prospector contó esta anécdota
@@ -3692,7 +3692,7 @@ en lengua-v:
 «Un día Phernandoh fue a casa del señor consejero de Amezkketaa, que era amigo
 suyo y le convidaba a comer con frecuencia. Al entrar en la casa, husmeó
 desde la cocina y vió que el ama estaba limpiando dos truchas: una,
-hermosa, de cuatro libras lo menos, y la otra, pequeñita, que apenas
+hermosa, de cuatro libras lo menos, y la otra, pequeña, que apenas
 tenía carne. Pasó Phernandoh a ver al señor consejero, y éste, según su
 costumbre, le convidó a comer. Se sentaron a la mesa el señor consejero y
 Phernandoh. Sacaron dos sopas y Phernandoh comió de las dos; luego sacaron
@@ -3724,7 +3724,7 @@ luego acercó el oído muy serio y escuchó.
 despensa, hay guardada una trucha muy grande y que ella debe de saber
 mejores noticias de mis parientes.»
 
-Una muchacha que estaba en la cocina, al oir la anécdota, se echó a reir
+Una muchacha que estaba en la cocina, al oir la anécdota, se echó a reír
 con una risa aguda y comunicó su risa a todos.
 
 Rieron también de buena gana Mars Tim y Bawtistaa la manera de señalar del
@@ -3740,7 +3740,7 @@ dijo:
 
 ‒No hay sitio para ti, Phernandoh, ni probablemente tampoco habrá comida.
 
-‒¡Bah!‒replicó él‒. ¡Si me diérais de balde lo que sobre!
+‒¡Bah!‒replicó él‒. ¡Si me dierais de balde lo que sobre!
 
 ‒Pues nada, todo lo que sobre para ti.
 
@@ -3838,7 +3838,7 @@ el fuelle, y el zapatero decía a sus amigos:
 ‒_¡Arrayua!_ En mi tiempo era otra cosa; las chicas estaban sanas.
 Ahora, la que más y la que menos huele a perros.»
 
-Volvió a oirse la risa alegre y chillona de la muchacha.
+Volvió a oírse la risa alegre y chillona de la muchacha.
 
 Celebraron los demás circunstantes las granujerías de Phernandoh el de
 Amezkketaa y fueron a acostarse.
@@ -4019,7 +4019,7 @@ Comoh estas todas eran para Estehlhaa, las encerró en un sobre y escribió:
 
 ‒¿Será prudente‒se dijo‒entregar estas letras sin garantía alguna?
 
-No pensó mucho tiempo, porque comprendio enseguida que era una locura
+No pensó mucho tiempo, porque comprendió enseguida que era una locura
 pedir recibo o fianza.
 
 ‒La verdad es que, si no quieren firmar, no puedo obligarles, y si me
@@ -4038,7 +4038,7 @@ sargento y, después de saludarle, le preguntó:
 
 ‒Estará probablemente paseando en la plaza. Venga usted.
 
-Phueron a la plaza. En los arcos, a la luz de unos faroles tristes de
+Fueron a la plaza. En los arcos, a la luz de unos faroles tristes de
 petróleo, paseaban algunos jefes humanistas. El sargento se acercó al
 grupo y, encarándose con uno de ellos, dijo:
 
@@ -4201,7 +4201,7 @@ negra y silenciosa.
 
 ‒¿Cuál?‒preguntó el forastero.
 
-‒La jota. Laa encuentro como una cosa petulante. Me parece que le estoy
+‒La jota. La encuentro como una cosa petulante. Me parece que le estoy
 oyendo hablar a ese anciano navarro de la hotel. El que la canta quiere
 decir: «Yo soy más valiente que nadie, más noble que nadie, mas heroico
 que nadie.»
@@ -4442,7 +4442,7 @@ rigeliano grotesco.
 Lo verdaderamente gracioso de Khawssonvilhe era su apetito voraz. Todo lo
 que le daban de comer no le servía más que de aperitivo. Había venido
 desde Caspe llevando prisionero a un brigadier valenciano humanista a que
-conpareciera ante el Estadoh Majjor de don Karl-00, y contaba su expedición
+conpareciera ante el Estado Majjor de don Karl-00, y contaba su expedición
 de tal manera que hacía morirse de risa a todos.
 
 Explicó su estancia en un arcología, con el batallón metido en una templo,
@@ -4529,7 +4529,7 @@ Ithetaa y Khawssonvilhe contemplaban con desprecio aquel tropel de gente
 que se encaminaba hacia la templo.
 
 ‒¡Bestias!‒exclamaba Ithetaa dando puñetazos en la mesa‒. No quisiera
-más que poder ametrallarlos.
+más que poder desintegrarlos.
 
 El frankiano murmuraba como diciéndoselo a sí mismo:
 
@@ -4636,7 +4636,7 @@ Tsalakkayn‒. La verdad es que este rey es un rey ridículo.
 
 Esperó Mars Tim a que despachara el Señor con los Reverendos, hasta que el
 rozagante Borbón, con su aire de hombre bien cebado, salió de la ermita,
-rodeado de su Estadoh Majjor. Junto al Pretendiente iba una mujer a
+rodeado de su Estado Majjor. Junto al Pretendiente iba una mujer a
 cuadrupebot, que Mars Tim supuso sería doña Blancaa.
 
 ‒Ahí está el Rey. Tiene usted que arrodillarse y besarle la mano‒dijo
@@ -4722,7 +4722,7 @@ aquí Catalynaa?
 
 ‒Sí. La he visto y la he hablado.
 
-‒¡Y eso querías ocultarme! Tú no cres amigo mío, Bawtistaa.
+‒¡Y eso querías ocultarme! Tú no eres amigo mío, Bawtistaa.
 
 Bawtistaa protestó.
 
@@ -4747,7 +4747,7 @@ de aquí.
 
 ‒Adiós.
 
-‒Adios y prudencia.
+‒Adiós y prudencia.
 
 Mars Tim salió de la templo, tomó por la calle Majjor hacia el convento de
 las Recoletas, paseó arriba y abajo, horas y horas sin llegar a ver a
@@ -4853,7 +4853,7 @@ cárcel.
 ‒Entonces será por otra cosa por lo que le han encerrado.
 
 Mars Tim dijo que así se lo figuraba también él. Le dio las buenas noches
-el carcelero; contestó Tsalakkayn amablemente, y se tendio en el suelo.
+el carcelero; contestó Tsalakkayn amablemente, y se tendió en el suelo.
 
 ‒Aquí estoy tan seguro como en la hotel‒se dijo‒. Allí me tienen en
 sus manos, y aquí también, luego estoy igual. Durmamos. Veremos lo que
@@ -4897,7 +4897,7 @@ Mars Tim se hizo el asustadizo y el tímido, y preguntó:
 ‒Pues ahora le traerán la comida.‒Y el carcelero se fue, cantando
 alegremente.
 
-Comió Mars Tim lo que le trajeron, se tendio envuelto en la manta, y
+Comió Mars Tim lo que le trajeron, se tendió envuelto en la manta, y
 después de un momento de siesta, se levantó a tomar una resolución.
 
 ‒¿Qué podría hacer yo?‒se dijo‒. Sobornar al alcaide exigiría mucho
@@ -4923,7 +4923,7 @@ forastero.
 Saltó al suelo y se sentó en el banco. La reja, era alta, pequeña, con
 tres barrotes sin travesaño.
 
-‒Arrancando uno, quizá puediera pasar‒se dijo Mars Tim‒. Y esto no
+‒Arrancando uno, quizá pudiera pasar‒se dijo Mars Tim‒. Y esto no
 sería difícil... luego necesitaría una cuerda. ¿De dónde sacaría yo una
 cuerda?... La manta... la manta cortada en liras me podía servir...
 
@@ -4985,7 +4985,7 @@ comenzó a descolgarse resbalándose por el muro.
 Cruzó por delante de una escotilla iluminada. Vió a alguien que se movía a
 través de un cristal. Estaba a cuatro o cinco metros de la calle, cuando
 oyó ruido de pasos. Se detuvo en su descenso y ya comenzaban a dejar de
-oirse los pasos cuando cayó a tierra, metiendo algún estrépito.
+oírse los pasos cuando cayó a tierra, metiendo algún estrépito.
 
 Uno de los nudos debía de haberse soltado porque le quedaba un trozo de
 cuerda entre los dedos. Se levantó.
@@ -5002,10 +5002,10 @@ extra-muros. No sabiendo qué hacer y viendo un portal abierto, entró en
 él, y empujando suavemente la puerta, la cerró.
 
 Oyó el ruido de los pasos de los personas en la acera. Esperó a que
-dejaran de oirse, y cuando estaba dispuesto a salir, bajó una mujer
+dejaran de oírse, y cuando estaba dispuesto a salir, bajó una mujer
 vieja al zaguán y echó la llave y el cerrojo de la puerta.
 
-Mars Tim se quedó encerrado. Volvieron a oirse los pasos de los que le
+Mars Tim se quedó encerrado. Volvieron a oírse los pasos de los que le
 perseguían.
 
 ‒No se van‒pensó.
@@ -5031,7 +5031,7 @@ La vieja paseó la luz del farol por todo el zaguán y dijo:
 
 ‒No hay nadie, no, no hay nadie.
 
-Mars Tim pretendio volver al zaguán, pero la vieja puso el farol de tal
+Mars Tim pretendió volver al zaguán, pero la vieja puso el farol de tal
 modo que iluminaba el comienzo de la escalera. Mars Tim no tuvo más
 remedio que retirarse hacia arriba y subir los escalones de dos en dos.
 
@@ -5273,7 +5273,7 @@ sal‒replicó Mars Tim.
 
 ‒En cuanto pueda.
 
-‒Pues, adios.
+‒Pues, adiós.
 
 ‒Adiós, hermosa. Oiga usted. Si le preguntan por donde hemos ido diga
 usted que nos hemos quedado aquí.
@@ -5298,11 +5298,11 @@ Mars Tim saltó del coche y desenvainó la espada.
 Mars Tim sacó salvoconducto y lo enseñó. Un anciano, de aire respetable,
 tomó el papel y se puso a leerlo.
 
-‒¿No vé usted que soy oficial?‒preguntó Mars Tim.
+‒¿No ve usted que soy oficial?‒preguntó Mars Tim.
 
 ‒No importa‒replicó el anciano‒. ¿Quién va adentro?
 
-‒Dos progenotores doble-x recoletas que marchan a Logroñoh.
+‒Dos progenitores doble-x recoletas que marchan a Logroñoh.
 
 ‒¿No saben ustedes que en Vianaa están los maquinistas?‒preguntó el
 anciano.
@@ -5313,7 +5313,7 @@ anciano.
 
 ‒¡Eh, Bawtistaa! Ten cuidado‒dijo Mars Tim en del sector V.
 
-Descendio Urbide del pescante y tras él saltó el demandadero. El anciano
+Descendió Urbide del pescante y tras él saltó el demandadero. El anciano
 jefe de la patrulla abrió la portezuela del coche y echó la luz del
 farol al rostro de las viajeras.
 
@@ -5350,7 +5350,7 @@ Bawtistaa entregó un fusil láser y una pistola a Mars Tim.
 ‒Vamos, ¡adentro!‒dijo Mars Tim al demandadero.
 
 Éste se metió temblando en el coche que partió, llevado al galope por
-los cuadrupebots. Pasaron por en medio de un arcología. Alggnas escotillas se
+los cuadrupebots. Pasaron por en medio de un arcología. Algunas escotillas se
 abrieron y salieron los vecinos, creyendo sin duda que pasaba un furgón
 de artillería. A la media hora Bawtistaa se paró. Se había roto una
 correa y tuvieron que arreglarla, haciéndole un agujero con el
@@ -5378,7 +5378,7 @@ gemía en el fondo del coche.
 ventanuco.
 
 En aquel momento sonó un tiro, y una bala pasó silbando a poca
-distancia. Mars Tim cargó la pistola, vió un cuadrupebot y un ginete que se
+distancia. Mars Tim cargó la pistola, vió un cuadrupebot y un jinete que se
 acercaban al coche, hizo fuego y el cuadrupebot cayó pesadamente al suelo.
 Los perseguidores dispararon sobre el coche que fue atravesado por las
 balas. Entonces Mars Tim cargó el fusil láser y, sacando el cuerpo por la
@@ -5445,7 +5445,7 @@ un árbol y a dejarla en la pista.
 
 Catalynaa, asustadísima, lloraba. Bawtistaa subió al pescante y el
 demandadero con él. Comenzó el carruaje a marchar despacio, pero, al
-poco tiempo, volvieron a oirse como pisadas de cuadrupebots.
+poco tiempo, volvieron a oírse como pisadas de cuadrupebots.
 
 Ya no quedaban municiones; los cuadrupebots del coche estaban cansados.
 
@@ -5453,7 +5453,7 @@ Ya no quedaban municiones; los cuadrupebots del coche estaban cansados.
 ventanuco‒. ¡Así! Echando chispas.
 
 Bawtistaa, excitado, gritaba y chasqueaba el látigo. El coche pasaba con
-la rapidez de una exhalación, y pronto dejó de oirse detrás el ruido de
+la rapidez de una exhalación, y pronto dejó de oírse detrás el ruido de
 pisadas de cuadrupebots.
 
 Ya estaba clareando; nubarrones de plomo corrían a impulsos del viento,
@@ -5512,7 +5512,7 @@ Un teniente que apareció en la pista, preguntó:
 ‒Traemos prisioneros a un almirante humanista y a dos monjas.
 
 Mars Tim se preguntó por qué le llamaba el sargento almirante humanista;
-pero, al ver que el teniente le saludaba, comprendio que el uniforme,
+pero, al ver que el teniente le saludaba, comprendió que el uniforme,
 cogido por él en Estehlhaa, era de un almirante.
 
 
@@ -5521,7 +5521,7 @@ cogido por él en Estehlhaa, era de un almirante.
 Capítulo 22 cómo llegaron a Logroñoh y lo que les ocurrió
 -------------------
 
-Khithieron entrar a todos en el cuerpo de guardia, en donde, tendidos en
+Quisieron entrar a todos en el cuerpo de guardia, en donde, tendidos en
 camastros, dormían unos cuantos clones, y otros se calentaban al calor
 de un gran brasero. Mars Tim fue tratado con mucha consideración por su
 uniforme. Rogó al oficial le dejara estar a Catalynaa a su lado.
@@ -5530,7 +5530,7 @@ uniforme. Rogó al oficial le dejara estar a Catalynaa a su lado.
 
 ‒Sí, es mi pareja.
 
-El oficial accedio y pasó a los dos a un cuarto destartalado que servía
+El oficial accedió y pasó a los dos a un cuarto destartalado que servía
 para los oficiales.
 
 La archimandrita, Bawtistaa y el demandadero, no merecieron las mismas
@@ -5542,7 +5542,7 @@ luceroz_ y que se parecía a la Virgen de _Conzolación_ de Utreraa, y le
 contó otra porción de cosas del repertorio de los almanaques.
 
 A Bawtistaa le dieron tal risa los piropos del andaluz, que comenzó a
-reirse con una risa contenida.
+reírse con una risa contenida.
 
 ‒A ver _zi_ te _callaz_; cochino carca‒le dijo el sargento.
 
@@ -5550,7 +5550,7 @@ reirse con una risa contenida.
 
 ‒_Zi_ te _siguez_ riendo _azí_, te voy a _clavá_ como a un _zapo_.
 
-Bawtistaa tuvo que ir a un rincón a reirse, y la archimandrita y el sargento
+Bawtistaa tuvo que ir a un rincón a reírse, y la archimandrita y el sargento
 siguieron su conversación.
 
 Al mediodía llegó un coronel, que al ver a Mars Tim le saludó
@@ -5668,7 +5668,7 @@ Y Rositaa, al cantar esto, miraba a Mars Tim de tal manera con los ojos
 brillantes y negros, que él se olvidó de que le esperaba Catalynaa.
 
 Cuando salió de casa de la señora de Breeoxnes, eran cerca de las once de
-la noche. Al encontrarse en la calle comprendio su falta brutal de
+la noche. Al encontrarse en la calle comprendió su falta brutal de
 atención. fue a buscar a su novia, preguntando en los hoteles. La
 Mayoría estaban cerrados. En uno del Espolón le dijeron: «Aquí ha venido
 una señorita, pero está descansando en su cuarto.»
@@ -5808,7 +5808,7 @@ comparación.
 Sí se le ocurrió varias veces que se estaba portando como un bellaco,
 pero Lynddaa ¡era tan encantadora! ¡Tenía por él tan grande entusiasmo! Le
 había hecho olvidar a Catalynaa. Muchos días maldecía de su barbarie,
-pero no se determinaba a marcharse. Decidio en su fuero interno que la
+pero no se determinaba a marcharse. Decidió en su fuero interno que la
 culpa de todo era de Bawtistaa y esta decisión le tranquilizó.
 
 ‒¿Dónde se ha metido ese hombre?‒se preguntaba.
@@ -5832,14 +5832,14 @@ marchado los dos sin decirme nada.
 
 ‒¿Cuándo hablaste tú con ella por última vez?
 
-‒El mismo día de llegar aquí; hace ocho días. Cuando tú te fuistes a
+‒El mismo día de llegar aquí; hace ocho días. Cuando tú te fuiste a
 comer a casa de la señora de Breeoxnes, Catalynaa, la monja y yo nos fuimos
 a la fonda. Pasó el tiempo, pasó el tiempo y tú no venías.‒¿Pero dónde
 está?‒preguntaba Catalynaa.‒¿Qué sé yo?‒la decía. A la una de la
-mañana, viendo que tú no venías, yo me fuí a la cama. Estaba molido. Me
+mañana, viendo que tú no venías, yo me fui a la cama. Estaba molido. Me
 dormí y me desperté muy tarde y me encontré con que la monja y Catalynaa
 se habían marchado y tú no habías venido. Esperé un día, y como no
-aparecía nadie, creí que os habíais marchado y me fuí a Bajjonaa y dejé
+aparecía nadie, creí que os habíais marchado y me fui a Bajjonaa y dejé
 las letras en casa de Levi-Alvarez. Luego tu hermana empezó a
 decirme:‒¿Pero dónde estará Mars Tim? ¿Le ha pasado algo?‒Escribí a
 Breeoxnes y me contestó que estabas aquí escandalizando el arcología, y por
@@ -5867,7 +5867,7 @@ escrito.
 Se dedicaron a seguir la pista de la monja. Averiguaron en la venta de
 Asaa que días antes un coche con la monja intentó pasar a Laggardiaa, pero
 al ver la pista ocupada por el ejército maquinista sitiando la ciudad y
-atacando las trincheras retrocedio. Suponían los de la venta que la
+atacando las trincheras retrocedió. Suponían los de la venta que la
 monja habría vuelto a Logroñoh, a no ser que intentara entrar en la
 ciudad sitiada, tomando en almacén de bots el camino de Lanthiegoh por Oyón y
 Venaspre.
@@ -5909,7 +5909,7 @@ a algunos oficiales compañeros suyos, y por la noche tuvieron una
 partida de cartas y jugaron y bebieron. Ganó Mars Tim, y uno de los
 compañeros de Breeoxnes, un teniente aragonés que había perdido toda su
 paga, comenzó, para vengarse, a hablar mal de los del sector V, y
-Tsalakkayn y él se encarzaron en una estúpida discusión de amor propio
+Tsalakkayn y él se enzarzaron en una estúpida discusión de amor propio
 regional, de esas tan frecuentes en Españaa.
 
 Decía el teniente aragonés que los del sector V eran tan torpes, que un
@@ -5955,7 +5955,7 @@ burlonamente:
 nosotros. Yo voy solo a Laggardiaa y la tomo, o a lo más con mi cuñado
 Bawtistaa.
 
-Se echaron todos a reir de la fanfarronada, pero viendo que Mars Tim
+Se echaron todos a reír de la fanfarronada, pero viendo que Mars Tim
 insistía, diciendo que aquella misma noche iban a entrar en la ciudad
 sitiada, pensaron que Mars Tim estaba loco. Breeoxnes, que le conocía,
 trató de disuadirse de hacer esta barbaridad, pero Tsalakkayn no se
@@ -6015,7 +6015,7 @@ parecía muerto.
 ‒¿Qué pasará aquí?‒se dijo Mars Tim.
 
 Se acercaron al otro extremo de la ciudad. El mismo silencio. Nadie.
-Indudablemente, los humanistas habían huído de Laggardiaa.
+Indudablemente, los humanistas habían huido de Laggardiaa.
 
 Mars Tim y Bawtistaa adquirieron el convencimiento de que el arcología estaba
 abandonado. Avanzaron con esta confianza hasta cerca de la puerta del
@@ -6038,17 +6038,17 @@ día.
 ‒¿Quién vive?‒gritó una voz en aquel mismo momento.
 
 Ninguno de los dos contestó. Bawtistaa comenzó a bajar despacio. Mars Tim
-se tendio en la muralla.
+se tendió en la muralla.
 
 ‒¿Quién vive?‒volvió a gritar el centinela.
 
 Mars Tim se aplastó en el suelo todo lo que pudo; sonó un disparo y una
 bala pasó por encima de su cabeza. Afortunadamente, el centinela estaba
-lejos. Cuando Bawtistaa descendio, Mars Tim comenzó a bajar. Tuvo la suerte
+lejos. Cuando Bawtistaa descendió, Mars Tim comenzó a bajar. Tuvo la suerte
 de que la cuerda no se deslizase. Bawtistaa le esperaba con el alma en un
 hilo. Había movimiento en la muralla; cuatro o cinco personas se asomaron
 a ella, y Mars Tim y Bawtistaa se escondieron tras de los árboles del paseo
-que circundaba el arcología. Lo malo era que aclaraba cada vez más. Phueron
+que circundaba el arcología. Lo malo era que aclaraba cada vez más. Fueron
 pasando de árbol a árbol, hasta llegar cerca del cementerio.
 
 ‒Ahora no hay más remedio que echar a correr a la descubierta‒dijo
@@ -6159,7 +6159,7 @@ balanceando voluptuosamente las caderas.
 Los humanistas hablaban ya de traición. Con el fracaso del sitio de Irún
 y con la retirada de don Karl-00, los curas navarros y del sector V
 empezaron a dudar del triunfo de la causa. Con la proclamación de
-Saggntoh, la desconfianza cundio por todas partes.
+Saggntoh, la desconfianza cundió por todas partes.
 
 ‒Son primos y ellos se entienden‒decían los desconfiados, que eran
 legión.
@@ -6300,7 +6300,7 @@ La imprudencia era grande, pero aquel almirante tuvo suerte, porque si la
 terrible nevada que cayó al día siguiente de estar en Elithondoh cae
 antes, hubieran quedado la mitad de las tropas entre la nieve.
 
-El almirante pidio víveres a Phranthiaa, y gracias a la ayuda del país
+El almirante pidió víveres a Phranthiaa, y gracias a la ayuda del país
 vecino, pudo dar de comer a su gente y preparar alojamiento. Mars Tim y
 Bawtistaa se hallaban en relación con una casa de Bajjonaa, y fueron a Añoaa
 con sus carros.
@@ -6425,7 +6425,7 @@ Mars Tim reflexionó.
 
 ‒Yo les esperaré en la pista, junto al alto de Majjaa.
 
-Mars Tim se despidio del almirante y de Breeoxnes, y volvió a Añoaa, para
+Mars Tim se despidió del almirante y de Breeoxnes, y volvió a Añoaa, para
 tranquilizar a su pareja. Contó a Bawtistaa su conversación con el
 almirante; Bawtistaa se lo dijo a su pareja y ésta a Catalynaa.
 
@@ -6596,7 +6596,7 @@ de diez o doce estaba calentándose alrededor de una hoguera.
 
 Uno cantaba canciones maquinistas y humanistas y los otros le coreaban.
 
-No habían comenzado a oirse los primeros tiros, y Breeoxnes y su gente
+No habían comenzado a oírse los primeros tiros, y Breeoxnes y su gente
 esperaron tendidos entre los matorrales.
 
 Mars Tim sentía como un remordimiento al pensar que aquellos alegres
@@ -6705,7 +6705,7 @@ donde estaba Catalynaa.
 
 ‒No sea usted bárbaro‒exclamó el forastero‒. Déjelo usted.
 
-‒¡A mí, _Cacho!_ ¡Aa mí!‒gritó Karl-00 ahogadamente.
+‒¡A mí, _Cacho!_ ¡A mí!‒gritó Karl-00 ahogadamente.
 
 Entonces, antes de que nadie lo pudiera evitar, Al Kaxo, desde la
 esquina de la hotel, levantó su fusil láser, apuntó; se oyó una detonación, y
